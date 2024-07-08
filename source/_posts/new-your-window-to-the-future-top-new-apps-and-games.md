@@ -1,0 +1,122 @@
+---
+title: "\"[New] Your Window to the Future  Top New Apps & Games\""
+date: 2024-06-22T10:19:12.887Z
+updated: 2024-06-23T10:19:12.887Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes [New] Your Window to the Future: Top New Apps & Games\""
+excerpt: "\"This Article Describes [New] Your Window to the Future: Top New Apps & Games\""
+keywords: "\"Future Tech Gadgets,Innovative Apps Update,Next-Gen Game Releases,Trending Mobile Apps,Futuristic Games Listing,Newest Digital Entertainment,Cutting-Edge Applications\""
+thumbnail: https://thmb.techidaily.com/0553b37a2d0bfe56c6f7794ae22609d4c46a2b30d090cb5ced8396683e115022.jpg
+---
+
+## Your Window to the Future: Top New Apps & Games
+
+# Windows 10 Apps and Games to Explore and Download
+
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+##### Max Wales
+
+ Mar 27, 2024• Proven solutions
+
+Windows 10 has done something that brings good advantages to game lovers and App users. Windows 10 has an inbuilt Xbox which allows you to stream games and play right there on your PC, mobile or tabs. Another advantage of the Xbox Live integration is that no matter where you go you have access to the gaming community and your friends and achievements go with you. Since Windows 10 is all about games and apps you can go to the Windows store and download apps all of your favorite services.
+
+The first step towards downloading apps and games is that you need to have a Microsoft Account that is assigned to Windows 10\. If you are upgrading from Windows 8 or have Xbox One or use Skype then you probably have a Microsoft account. From the Windows store you can download free or paid apps, games, music and movies. Any app or game that you purchase can be installed on up to 10 PCs with Microsoft Accounts. If its Apps you are looking for then click on the Apps section, on the search bar in the top right corner type in the specific App you are looking for. You can browse the store to see what’s interesting.
+
+Once you have found your app tap or click on the install button right below the description. Button changes color. Read through the apps reviews and price to see if it’s for you. At the bottom of the individual store page you will see what platform the app works on and also the languages it supports. Here are some Apps you might find useful besides the music, videos and movie Apps.
+
+#### 1. App for Flipboard is Free
+
+![flipboard](https://images.wondershare.com/filmora/article-images/flipboard.jpg)
+
+If you like to follow news or spend time on social networks then perhaps you would like to download Flipboard. The App collects all the latest feeds from social networks and news sites and delivers them in package to you. You have stories from around the world to read or save for later. Try it since it’s all free
+
+#### 2. PowerPoint Template App
+
+![powerpoint](https://images.wondershare.com/filmora/article-images/powerpoint.jpg)
+
+If you are into presentations then you could find Templates for PowerPoint App really useful. You can access a wide number of templates for PowerPoint and even modify them and customize features according to your requirements. It integrates easily into PowerPoint and has some worthwhile designs but you have to download it for $7.99.
+
+#### 3. Adobe's Photoshop Express
+
+![adobe](https://images.wondershare.com/filmora/article-images/adobe.png)
+
+Another app that is free is the Photoshop Express. Users can load photos into the software and tweak the images. It might not be a total Photoshop but does a good job and since it is touch compatible you can work with it on a tablet too.
+
+#### 4. Netflix for video streaming
+
+![netflix](https://images.wondershare.com/filmora/article-images/netflix.jpg)
+
+This App allows you to use the streaming video service and is available on tablets, phones and PC. The app remembers where you left off watching and even shows you lists for TV shows and movies. It is likely to be aligned with Xbox app.
+
+#### 5. Microsoft SmartGlass App
+
+![smart](https://images.wondershare.com/filmora/article-images/smart.jpg)
+
+This app enables PCs to connect to and also control the Xbox console. You can also track game player achievements and buy Xbox games online. Since Xbox One doubles up as media box users can also control their TVs from the PC with SmartGlass.
+
+With Windows 10, it is now easy to create several desktops as well as run applications from each, so every desktop is showing only those apps that are running in a particular virtual desktop. In case that you do not want to make use of this feature, you may simply remove the “Task View” button.
+
+#### Installing games on Windows 10
+
+Window 10 is going to have an Xbox App which will integrate Xbox One into the PC. The App will also allow you to access games from Steam as well as Microsoft. What is a really exciting feature is that the App will allow you to play on Xbox One with people on the PC version. [Windows game](https://tools.techidaily.com/wondershare/filmora/download/) Apps store offers a wide range of games both free and paid.
+
+Of course the Microsoft Solitaire Collection as well as the traditional Minesweeper and Hearts are still going to be there and also you’ll be able to have games like the Windows 10 version of ‘Square Enix’s Rise of the Tomb Raider’, a sequel to Tomb raider reboot. Here you will see Lara Croft in Siberia. Also there is ‘Minecraft’ (Mojang) with new features and a reboot of the 90s Killer Instinct. Gears of War: Ultimate Edition is a remake of the original with improved graphics and Dolby surround sound 7.1 while Wasteland 2 is a sequel to their 25 year-old game and is a post-apocalyptic RPG that promises over 80,000 of game-time. Some other popular games that will be available are Fable Legends, Sea of Thieves, Shovel Knight, Pinball FX2, Candy Crush Saga etc.
+
+Any game that has an Xbox logo on it means that it also offers Xbox Live achievements and is synced with you Xbox Live profile. Microsoft is not accepting games from developers without a rating so you can have a look at the rating before you buy a game that is appropriate for you. At the bottom of the page you will also get information about how big the game is and on what devices it will run. The quality of games at the Windows 10 store could pose a challenge for Steam some say!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+Max Wales
+
+Max Wales is a writer and a lover of all things video.
+
+Follow @Max Wales
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/get-save-and-enjoy-discover-these-6-excellent-linkedin-downloader-tools/"><u>Get, Save, and Enjoy  Discover These 6 Excellent LinkedIn Downloader Tools</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-the-watchers-whispers-essential-websites-for-got-sound-files/"><u>[Updated] 2024 Approved  The Watchers' Whispers  Essential Websites for GoT Sound Files</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-step-by-step-guide-to-master-gratuitous-timer-software/"><u>[New] 2024 Approved  Step-by-Step Guide to Master Gratuitous Timer Software</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-chuckles-churner-visual-composer/"><u>2024 Approved  Chuckles Churner  Visual Composer</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-exploring-the-sky-with-tiny-powerful-uavs/"><u>[Updated] Exploring the Sky with Tiny, Powerful UAVs</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-unleash-your-creativity-10-steps-for-new-photoshop-users/"><u>In 2024, Unleash Your Creativity  10 Steps for New Photoshop Users</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-pro-tips-combining-gopro-with-time-lapse-shooting-techniques-for-2024/"><u>[New] Pro Tips  Combining GoPro with Time-Lapse Shooting Techniques for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-blurring-the-line-between-still-and-motion-art-for-2024/"><u>[Updated] Blurring the Line Between Still and Motion Art for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-the-pinnacle-strategies-for-persuasive-client-centered-videography/"><u>In 2024, The Pinnacle Strategies for Persuasive Client-Centered Videography</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-an-in-depth-look-at-huawei-p10s-audio-experience/"><u>[Updated] 2024 Approved  An In-Depth Look at Huawei P10's Audio Experience</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/craft-memes-for-comedy-using-adobe/"><u>Craft Memes for Comedy  Using Adobe</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-science-behind-catching-fire-on-instagram-for-2024/"><u>[Updated] The Science Behind Catching Fire on Instagram for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-discover-the-best-phone-apps-to-improve-vocality/"><u>[New] 2024 Approved  Discover the Best Phone Apps to Improve Vocality</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-social-sensation-unveiling-todays-most-retweeted-tweets/"><u>In 2024, Social Sensation  Unveiling Today's Most Retweeted Tweets</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-secrets-unlocked-winning-with-facebook-ads/"><u>[Updated] Secrets Unlocked  Winning with Facebook Ads</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-6s-plus-to-other-iphone-14-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 6s Plus to other iPhone 14 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-exclusive-guide-to-high-quality-audio-recording-on-windows-10-systems/"><u>Updated Exclusive Guide to High-Quality Audio Recording on Windows 10 Systems</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-tecno-spark-10-5g-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Tecno Spark 10 5G to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-elite-collection-of-online-video-grabbers-and-savers/"><u>[Updated] 2024 Approved  Elite Collection of Online Video Grabbers & Savers</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-lava-blaze-2-5g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Lava Blaze 2 5G Device Top 5 Picks to Remove Android Locks</u></a></li>
+</ul></div>

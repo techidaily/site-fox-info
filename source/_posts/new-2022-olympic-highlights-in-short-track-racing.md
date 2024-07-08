@@ -1,0 +1,144 @@
+---
+title: "[New] 2022 Olympic Highlights in Short Track Racing"
+date: 2024-06-22T10:25:15.659Z
+updated: 2024-06-23T10:25:15.659Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "This Article Describes [New] 2022 Olympic Highlights in Short Track Racing"
+excerpt: "This Article Describes [New] 2022 Olympic Highlights in Short Track Racing"
+keywords: "\"Olympic Short Track,2022 Olympics Racing,Short Track Highlights,Olympic Highpoints,Short-Track Racing olympsiC,Olympic Short Speed,Track Race Highlights 2022\""
+thumbnail: https://thmb.techidaily.com/f8ea6bc64575a4f059dff23c3d5a8452f8167601d5f2b8cf93b8214a89c17a78.jpg
+---
+
+## 2022 Olympic Highlights in Short Track Racing
+
+Putting aside the controversy of getting disqualified in 1000 meter short track speed skating, South Korean skater Hwang Dae-heon has captured gold in men’s 1500 meter short track speed skating Olympics 2022\. Hwang Dae-heon managed to beat Canada’s Steven Dubois by the tightest margin of 0.035 seconds. He completed short track speed skating 1500m in 2 minutes and 9.219 seconds.
+
+Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with controversy after the questionable disqualification of South Korean speed skaters - Hwang and Lee in 1000 meter skating. Paying no heed to the controversy and unfortunate loss, skater Hwang Dae-heon captured his first gold medal in his career and brought back everyone’s focus to the game. Check out the short track speed skating highlights and learn how to create a video with highlights of a tournament like Beijing 2022 Olympic Winter Games.
+
+### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
+
+## Part 1\. Introduce some highlights in short track speed skating with images
+
+Here are the main highlights of 1500 meter short track speed skating held at the Capital Indoor Stadium in Beijing on Wednesday.
+
+Short track speed skating Korea Hwang Dae-heon wins the gold medal.
+
+![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
+
+Canada’s Steven Dubois wins the silver medal.
+
+![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
+
+Russia’s Semen Elistratov wins the bronze medal.
+
+![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
+
+Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
+
+![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
+
+Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
+
+![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
+
+Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
+
+![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
+
+The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
+
+![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
+
+Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
+
+![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
+
+## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
+
+The best way to present any news related to any sports event is to create a short video containing all the highlights of the event. For example, you can create a video combining all the highlights of short track speed skating 2022 that we have presented in the previous section. You can also collect short clips of the event from social media platforms that have been captured by audiences.
+
+To create such a highlight video on any sports event, there are certain videos effects commonly used that you should know about.
+
+**Transitions** – Since you are going to use a lot of still photos, the transition from one photo to another should be smooth. This is where transition effects come into the play so that the viewer does not feel any jarring effect and sudden changes as they move from one slide in your video to another.
+
+**Slow Motion** – If you have collected from short clips of the event, you can use slow motion effect to prolong the clip and give enough time for your viewer to watch it. Slow motion effect is quite captivating and intriguing in today’s videography world.
+
+**Motion Tracking** – Using motion tracking, you can track the movement of a particular object or athlete in a video. This helps to attach certain elements such as clipart, text, icon to that particular athlete throughout the video for easy identification by the viewers.
+
+**Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
+
+### A Professional Video Editor
+
+To create a video based on any sport event such as short track speed skating highlights, you need a professional video editor where you can get all the video effects and elements in one place. We recommend Wondershare Filmora where you get a wide range of video effects and editing tools to make your video stand out easily.
+
+Creating a highlight video requires minimum number of steps. Starting from motion tracking and transition to adding text and title slides and overlay filters, there are over 800+ options to choose from. Here are the steps on how to edit videos on Wondershare Filmora -
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For Win 7 or later (64-bit)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+Step 1: Download and install Filmora on your computer. Launch the application and click on New Project.
+
+![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
+
+Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
+
+Step 3: Go to Import > Import Media Files and bring in all the still footages and short clips you have collected. You can also use the option Import with Instant Cutter Tool to trim the footages and clips for uniformity.
+
+Step 4: Add all the still footages and clips on the Video Timeline while add audio clips, background music or voiceover to the Audio Timeline.
+
+Step 5: Select individual slides and apply Transition, Effects or add Titles and Elements from the top bar.
+
+Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
+
+## Conclusion
+
+South Korean skater Hwang Dae-heon has won the gold medal in men’s short track speed skating 1500m. This has buried the controversy that cropped up due to South Korean disqualification in 1000m short track speed skating. If you want to make a video highlighting all the important scenes and moments of any sports event, we have illustrated how to make a professional-quality video with Wondershare Filmora.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-seamlessly-shift-focus-with-picart-clear-borders/"><u>[Updated] 2024 Approved  Seamlessly Shift Focus with PicArt Clear Borders</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-boost-your-visuals-video-enhance-pro-22-guide/"><u>In 2024, Boost Your Visuals - Video Enhance Pro 2.2 Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-unleash-marketing-potential-with-unpacked-plans/"><u>[New] Unleash Marketing Potential with Unpacked Plans</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-google-cardboard-versus-samsung-gear-vr-the-showdown-for-2024/"><u>[Updated] Google Cardboard Versus Samsung Gear VR  The Showdown for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-unveiling-the-secret-how-to-disable-youtube-snippet-playback-for-2024/"><u>[Updated] Unveiling the Secret  How to Disable YouTube Snippet Playback for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-bring-back-windows-photo-viewer-steps-in-win-11-edition/"><u>[New] Bring Back Windows Photo Viewer  Steps in Win 11 Edition</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-pinnacle-gold-text-rendering-in-top-8-3d-web-spaces/"><u>In 2024, Pinnacle Gold Text Rendering in Top 8 3D Web Spaces</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-minecraft-sustainable-house-projects-6-10/"><u>[New] In 2024, Minecraft Sustainable House Projects #6-10</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-melody-meets-discovering-crossfade-magic/"><u>[Updated] The Melody Meets  Discovering Crossfade Magic</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-recording-audio-for-impactful-ppts-and-presentations-for-2024/"><u>[Updated] Recording Audio For Impactful PPTs & Presentations for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/invigorating-channel-content-best-video-concepts-to-inspire-viewers-for-2024/"><u>Invigorating Channel Content  Best Video Concepts to Inspire Viewers for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/unusual-sideway-photos-in-instagram-storytelling-for-2024/"><u>Unusual Sideway Photos in Instagram Storytelling for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-in-2024-key-tools-for-monitoring-tiktok-analytics-and-engagement/"><u>[New] In 2024, Key Tools for Monitoring TikTok Analytics and Engagement</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-top-mac-apps-for-converting-audio-files-to-mp3/"><u>Updated In 2024, Top Mac Apps for Converting Audio Files to MP3</u></a></li>
+</ul></div>

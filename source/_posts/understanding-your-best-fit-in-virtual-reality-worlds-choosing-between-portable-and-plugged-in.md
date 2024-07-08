@@ -1,0 +1,93 @@
+---
+title: "\"Understanding Your Best Fit in Virtual Reality Worlds  Choosing Between Portable and Plugged In\""
+date: 2024-06-22T09:50:40.921Z
+updated: 2024-06-23T09:50:40.921Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes Understanding Your Best Fit in Virtual Reality Worlds: Choosing Between Portable and Plugged In\""
+excerpt: "\"This Article Describes Understanding Your Best Fit in Virtual Reality Worlds: Choosing Between Portable and Plugged In\""
+keywords: "\"VR Best Fit Guide,Portable VR Vs. Wired,Virtual Reality Modes,VR Accessibility,Choose VR Style,Plugged-In VR Trends,Selecting VR Type\""
+thumbnail: https://thmb.techidaily.com/0ee1225be77fa4613effbd7e0a5133a0aefce994347fcea7074a0ffcc7271165.JPG
+---
+
+## Understanding Your Best Fit in Virtual Reality Worlds: Choosing Between Portable and Plugged In
+
+# How to choose VR Headset? Mobile VR or Tethered VR?
+
+![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+##### Benjamin Arango
+
+ Mar 27, 2024• Proven solutions
+
+ Mobile [VR Headset](https://tools.techidaily.com/wondershare/filmora/download/)and Tethered VR headsets are the two main kinds of this technology, they both are useful and innovative in some ways. The former runs on the mobile devices while the later runs with the computers and other gaming devices. There are so many different kinds of products for both these kinds to choose from.
+
+## Difference Between Mobile and Tethered VR Headsets
+
+ If we talk about Tethered headsets, we see that they have combined displays, and they usually connect to personal computers or also to game systems using a cable. Whereas on the other hand, mobile headsets typically use smartphones for the display as well as processing; and in the absence of a smartphone, they're nothing but just shells having lenses.
+
+ Tethered headsets designed to be large, they are expensive, and as well as they are also resource-intensive. They also claim more innovative motion-sensing and head-tracking abilities in opposite to mobile headsets. Other than that, not just the larger headsets consist of extensively devoted motion sensors, they also often work in combination with outside cameras to more exactly track the user's head. Adding to that, they're also designed to work with bodily controls, starting from keyboards and gamepads to more exclusive possibilities.
+
+ Now if we talk about the mobile headsets, they are small in size and cheap in price as compared to PC VR Headset. The reason is the most of the work is actually done by the smartphone, so the maximum price of mobile headset could be $100\. Most of the mobile headsets are grounded on the Google Cardboard prototype, and with the exclusion of a magnetic switch, they do not have any motorized or electric components in the design; they are only screens with the lenses that divide user's smartphone's screen absolutely into two when he holds it to his face.
+
+## When to Choose Mobile Headset or a VR Headset? Purchasing Suggestions
+
+ It is a very common question nowadays that what VR kind should be preferred to buy, tethered or mobile. Well, according to their use and qualities both of them are best in some senses and both of them has flaws in some other senses. It all depends on what needs do the user has. Now there are 2 options if you want a headset to try out this new technology and you want this gadget to be always with you wherever you go, you need to buy a mobile VR headset. But in the other case, if you want to completely enjoy this technology with powerful displays and want to have the best experience then there is no doubt you need to buy a tethered VR headset. It also depends on how much money do you have, because the tethered VR headset is very expensive because of its extra functionalities and ruthless display, whereas mobile VR headset are not so much good at display but they are cheap and an average person can easily afford them.
+
+### Some of the best of both the worlds
+
+ LG's new 360 VR, though, is present someplace in the mid of the best of the mobile headsets. It has its particular lenses and also the display but it is also tethered to the LG G5 mobile with the help of a USB cable. You can regulate things also with buttons present on the HMD or as well as by pushing and long-pressing the display of the smartphone. Audio voice can also come from the headphone jack present on the HMD or through the phone's earphone port. It is still restricted by the smartphone's dispensation power but by the presence of its personal lenses, it's considerably well adapted to virtual reality as compared to Google Cardboard.
+
+ One of the other huge results of a tethered smartphone connection is of the 360 VR is very lighter in weight and debatably more contented than rather like the Gear VR, and it permits for adjustment of the optics. Though it may look awkward, it's actually not considerably different than the 1st Sony Walkman, which also listed a trivial head gadget which is driven by a tethered device.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+Benjamin Arango
+
+Benjamin Arango is a writer and a lover of all things video.
+
+Follow @Benjamin Arango
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/2024-approved-navigating-the-green-screen-landscape-for-webcam-enthusiasts/"><u>2024 Approved  Navigating the Green Screen Landscape for Webcam Enthusiasts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/elevating-podcast-reputation-logo-design-principles-for-2024/"><u>Elevating Podcast Reputation  Logo Design Principles for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-utilizing-in-presentation-speech-to-text-functionality-in-powerpoint/"><u>In 2024, Utilizing In-Presentation Speech-to-Text Functionality in PowerPoint</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-master-the-art-of-multitasking-top-15-ideas-for-podcast-enthusiasts-for-2024/"><u>[New] Master the Art of Multitasking  Top 15 Ideas for Podcast Enthusiasts for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-integrating-timestamps-in-youtube-content/"><u>[Updated] Integrating Timestamps in YouTube Content</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-essential-gopro-editing-the-top-15-color-luts-selection-guide/"><u>[Updated] Essential GoPro Editing  The Top 15 Color LUTs Selection Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-4k-resolution-unveiled-in-chroma-focused-lenses/"><u>2024 Approved  4K Resolution Unveiled in Chroma-Focused Lenses</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-the-essential-8-in-virtual-reality-gaming/"><u>[New] The Essential 8 in Virtual Reality Gaming</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unleash-creative-potential-with-top-tips-for-gopro-timelapses/"><u>[Updated] Unleash Creative Potential with Top Tips for GoPro Timelapses</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-navigating-legalities-of-instagram-harmonies/"><u>In 2024, Navigating Legalities of Instagram Harmonies</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-obs-revived-camera-back-to-life-for-2024/"><u>[New] OBS Revived  Camera Back to Life for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Lava Yuva 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-fix-icloud-lock-from-your-iphone-13-mini-and-ipad-by-drfone-ios/"><u>How to fix iCloud lock from your iPhone 13 mini and iPad</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nient-viewing-setting-up-youtube-on-large-tv-panels/"><u>Convenient Viewing  Setting Up YouTube on Large TV Panels</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-find-my-iphone-without-apple-id-from-your-apple-iphone-xs-by-drfone-ios/"><u>In 2024, How to Remove Find My iPhone without Apple ID From your Apple iPhone XS?</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/m1-pro-to-m1-max-understanding-the-differences-in-apple-computing-for-2024/"><u>M1 Pro to M1 Max  Understanding the Differences in Apple Computing for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-premier-ios-choices-for-superior-video-experience/"><u>[Updated] Premier iOS Choices for Superior Video Experience</u></a></li>
+</ul></div>
