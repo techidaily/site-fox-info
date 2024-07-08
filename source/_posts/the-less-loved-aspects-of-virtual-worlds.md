@@ -1,7 +1,7 @@
 ---
 title: "\"The Less-Loved Aspects of Virtual Worlds\""
-date: 2024-06-22T10:02:18.954Z
-updated: 2024-06-23T10:02:18.954Z
+date: 2024-07-07T12:44:11.964Z
+updated: 2024-07-08T12:44:11.964Z
 tags: 
   - screen-recording
   - ai video
@@ -29,8 +29,8 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
  When many of us think of [Virtual Reality](https://tools.techidaily.com/wondershare/filmora/download/) there is two thoughts, the first is the high heaven of VR which is the holodeck featured on the several TV versions of “Star Trek” and a crucial part of the show's flagship the starship Enterprise. The holodeck was what true Virtual Reality should be, full body tactile immersion both narrative immersion, which occurs “when the viewer becomes emotionally invested in the story” and the feeling of “really being there”, called spatial immersion.
 
  **_You may also like:_**
-_[Differences between VR, AR and MR](https://tools.techidaily.com/wondershare/filmora/download/)_
-_[Virtual Reality Technology: Current State and Future Challenges](https://tools.techidaily.com/wondershare/filmora/download/)_
+_ [Differences between VR, AR and MR](https://tools.techidaily.com/wondershare/filmora/download/) _
+_ [Virtual Reality Technology: Current State and Future Challenges](https://tools.techidaily.com/wondershare/filmora/download/) _
 
 ## The equipment used for VR is very expensive
 
