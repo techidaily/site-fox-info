@@ -1,7 +1,7 @@
 ---
 title: "\"[New] High-Capacity Card for A7S Professional Use\""
-date: 2024-07-12T11:16:50.730Z
-updated: 2024-07-13T11:16:50.730Z
+date: 2024-07-29T07:11:50.945Z
+updated: 2024-07-30T07:11:50.945Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,9 @@ thumbnail: https://thmb.techidaily.com/3bbe537e8e6d43ee38a009c5ba9253564dbe37ab4
 
 # Best Memory Card for Sony A7S II
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -30,6 +33,9 @@ thumbnail: https://thmb.techidaily.com/3bbe537e8e6d43ee38a009c5ba9253564dbe37ab4
 
  The article below can help you to select right memory cards for your Sony A7S II camera:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ## How to choose the right memory card for your Sony A7S II
 
 #### Section 1: UHS (Ultra High Speed) Card Classification
@@ -67,6 +73,9 @@ thumbnail: https://thmb.techidaily.com/3bbe537e8e6d43ee38a009c5ba9253564dbe37ab4
 * Note that there is no money saving deal in memory card price ranges. When you go to buy a 128GB memory card it will naturally cost same as if you buy two 64GB cards.
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Best Memory Cards for Sony A7S II
 
 #### 1. Sony 64GB High Performance Class 10 UHS-1/U3 SDXC
@@ -105,6 +114,9 @@ thumbnail: https://thmb.techidaily.com/3bbe537e8e6d43ee38a009c5ba9253564dbe37ab4
 * Extreme Pro is compatible with SDXC devices.
 * Ensures perfect results for Full HD, 3D and 4K resolution levels.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -133,3 +145,44 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-premier-8-web-based-photo-fusion-app/"><u>[New] 2024 Approved  Premier 8 Web-Based Photo Fusion App</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-scheduling-effective-zoom-conversations-on-android-platforms/"><u>[New] 2024 Approved  Scheduling Effective Zoom Conversations on Android Platforms</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-the-best-mobile-recording-software-roundup/"><u>[New] 2024 Approved  The Best Mobile Recording Software Roundup</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-crafting-visuals-with-precision-5-top-tips-for-pros-for-2024/"><u>[New] Crafting Visuals with Precision  5 Top Tips for Pros for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-how-to-expertly-record-and-save-your-favorite-hulu-shows-for-2024/"><u>[New] How To Expertly Record and Save Your Favorite Hulu Shows for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-how-to-optimize-rl-recording-hardware-and-software-for-2024/"><u>[New] How to Optimize RL Recording Hardware & Software for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-exclusive-listing-of-best-5-sd-cards-for-gopro-hero-cameras/"><u>[New] In 2024, Exclusive Listing of Best 5 SD Cards for GoPro HERO Cameras</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-improving-video-playback-clearer-facebook-views-online/"><u>[New] In 2024, Improving Video Playback  Clearer Facebook Views Online</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-the-most-compelling-free-ae-design-samples/"><u>[New] In 2024, The Most Compelling Free AE Design Samples</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-unveiling-the-secrets-of-hands-in-vrar/"><u>[New] In 2024, Unveiling the Secrets of Hands in VR/AR</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-navigating-your-way-to-the-perfect-4k-lens-purchase/"><u>[New] Navigating Your Way to the Perfect 4K Lens Purchase</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-sharpen-your-iphone-hdri-discover-the-top-4-fixes-for-premiere-pro-professionals/"><u>[New] Sharpen Your iPhone HDRI  Discover the Top 4 Fixes for Premiere Pro Professionals</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-ultimate-guide-to-slomo-videography-app-review-update-for-2024/"><u>[New] Ultimate Guide to SloMo Videography  App Review Update for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-leading-5-drones-the-ultimate-professional-buy-guide/"><u>[Updated] 2024 Approved  Leading 5 Drones - The Ultimate Professional Buy Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-daring-dashes-olympic-short-track-highlights-2022/"><u>[Updated] Daring Dashes  Olympic Short Track Highlights, 2022</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-game-enhancing-screens-top-5-for-ps5-and-xbox-gamers-for-2024/"><u>[Updated] Game-Enhancing Screens  Top 5 for PS5 & Xbox Gamers for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-how-to-download-vimeo-videos-2024/"><u>[Updated] How to Download Vimeo Videos 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-ace-the-art-of-editing-say-goodbye-to-overflowing-tiktok-drafts/"><u>[Updated] In 2024, Ace the Art of Editing  Say Goodbye to Overflowing TikTok Drafts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-composing-the-unseen-score-trailer-music-magic/"><u>[Updated] In 2024, Composing the Unseen Score  Trailer Music Magic</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-digital-draw-dance-windows-and-mac-cartoony-creators-guide/"><u>[Updated] In 2024, Digital Draw-Dance  Windows & Mac Cartoony Creator's Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-downgrading-tips-from-sierra-to-os-x-el-capitan-version/"><u>[Updated] In 2024, Downgrading Tips From Sierra to OS X El Capitan Version</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-mastering-the-art-of-virtual-visuals-zooms-step-by-step-filters-guide/"><u>[Updated] In 2024, Mastering the Art of Virtual Visuals  Zoom's Step-By Step Filters Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-stepwise-approach-implementing-luts-in-adobes-premiere-suite/"><u>[Updated] Stepwise Approach  Implementing LUTs in Adobe's Premiere Suite</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-art-of-cinema-mastering-the-best-5-camera-tips-for-2024/"><u>[Updated] The Art of Cinema  Mastering the Best 5 Camera Tips for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-vivid-visions-harnessing-light-to-captivate-audiences-for-2024/"><u>[Updated] Vivid Visions  Harnessing Light to Captivate Audiences for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/best-webm-to-mp3-converters-expert-recommendations/"><u>Best WebM to MP3 Converters Expert Recommendations</u></a></li>
+<li><a href="https://fox-info.techidaily.com/edit-like-a-pro-with-top-android-apps/"><u>Edit Like a Pro with Top Android Apps</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/healing-holograms-arvr-in-healthcare-for-2024/"><u>Healing Holograms  AR/VR in Healthcare for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-frontline-contenders-top-7-action-fps-games/"><u>In 2024, Frontline Contenders  Top 7 Action FPS Games</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-samsung-galaxy-f04-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Samsung Galaxy F04 Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-15-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 15 without Passcode or Face ID | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-preservation-in-audio-how-ffmpeg-handles-originality/"><u>In 2024, Preservation in Audio  How FFmpeg Handles Originality</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-safeguard-yourself-from-oculus-discomfort/"><u>In 2024, Safeguard Yourself From Oculus Discomfort</u></a></li>
+<li><a href="https://extra-information.techidaily.com/refining-photos-the-step-by-step-guide-to-clean-edges-on-photopea/"><u>Refining Photos  The Step-by-Step Guide to Clean Edges on Photopea</u></a></li>
+<li><a href="https://fox-info.techidaily.com/stepwise-guide-for-powerpoints-speech-to-text-functionality-for-2024/"><u>Stepwise Guide for PowerPoint's Speech-to-Text Functionality for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/understanding-consumer-behavior-a-guide-for-market-researchers-for-2024/"><u>Understanding Consumer Behavior  A Guide for Market Researchers for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/what-you-want-to-know-about-two-factor-authentication-for-icloud-on-your-apple-iphone-xr-by-drfone-ios/"><u>What You Want To Know About Two-Factor Authentication for iCloud On your Apple iPhone XR</u></a></li>
+</ul></div>

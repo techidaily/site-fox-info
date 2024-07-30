@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Crafting Visuals in AE  Selecting Excellent Plugin Choices\""
-date: 2024-07-12T11:19:46.572Z
-updated: 2024-07-13T11:19:46.572Z
+date: 2024-07-29T07:14:00.391Z
+updated: 2024-07-30T07:14:00.391Z
 tags: 
   - screen-recording
   - ai video
@@ -42,8 +42,14 @@ Link: <https://aescripts.com/iexpressions/>
 
 If you want to effectively use the After Effects expressions even if you are not familiar with coding, iExpressions 2 is the text plugin to consider. It comes with 22 ready-to-use iExpressions that you can easily customize to fit into your project and it is so easy to use.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![iexpression 2 plugin](https://images.wondershare.com/filmora/article-images/2022/07/iexpression-2-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ## TextBox
 
 Link: <https://aescripts.com/textbox/>
@@ -52,6 +58,9 @@ If you want to create the perfect shape behind your text, then TextBox is a good
 
 ![text box plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-box-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Font Manager
 
 Link: <https://aescripts.com/font-manager/>
@@ -60,6 +69,9 @@ Font Manager is an After Effects text plugin that is useful when creating and wo
 
 ![font manager plugin](https://images.wondershare.com/filmora/article-images/2022/07/font-manager-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Cartoon Moblur
 
 Link: <https://www.toolfarm.com/buy/plugin%5Feverything%5Fcartoon%5Fmoblur>
@@ -68,20 +80,32 @@ This is the most ideal plugin to choose when you want to add motion trail to the
 
 ![cartoon moblur plugin](https://images.wondershare.com/filmora/article-images/2022/07/cartoon-moblur-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## Shadow Studio
 
 If you are looking for shadow styles that will go very well with your project, Shadow Studio is a good plugin to get. It offers you a wide variety of shadow styles including radial, inner, soft, and long shadows. Most people find it an easier and more affordable way to add soft shadows as compared to traditional methods like raytracing. It is also quite easy to use, meaning that shadow effects that would take hours to complete can be done in a matter of minutes.
 
 ![shadow studio plugin](https://images.wondershare.com/filmora/article-images/2022/07/shadow-studio-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Texts Animation Bundle
 
 Link: <https://aedownload.com/download-texts-animation-bundle-free-videohive/>
 
 This is a bundle of more than 80 different templates to add text effects to any text in After Effects. All the templates in the bundle are easily customizable and the plugin is very easy to use, allowing you to create amazing text effects in just a few clicks. The templates are modeled from various titles, quotes, and stories, so there is a little bit of something for everyone. Plus, the bundle gets constant updates and you are likely to get new templates with each update.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ![texts animation bundle plugin](https://images.wondershare.com/filmora/article-images/2022/07/texts-animation-bundle-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Artificial Intelligence Titles
 
 Link: <https://videohive.net/item/ait-artificial-intelligence-titles/22124640?s%5Frank=1>
@@ -90,12 +114,18 @@ The Artificial Intelligence Titles is an After Effects text plugin that is desig
 
 ![artificial intelligence titles plugin](https://images.wondershare.com/filmora/article-images/2022/07/artificial-intelligence-titles-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Text Library
 
 Link: <https://videohive.net/item/text-library-handy-text-animations/21932974>
 
 This is another great text animation bundle with different options for just about any kind of project. But unlike other plugin bundles that only have a few effects to choose from, Text Library has thousands of templates to choose from. Once you have selected the template that you would like to use, you also get the option to customize the template to suit your project. You can customize the text, size, duration of the animation, and color. It is easy to use and is constantly updated to introduce even more templates with each update.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![text library plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-library-plugin.jpg)
 
 ## Conclusion
@@ -133,3 +163,40 @@ On its own After Effects comes with so many post-production effects and features
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-amplify-your-influence-an-instagram-guide/"><u>[New] 2024 Approved  Amplify Your Influence  An Instagram Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-harnessing-household-light-use-of-outdoor-elements/"><u>[New] 2024 Approved  Harnessing Household Light  Use of Outdoor Elements</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-choosing-the-right-display-tvs-vs-projectors-in-a-4k-era/"><u>[New] Choosing the Right Display  TVs vs Projectors in a 4K Era</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-elevate-your-visual-narrative-with-top-ae-text-configurations/"><u>[New] Elevate Your Visual Narrative with Top AE Text Configurations</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-essential-vr-gear-for-aerial-devices-for-2024/"><u>[New] Essential VR Gear for Aerial Devices for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-fine-tune-your-virtual-interaction-with-close-up-google-meet-tips/"><u>[New] Fine-Tune Your Virtual Interaction with Close-Up Google Meet Tips</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-a-guide-to-pinpointing-a-list-video-creators/"><u>[New] In 2024, A Guide to Pinpointing A-List Video Creators</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-the-ultimate-surveillance-avoidance-tips-for-instagrams-livestreams/"><u>[New] In 2024, The Ultimate Surveillance Avoidance Tips for Instagram's Livestreams</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-insights-on-effective-spotify-ad-targeting-for-2024/"><u>[New] Insights on Effective Spotify Ad Targeting for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-revealing-hidden-aspects-in-minecraft-for-2024/"><u>[New] Revealing Hidden Aspects in Minecraft for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-unleash-marketing-potential-with-unpacked-plans/"><u>[New] Unleash Marketing Potential with Unpacked Plans</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-elevate-your-data-unveiling-top-cloud-providers/"><u>[Updated] 2024 Approved  Elevate Your Data  Unveiling Top Cloud Providers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-comprehensive-strategies-for-windows-media-players-audio-operations-for-2024/"><u>[Updated] Comprehensive Strategies for Windows Media Player's Audio Operations for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-essential-speedster-games-for-pcandroid-devices/"><u>[Updated] Essential Speedster Games for PC/Android Devices</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-exclusive-action-cam-colorization-top-15-luts-to-enhance-cinematography/"><u>[Updated] In 2024, Exclusive Action Cam Colorization  Top 15 LUTs to Enhance Cinematography</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-shadow-bidders-arena-virtual-artifacts-of-anonymity-for-2024/"><u>[Updated] The Shadow Bidders' Arena  Virtual Artifacts of Anonymity for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-poco-m6-pro-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Poco M6 Pro 5G Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/close-up-communication-the-art-of-zoom-on-teams/"><u>Close-Up Communication  The Art of Zoom on Teams</u></a></li>
+<li><a href="https://fox-info.techidaily.com/elevating-podcast-reputation-logo-design-principles-for-2024/"><u>Elevating Podcast Reputation  Logo Design Principles for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/from-camera-roll-to-youtube-the-ultimate-uploading-guide-for-2024/"><u>From Camera Roll to YouTube  The Ultimate Uploading Guide for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-nokia-c02-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Nokia C02? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-xiaomi-13t-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Xiaomi 13T Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-resolve-itel-p55t-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Itel P55T Screen Not Working | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-15-pro-max-to-android-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 15 Pro Max To Android devices? | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-audiences-choice-in-drama-writings/"><u>In 2024, Audience's Choice in Drama Writings</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-gently-reducing-volume-level-in-fl-beats/"><u>In 2024, Gently Reducing Volume Level in FL Beats</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-podcast-openings-unveiled-scripted-appeals/"><u>In 2024, Podcast Openings Unveiled  Scripted Appeals</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-quick-and-fun-make-a-meme-with-kinemaster/"><u>In 2024, Quick & Fun  Make a Meme with KineMaster</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-the-path-to-personalization-adjusting-snapchat-videos-pace/"><u>In 2024, The Path to Personalization  Adjusting Snapchat Videos' Pace</u></a></li>
+<li><a href="https://techidaily.com/is-your-oppo-a2-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Oppo A2 working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-the-art-of-sound-manipulation-creating-engaging-audio-timelines-using-keyframes-in-adobe-premiere-pro-mac/"><u>New The Art of Sound Manipulation Creating Engaging Audio Timelines Using Keyframes in Adobe Premiere Pro (Mac)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/prime-cutting-edge-cameras-for-sports-and-adventure/"><u>Prime Cutting-Edge Cameras for Sports & Adventure</u></a></li>
+<li><a href="https://fox-info.techidaily.com/sound-excellence-on-a-shoestring-superior-asmr-mics-affordably/"><u>Sound Excellence on a Shoestring - Superior ASMR Mics Affordably</u></a></li>
+</ul></div>

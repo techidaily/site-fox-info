@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Role of B Roll in Professional Editing"
-date: 2024-07-12T11:20:45.891Z
-updated: 2024-07-13T11:20:45.891Z
+date: 2024-07-29T07:14:44.270Z
+updated: 2024-07-30T07:14:44.270Z
 tags: 
   - screen-recording
   - ai video
@@ -44,28 +44,46 @@ On the other hand, cutaways can show how different people react to what is being
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. Archival b roll footage
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Visual detail b roll footage
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Storytelling b roll footage
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 4\. Undirected b roll footage
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ### 5\. Atmospheric b roll footage
 
 When you are sharing a narrative that has been told in the past or that has historical significance, incorporating archival material into your video gives your audience the opportunity to see the story as it occurred at the time. This is especially useful when you are discussing a narrative that has been experienced in the past or that has futuristic relevance.
 
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 6\. Pick-up shots
 
 A pick-up is a tiny shot added to previously captured material. Re-shoots involve redoing entire scenes. Both types of shots are commonly added during film editing to fix, logic, continuity, or quality flaws. These photos happen a while after the sets have been taken down, clothes and props stowed, and the actors and crew have gone on to new projects.
@@ -111,3 +129,40 @@ We sincerely hope that this post will be of use to you in making your films more
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/new-ace-video-editing-with-kinemaster-skills-plus-10-leading-online-competitors/"><u>[New] Ace Video Editing with KineMaster Skills + 10 Leading Online Competitors</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-insight-into-highlighted-video-discussion-threads/"><u>[Updated] 2024 Approved  Insight Into Highlighted Video Discussion Threads</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-apex-alchemy-choosing-the-best-laptops-for-video-wizards/"><u>2024 Approved  Apex Alchemy  Choosing the Best Laptops for Video Wizards</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-crafting-success-while-catching-up-on-all-the-latest-talks/"><u>2024 Approved  Crafting Success While Catching Up on All the Latest Talks</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-dazzling-depths-expert-tips-for-video-brightness/"><u>2024 Approved  Dazzling Depths  Expert Tips for Video Brightness</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-discover-10-premier-stock-source-for-vectors/"><u>2024 Approved  Discover 10 Premier Stock Source for Vectors</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-elevate-your-slow-motion-on-mobile-with-these-apps/"><u>2024 Approved  Elevate Your Slow Motion on Mobile with These Apps</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-elite-selection-of-10-a-list-camera-lenses/"><u>2024 Approved  Elite Selection of 10 A-List Camera Lenses</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-essential-drawing-suites-on-windows-zero-to-high-pricing/"><u>2024 Approved  Essential Drawing Suites on Windows  Zero to High Pricing</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-flipping-the-script-on-memes-with-kinemaster/"><u>2024 Approved  Flipping the Script on Memes with KineMaster</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-palette-proficiency-expertise-through-experience/"><u>2024 Approved  Palette Proficiency  Expertise Through Experience</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-prime-selections-of-maximum-digital-safekeeping/"><u>2024 Approved  Prime Selections of Maximum Digital Safekeeping</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-proven-techniques-for-perfecting-video-aspect-ratios/"><u>2024 Approved  Proven Techniques for Perfecting Video Aspect Ratios</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-review-the-t5-eye-unleashing-potential/"><u>2024 Approved  Review  The T5 Eye, Unleashing Potential</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-selecting-sacred-melodies-a-christian-ringtones-compendium/"><u>2024 Approved  Selecting Sacred Melodies  A Christian Ringtones Compendium</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-shutter-smarts-expert-tips-for-photo-enhancement/"><u>2024 Approved  Shutter Smarts  Expert Tips for Photo Enhancement</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-sound-system-personalizations-on-ps-games/"><u>2024 Approved  Sound System Personalizations on PS Games</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-the-realm-of-melodies-where-to-get-hearing-heroes-ringtones/"><u>2024 Approved  The Realm of Melodies  Where to Get Hearing Heroes' Ringtones</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-the-unboxing-game-crafting-winning-strategies/"><u>2024 Approved  The Unboxing Game  Crafting Winning Strategies</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-transforming-unboxing-magic-7-ways/"><u>2024 Approved  Transforming Unboxing Magic  7 Ways</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-uncover-the-secrets-of-your-off-facebook-life-with-us/"><u>2024 Approved  Uncover the Secrets of Your Off-Facebook Life with Us</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-upgrading-made-easy-your-guide-to-smooth-tech-transitions/"><u>2024 Approved  Upgrading Made Easy  Your Guide to Smooth Tech Transitions</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/a-brief-overview-understanding-vr-jargon/"><u>A Brief Overview  Understanding VR Jargon</u></a></li>
+<li><a href="https://fox-info.techidaily.com/audiovid-producers-digital-space-for-2024/"><u>AudioVid Producers' Digital Space for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/best-20-non-copyrighted-pubg-image-gems/"><u>Best 20 Non-Copyrighted PUBG Image Gems</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-network-locked-xiaomi-redmi-note-12t-pro-phone-by-drfone-android/"><u>How to Unlock a Network Locked Xiaomi Redmi Note 12T Pro Phone?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-a-guide-to-securing-top-tier-images-for-free/"><u>In 2024, A Guide to Securing Top-Tier Images for Free</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-vivo-y100i-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Vivo Y100i Devices</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Motorola Razr 40 Ultra | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-lava-yuva-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Lava Yuva 3 | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/reset-itunes-backup-password-of-iphone-se-2020-prevention-and-solution-drfone-by-drfone-ios/"><u>Reset iTunes Backup Password Of iPhone SE (2020) Prevention & Solution | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/revolutionize-your-beat-matching-try-free-online-detectors-now/"><u>Revolutionize Your Beat Matching – Try Free Online Detectors Now</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/wave-goodbye-to-high-costs-enjoy-over-50-free-online-ad-options-today-for-2024/"><u>Wave Goodbye To High Costs – Enjoy Over 50 Free Online Ad Options Today for 2024</u></a></li>
+</ul></div>
