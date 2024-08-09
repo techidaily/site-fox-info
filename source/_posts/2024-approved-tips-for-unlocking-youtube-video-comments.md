@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Tips for Unlocking YouTube Video Comments\""
-date: 2024-07-12T12:51:54.887Z
-updated: 2024-07-13T12:51:54.887Z
+date: 2024-08-08T10:08:29.663Z
+updated: 2024-08-09T10:08:29.663Z
 tags: 
   - screen-recording
   - ai video
@@ -28,6 +28,9 @@ Unfortunately, when it comes to comment, YouTube can be a little clunky and time
 
 Want to become the master of moderation? Read on for everything you need to know about comments on YouTube, and get that conversation going. This is another article to help you make the best out of your YouTube channel.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## What is YouTube Comment
 
 YouTube comments are an opportunity for the site's 1.7 million unique monthly visitors to share what they love, hate or simply must troll. It's like the internet own personal Thunderdome, but while it can be a place for negativity, YouTube comments can also be a powerful opportunity for positive community building and engagement.
@@ -54,6 +57,9 @@ Each comment you leave is another reference and exposure to your brand (and a ch
 
 Step1 Below the video itself, find the comment section.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![find the comment section youtube](https://images.wondershare.com/filmora/article-images/2022/11/find-the-comment-section-youtube.jpg)
 
 Step2 Type your message in the add a comment field. (if you're writing on your phone you can tap the comment section to expand it.
@@ -76,6 +82,9 @@ Step1 Open your chosen browser, head to YouTube, then sign in to your Google/You
 
 Step2 On the YouTube homepage, click on the three horizontal parallel lines in the top-left corner. A drop down menu appears, including the trending videos of the day, your subscriptions and your settings.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ![horizontal parallel lines youtube](https://images.wondershare.com/filmora/article-images/2022/11/horizontal-parallel-lines-youtube.jpg)
 
 Step3 From the drop down menu, select “History”.
@@ -88,6 +97,9 @@ Step5 To edit your comment, click on the “vertical ellipsis” (three vertical
 
 Step6 Make the necessary edits and choose “Save”.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## Highlighted Comments and Replies on YouTube
 
 Among the comments you see on a video, you might notice some that YouTube has labeled “Highlighted Comment.” that label is specific to you, and only appears in your comments list. YouTube that you have a particular interest in a section of comments.
@@ -112,8 +124,14 @@ Retrieve a comment so that you can share it with others outside of YouTube.
 
 Comments history also contains the link to the video where you've left the comment along with the date and time when the comment was made. Clicking on this link will open the video page with your comment highlighted at the top of the comment section.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 ![delete unwanted youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/delete-unwanted-youtube-comments.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 YouTube allows users to view and edit all the comments they have made on YouTube videos on both desktop and mobile apps. You can also edit or delete the comment if you so wish However you cannot delete any comments you made on YouTube from the Google my Activity page. It can be done from within the YouTube app only.
@@ -149,3 +167,45 @@ One way you can encourage people to leave comments on your videos is to finish t
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-brief-but-impactful-which-social-platform-leads-for-short-video-content/"><u>[New] 2024 Approved  Brief but Impactful  Which Social Platform Leads for Short Video Content?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-boost-your-gaming-presence-with-easy-and-cost-effective-character-voice-alteration-in-free-fire/"><u>[New] Boost Your Gaming Presence with Easy and Cost-Effective Character Voice Alteration in Free Fire</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-8-hit-virtual-reality-titles-for-oculus-enthusiasts/"><u>[New] In 2024, 8 Hit Virtual Reality Titles for Oculus Enthusiasts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-essentials-of-apple-podcast-catalog-integration/"><u>[New] In 2024, Essentials of Apple Podcast Catalog Integration</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-revolutionary-rider-helmet-cams-top-picks-for-23/"><u>[New] In 2024, Revolutionary Rider Helmet Cams - Top Picks for '23</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-skys-best-hd-pics-top-website-guide/"><u>[New] In 2024, Sky's Best HD Pics  Top Website Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-the-beginners-pathway-to-personalizing-your-game-voice-free-in-free-fire/"><u>[New] In 2024, The Beginner's Pathway to Personalizing Your Game Voice, FREE in Free Fire</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-jestjungle-your-gateway-to-universal-comedy/"><u>[New] JestJungle  Your Gateway to Universal Comedy</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-tiktok-captioning-guide-adding-descriptive-texts/"><u>[Updated] 2024 Approved  TikTok Captioning Guide  Adding Descriptive Texts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-visual-narrative-magic-mastering-the-art-of-fading-edits/"><u>[Updated] 2024 Approved  Visual Narrative Magic  Mastering the Art of Fading Edits</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-discoemote-studio-crafting-the-ultimate-emojis/"><u>[Updated] DiscoEmote Studio - Crafting the Ultimate Emojis</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-discover-the-art-of-clear-photo-edits-with-picsart-bg-removal-for-2024/"><u>[Updated] Discover the Art of Clear Photo Edits with Picsart Bg Removal for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-earnings-escalation-via-youtube-channel-initiatives/"><u>[Updated] Earnings Escalation via YouTube Channel Initiatives</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-future-of-interaction-with-microsofts-hololens-review/"><u>[Updated] In 2024, The Future of Interaction with Microsoft's HoloLens Review</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-subscribers-guide-to-effective-dialogue-on-youtube/"><u>[Updated] In 2024, The Subscriber's Guide to Effective Dialogue on YouTube</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-unrestricted-gaming-beats-digital-download/"><u>[Updated] In 2024, Unrestricted Gaming Beats  Digital Download</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-unveiling-the-power-of-photo-editing-techniques-to-add-text-in-windowsmacos/"><u>[Updated] In 2024, Unveiling the Power of Photo Editing  Techniques to Add Text in Windows/MacOS</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-innovative-tech-the-most-advanced-5-video-recorders/"><u>[Updated] Innovative Tech  The Most Advanced 5 Video Recorders</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-secret-tips-for-stunning-sketches-and-scans-for-2024/"><u>[Updated] Secret Tips for Stunning Sketches & Scans for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-animated-adventures-easy-steps-for-snapchats-cute-filters/"><u>2024 Approved  Animated Adventures  Easy Steps for Snapchat's Cute Filters</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-grab-and-play-fb-audio-clips/"><u>2024 Approved  Grab and Play FB Audio Clips</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-the-ultimate-path-to-stunning-hdr-portraits/"><u>2024 Approved  The Ultimate Path to Stunning HDR Portraits</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Motorola Defy 2 | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/comprehensive-review-navigating-adobe-cloud-plus-comparing-rivals/"><u>Comprehensive Review  Navigating Adobe Cloud + Comparing Rivals</u></a></li>
+<li><a href="https://network-issues.techidaily.com/fix-it-focus-quick-apex-bug-busting/"><u>Fix-It Focus: Quick Apex Bug Busting</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/fixing-the-error-when-cygwin1dll-file-is-absent-or-undetected/"><u>Fixing The Error When Cygwin1.dll File Is Absent or Undetected</u></a></li>
+<li><a href="https://fox-info.techidaily.com/fostering-creativity-the-most-innovative-6-nft-services-for-2024/"><u>Fostering Creativity  The Most Innovative 6 NFT Services for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Motorola Moto G24? | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/immersive-image-editing-online-cropping-essentials/"><u>Immersive Image Editing  Online Cropping Essentials</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-quick-guide-to-samsung-galaxy-m34-5g-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Samsung Galaxy M34 5G FRP Bypass Instantly</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-revolutionizing-communication-free-top-8-srt-tools-revealed/"><u>In 2024, Revolutionizing Communication  Free Top 8 SRT Tools Revealed</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-unleash-your-creativity-10-steps-for-new-photoshop-users/"><u>In 2024, Unleash Your Creativity  10 Steps for New Photoshop Users</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-unveiling-virtual-background-magic-a-streamers-guide-to-chroma-key/"><u>In 2024, Unveiling Virtual Background Magic  A Streamer's Guide to Chroma Key</u></a></li>
+<li><a href="https://fox-info.techidaily.com/progressive-array-of-engaging-queries-for-podcasters-for-2024/"><u>Progressive Array of Engaging Queries for Podcasters for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/rethinking-ai-dependence-discover-the-6-cases-where-human-judgment-still-prevails/"><u>Rethinking AI Dependence – Discover the 6 Cases Where Human Judgment Still Prevails</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-motorola-moto-g13-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Motorola Moto G13 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/simplified-srt-transformation-from-ttml-xml-and-ssa/"><u>Simplified SRT Transformation From TTML, XML & SSA</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-2024-approved-mp3-cutter-downloadmp3-cutter-download-is-one-of-the-most-reliable-tools-for-editing-of-music-files-in-a-fast-and-friendly-way/"><u>Updated 2024 Approved MP3 CUTTER DOWNLOADMP3 Cutter Download Is One of the Most Reliable Tools for Editing of Music Files in a Fast and Friendly Way</u></a></li>
+</ul></div>

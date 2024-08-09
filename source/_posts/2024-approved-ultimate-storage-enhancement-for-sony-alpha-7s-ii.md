@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Ultimate Storage Enhancement for Sony Alpha 7S II\""
-date: 2024-07-12T12:53:00.155Z
-updated: 2024-07-13T12:53:00.155Z
+date: 2024-08-08T10:07:28.120Z
+updated: 2024-08-09T10:07:28.120Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,9 @@ thumbnail: https://thmb.techidaily.com/c6b4aa7955ba2d8b8f78045fdb4fec883a94ff6f2
 
 # Best Memory Card for Sony A7S II
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -30,6 +33,9 @@ thumbnail: https://thmb.techidaily.com/c6b4aa7955ba2d8b8f78045fdb4fec883a94ff6f2
 
  The article below can help you to select right memory cards for your Sony A7S II camera:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## How to choose the right memory card for your Sony A7S II
 
 #### Section 1: UHS (Ultra High Speed) Card Classification
@@ -67,6 +73,9 @@ thumbnail: https://thmb.techidaily.com/c6b4aa7955ba2d8b8f78045fdb4fec883a94ff6f2
 * Note that there is no money saving deal in memory card price ranges. When you go to buy a 128GB memory card it will naturally cost same as if you buy two 64GB cards.
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Best Memory Cards for Sony A7S II
 
 #### 1. Sony 64GB High Performance Class 10 UHS-1/U3 SDXC
@@ -105,6 +114,9 @@ thumbnail: https://thmb.techidaily.com/c6b4aa7955ba2d8b8f78045fdb4fec883a94ff6f2
 * Extreme Pro is compatible with SDXC devices.
 * Ensures perfect results for Full HD, 3D and 4K resolution levels.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -131,3 +143,42 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-explore-creativity-top-8-innovative-editing-tools-for-iphone-android/"><u>[New] Explore Creativity  Top 8 Innovative Editing Tools for iPhone, Android</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-how-to-skillfully-secure-and-save-gif-images-from-facebooks-domain/"><u>[New] How To Skillfully Secure and Save GIF Images From Facebook's Domain</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-pushing-boundaries-with-innovative-instagram-content/"><u>[New] In 2024, Pushing Boundaries with Innovative Instagram Content</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-channel-upgrade-how-reaching-500-viewers-propelts-monetization/"><u>[Updated] Channel Upgrade  How Reaching 500 Viewers Propelts Monetization</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-world-meal-mastery-favorite-international-creations/"><u>[Updated] In 2024, World Meal Mastery  Favorite International Creations</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-speeding-up-your-periscope-streams-effortlessly/"><u>[Updated] Speeding Up Your Periscope Streams Effortlessly</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-strategic-hashing-techniques-for-success-in-youtube-game-vids-for-2024/"><u>[Updated] Strategic Hashing Techniques for Success in YouTube Game Vids for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-timeless-stop-motion-films-a-celebratory-15-list-for-2024/"><u>[Updated] Timeless Stop-Motion Films - A Celebratory 15 List for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-cost-effective-cumulus-vault-for-colossal-archives/"><u>2024 Approved  Cost-Effective Cumulus Vault for Colossal Archives</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-tier-5-speedy-screen-recorders/"><u>2024 Approved  Tier 5 Speedy Screen Recorders</u></a></li>
+<li><a href="https://games-able.techidaily.com/audiophiles-guide-to-in-ear-monitors-for-gamers/"><u>Audiophiles' Guide to In-Ear Monitors for Gamers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/bringing-realities-closer-google-cardboard-vs-samsung-gear-for-2024/"><u>Bringing Realities Closer  Google Cardboard Vs. Samsung Gear for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/captivate-audiences-gain-views-boosting-engagement-in-tiktok-unboxing-videos/"><u>Captivate Audiences, Gain Views  Boosting Engagement in TikTok Unboxing Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/capturing-every-view-not-just-a-flat-slice-of-reality/"><u>Capturing Every View, Not Just a Flat Slice of Reality</u></a></li>
+<li><a href="https://fox-info.techidaily.com/capturing-the-illusion-iphone-tricks-for-reflection-photography/"><u>Capturing the Illusion  IPhone Tricks for Reflection Photography</u></a></li>
+<li><a href="https://fox-info.techidaily.com/crafting-characters-animation-basics-in-wmm/"><u>Crafting Characters  Animation Basics in WMM</u></a></li>
+<li><a href="https://fox-info.techidaily.com/creative-use-of-secondary-camera-work/"><u>Creative Use of Secondary Camera Work</u></a></li>
+<li><a href="https://fox-info.techidaily.com/curated-collection-saving-snapchat-ringtone-audio/"><u>Curated Collection  Saving Snapchat Ringtone Audio</u></a></li>
+<li><a href="https://fox-info.techidaily.com/cutting-edge-mini-drones-for-the-savvy-buyer/"><u>Cutting-Edge Mini Drones for the Savvy Buyer</u></a></li>
+<li><a href="https://fox-info.techidaily.com/daily-revenue-of-podcasters-worldwide/"><u>Daily Revenue of Podcasters Worldwide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/demystifying-facebooks-off-page-activity-review/"><u>Demystifying Facebook's Off-Page Activity Review</u></a></li>
+<li><a href="https://fox-info.techidaily.com/design-and-share-your-unique-humor-piece/"><u>Design and Share Your Unique Humor Piece</u></a></li>
+<li><a href="https://fox-info.techidaily.com/detailed-walkthrough-implementing-microsoft-azure-speech-services-for-2024/"><u>Detailed Walkthrough  Implementing Microsoft Azure Speech Services for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/digital-footprints-securing-date-information-in-visuals/"><u>Digital Footprints  Securing Date Information in Visuals</u></a></li>
+<li><a href="https://fox-info.techidaily.com/discover-the-best-21-hdmi-monitors-ranked-by-quality-for-2024/"><u>Discover the Best 2.1 HDMI Monitors Ranked by Quality for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/discovering-vr-a-concise-explanation-for-all/"><u>Discovering VR  A Concise Explanation for All</u></a></li>
+<li><a href="https://fox-info.techidaily.com/distinguished-directory-top-ranked-websites-for-snatching-snapalert-melodies/"><u>Distinguished Directory  Top-Ranked Websites for Snatching SnapAlert Melodies</u></a></li>
+<li><a href="https://fox-info.techidaily.com/drone-footage-mastery-editorial-software-hierarchy-unlocked/"><u>Drone Footage Mastery  Editorial Software Hierarchy Unlocked</u></a></li>
+<li><a href="https://fox-info.techidaily.com/dynamic-palette-skills-in-color-adjustment-for-2024/"><u>Dynamic Palette  Skills in Color Adjustment for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/dynamic-panzoid-assembly-resources-for-2024/"><u>Dynamic Panzoid Assembly Resources for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/efficient-multi-tasking-activating-and-disabling-pip-in-safari-for-2024/"><u>Efficient Multi-Tasking  Activating & Disabling PIP in Safari for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-a-oneplus-nord-ce-3-lite-5g-easily-by-drfone-android/"><u>In 2024, How To Unlock a OnePlus Nord CE 3 Lite 5G Easily?</u></a></li>
+<li><a href="https://driver-install.techidaily.com/secure-and-easy-tp-link-wi-fi-drivers-for-windows-downloads/"><u>Secure & Easy TP Link Wi-Fi Drivers for Windows Downloads</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/switch-strikes-top-10-fighting-game-picks-for-2024/"><u>Switch Strikes  Top 10 Fighting Game Picks for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-6-best-free-online-audio-editor-to-use-100-free-for-2024/"><u>Updated 6 Best Free Online Audio Editor to Use (100 Free) for 2024</u></a></li>
+</ul></div>

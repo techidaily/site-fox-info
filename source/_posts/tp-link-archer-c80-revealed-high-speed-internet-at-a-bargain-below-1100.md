@@ -1,0 +1,192 @@
+---
+title: "TP-Link Archer C80 Revealed: High-Speed Internet at a Bargain Below $1([\\$]100)"
+date: 2024-08-08T10:24:34.556Z
+updated: 2024-08-09T10:24:34.556Z
+categories:
+  - BestProducts
+description: "This Article Describes TP-Link Archer C80 Revealed: High-Speed Internet at a Bargain Below $1([\\$]100)"
+excerpt: "This Article Describes TP-Link Archer C80 Revealed: High-Speed Internet at a Bargain Below $1([\\$]100)"
+thumbnail: https://thmb.techidaily.com/88c6b83c6e65598f301ec5b1e8fb9b13fd16a0c81d9ff03972a4b84d06ac7c03.jpg
+---
+
+## Excellent Value 30 TV Antenna: Top Performer at a Bargain
+
+4.2
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Mohu Leaf 30
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
+![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/AyUAqIhKcHESYKlEswC1pUtS1Po=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
+
+Lifewire / Jonno Hill
+
+ What We Like
+
+* Nice build quality
+* Simple design
+* Easy setup
+* Good performance
+
+ What We Don't Like
+
+* Limited range
+* Cheaper options exist
+
+ The Mohu Leaf 30 TV Antenna was among the more affordable antennas tested but didn’t offer the best performance for anyone beyond city limits.
+
+[View On Amazon](https://www.amazon.com/Mohu-Television-Paper-thin-Performance-MH-110598/dp/B00HSMK580/?tag=lifewire-onsite-prod-20&ascsubtag=4843108%7Cnc1d14f8f39df4c2dac4b8d8ca33f9ac217%7CB00HSMK580) [View On Walmart $48](https://www.walmart.com/ip/Mohu-Leaf-30-Flat-30-Mile-Indoor-HDTV-Antenna/36126033) [View On Home Depot $41](https://www.homedepot.com/p/Mohu-Leaf-30-HDTV-Indoor-Antenna-MH-110583/205146429?slfpid=3)
+
+4.2
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Mohu Leaf 30
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/xXK31GRLX2h6w0vFc9K2Ps_ufqk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
+
+Lifewire / Jonno Hill
+
+[View On Amazon](https://www.amazon.com/Mohu-Television-Paper-thin-Performance-MH-110598/dp/B00HSMK580/?tag=lifewire-onsite-prod-20&ascsubtag=4843108%7Cnc1d14f8f39df4c2dac4b8d8ca33f9ac217%7CB00HSMK580) [View On Walmart $48](https://www.walmart.com/ip/Mohu-Leaf-30-Flat-30-Mile-Indoor-HDTV-Antenna/36126033) [View On Home Depot $41](https://www.homedepot.com/p/Mohu-Leaf-30-HDTV-Indoor-Antenna-MH-110583/205146429?slfpid=3)
+
+ in this article
+
+ Expand
+
+* [Design](https://www.lifewire.com/#toc-design-basic-but-effective)
+* [Setup](https://www.lifewire.com/#toc-setup-dead-simple)
+* [Performance](https://www.lifewire.com/#toc-performance-acceptable-but-not-incredible)
+* [Range](https://www.lifewire.com/#toc-range-fairly-limited)
+* [Price](https://www.lifewire.com/#toc-price-excellent-for-the-performance)
+* [Competition](https://www.lifewire.com/#toc-mohu-leaf-30-tv-antenna-vs-mohu-blade-tv-antenna)
+* [Final Verdict](https://www.lifewire.com/#toc-final-verdict)
+* [Specs](https://www.lifewire.com/#toc-full-spec)
+
+ _We purchased Mohu Leaf 30 TV Antenna so our expert reviewer could thoroughly test and assess it. Keep reading for our full product review._
+
+ The Mohu Leaf 30 TV Antenna is a fairly barebones unpowered antenna that utilizes the same paper-thin rectangular design that can be found on some of the[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) on the market. This design comes with its share of pros (easy setup, not too much clutter) and cons (limited performance, can’t stand on its own).
+
+ Mohu might not be breaking new ground with this antenna, but it’s more than sufficient for most city dwellers and perhaps even a few buyers in the suburbs with a relatively unobstructed path to the broadcast source.
+
+## **Design: Basic but effective**
+
+ You can find a dozen identical versions of this unpowered antenna by doing a quick search for TV antennas online, and not for no reason. It’s a very uncomplicated design, doesn’t take up too much space, and doesn’t have a lot of points of failure. The 9x11.5-inch rectangular antenna surface is thin, pliable, and features two small punch-holes towards the top which can be used to pin the antenna to an appropriate surface.
+
+ The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
+
+## **Setup: Dead simple**
+
+ Setup of the Mohu Leaf 30 TV Antenna is as easy as it gets with antennas. Since there is no external power to connect, you only need to worry about connecting the included coaxial cable to the device and to your TV and using the included pins or adhesive tabs to affix the device to a surface. Ease of setup is one of the benefits of a non-amplified antenna such as the Mohu Leaf.
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **Performance: Acceptable but not incredible**
+
+ The Mohu Leaf 30 TV Antenna wasn’t the highest performing antenna that I tested, even among similar unpowered antennas. In my channel acquisition test, the Leaf picked up 56 channels on average across all the iterations performed.
+
+ My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
+
+## **Range: Fairly limited**
+
+ The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
+
+## **Price: Excellent for the performance**
+
+ The Mohu Leaf 30 TV Antenna has a 90-day rolling average price of $29 on Amazon, which puts it on the more affordable end of the spectrum. The price definitely feels appropriate for the performance and feature set, but it’s not an all-out bargain.
+
+ Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
+## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
+
+ Mohu also makes the[Mohu Blade](https://www.lifewire.com/mohu-blade-tv-antenna-review-4843106) , a powered antenna with a slightly more unique design for a minor premium of $40\. This antenna managed to reliably acquire an average of 69 channels in my tests, a big leap from the performance of the Mohu Leaf 30 TV Antenna. That having been said, the Blade does require a power source, and installation is slightly more cumbersome than that of the Leaf. If I wasn’t having any trouble getting the channels I watch with the Leaf, I probably wouldn’t upgrade to the Blade personally.
+
+ Final Verdict
+
+**No fuss, good value.**
+ The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
+
+## Specs
+
+* Product Name  Leaf 30
+* Product Brand  Mohu
+* Price  $32.00
+* Release Date  March 2011
+* Product Dimensions  12.5 x 11.7 x 1.5 in.
+* Color  White
+* Powered  No
+* Range  30 miles
+* Warranty  One year
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-from-facebook-to-hd-how-to-convert-videos-to-premium-mp4-format-free/"><u>[New] 2024 Approved  From Facebook to HD  How To Convert Videos to Premium MP4 Format (Free)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-functionality-of-unmanned-aerial-vehicles-explored/"><u>[Updated] 2024 Approved  The Functionality of Unmanned Aerial Vehicles Explored</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-secrets-to-saving-and-sharing-your-roblox-experience-on-a-mac/"><u>2024 Approved  Secrets to Saving & Sharing Your Roblox Experience on a Mac</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/beam-yourself-into-vr-android-tips-and-tricks/"><u>Beam Yourself Into VR  Android Tips & Tricks</u></a></li>
+<li><a href="https://fox-info.techidaily.com/best-memes-with-a-humor-shaper-for-2024/"><u>Best Memes with a Humor Shaper for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/best-professional-360-cam-gear/"><u>Best Professional 360° Cam Gear</u></a></li>
+<li><a href="https://fox-info.techidaily.com/best-in-class-writing-workshop-for-2024/"><u>Best-in-Class Writing Workshop for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/boosting-patient-engagement-through-fb-health-ads/"><u>Boosting Patient Engagement Through FB Health Ads</u></a></li>
+<li><a href="https://fox-info.techidaily.com/boosting-playback-speed-guidelines-for-secure-sound-enhancement-for-2024/"><u>Boosting Playback Speed  Guidelines for Secure Sound Enhancement for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/build-haha-images-for-2024/"><u>Build Haha Images for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/building-a-robust-spotify-advertising-strategy-for-2024/"><u>Building a Robust Spotify Advertising Strategy for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/captivating-books-in-video-form/"><u>Captivating Books in Video Form</u></a></li>
+<li><a href="https://fox-info.techidaily.com/capturing-cadence-leading-cameras-for-extended-shutter-times/"><u>Capturing Cadence  Leading Cameras for Extended Shutter Times</u></a></li>
+<li><a href="https://fox-info.techidaily.com/capturing-the-thrill-hero5-black-against-hero4-silver/"><u>Capturing the Thrill  Hero5 Black Against Hero4 Silver</u></a></li>
+<li><a href="https://fox-info.techidaily.com/capturing-the-unseen-gopro-hero-vs-nikons-km-170/"><u>Capturing the Unseen  GoPro HERO vs Nikon's KM-170</u></a></li>
+<li><a href="https://fox-info.techidaily.com/celebrating-soundtracks-the-ultimate-anime-list/"><u>Celebrating Soundtracks  The Ultimate Anime List</u></a></li>
+<li><a href="https://fox-info.techidaily.com/chronicles-that-captivate-top-youtube-storytelling-channels-2023/"><u>Chronicles that Captivate  Top YouTube Storytelling Channels 2023</u></a></li>
+<li><a href="https://fox-info.techidaily.com/compact-cost-free-livestreaming-solutions-listed-in-a-nutshell/"><u>Compact, Cost-Free LiveStreaming Solutions Listed in a Nutshell</u></a></li>
+<li><a href="https://fox-info.techidaily.com/complete-scrutiny-of-cutmatic-editor/"><u>Complete Scrutiny of CutMatic Editor</u></a></li>
+<li><a href="https://fox-info.techidaily.com/crafting-star-stirred-stories-for-your-whatsapp-bio-for-2024/"><u>Crafting Star-Stirred Stories for Your WhatsApp Bio for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/cutting-edge-camera-replacements-for-your-samsung-gear-360/"><u>Cutting-Edge Camera Replacements for Your Samsung Gear 360</u></a></li>
+<li><a href="https://fox-info.techidaily.com/design-dynamics-the-role-of-color-integration/"><u>Design Dynamics  The Role of Color Integration</u></a></li>
+<li><a href="https://fox-info.techidaily.com/dialogue-and-direction-crafting-a-screenplay-art-for-2024/"><u>Dialogue and Direction  Crafting a Screenplay Art for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/digital-broadcasting-service-review-for-2024/"><u>Digital Broadcasting Service Review for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/digital-chimes-discover-the-top-tone-websites/"><u>Digital Chimes  Discover the Top Tone Websites</u></a></li>
+<li><a href="https://fox-info.techidaily.com/digital-content-upgrade-changing-numbers-on-tiktok-quickly/"><u>Digital Content Upgrade  Changing Numbers on TikTok Quickly</u></a></li>
+<li><a href="https://fox-info.techidaily.com/disc-replay-a-look-at-the-goofy-giggle-fest-for-2024/"><u>Disc Replay  A Look at 'The Goofy Giggle-Fest' For 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/discover-polarrs-secret-ultimate-guide-to-digital-image-editing/"><u>Discover Polarr’s Secret  Ultimate Guide to Digital Image Editing</u></a></li>
+<li><a href="https://fox-info.techidaily.com/discover-the-best-practices-to-master-snapchats-video-timeline-for-2024/"><u>Discover the Best Practices to Master Snapchat's Video Timeline for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/dissecting-adobe-lightroom-for-android-in-detail/"><u>Dissecting Adobe Lightroom for Android in Detail</u></a></li>
+<li><a href="https://fox-info.techidaily.com/dissecting-ffmpegs-capabilities-for-pure-sound-formats-for-2024/"><u>Dissecting FFmpeg's Capabilities for Pure Sound Formats for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/dive-into-multi-tasking-mastery-with-chromes-pip-feature-for-2024/"><u>Dive Into Multi-Tasking Mastery with Chrome's PIP Feature for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/dynamic-dyes-mastery-in-color-manipulation-for-2024/"><u>Dynamic Dyes  Mastery in Color Manipulation for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/efficiently-traverse-youtubes-votes-and-reaction-space/"><u>Efficiently Traverse YouTube’s Votes and Reaction Space</u></a></li>
+<li><a href="https://fox-info.techidaily.com/elevate-your-phones-alerts-personalizing-ringtones-and-sounds-on-android-for-2024/"><u>Elevate Your Phone's Alerts  Personalizing Ringtones & Sounds on Android for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/enhance-gaming-performance-on-acer-predator-helios-300-with-driver-updates/"><u>Enhance Gaming Performance on Acer Predator Helios 300 with Driver Updates</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-elevate-your-instagram-game-scouting-the-8-top-post-schedulers/"><u>In 2024, Elevate Your Instagram Game  Scouting the 8 Top Post Schedulers</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-redmi-13c-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Xiaomi Redmi 13C Bootloader Easily</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-igtv-vs-youtube-should-video-content-creators-use-one-platform-or-the-other/"><u>In 2024, IGTV VS YouTube  Should Video Content Creators Use One Platform or The Other?</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/revamping-graphics-the-ultimate-guide-to-updating-ati-drivers-on-a-windows-machine/"><u>Revamping Graphics: The Ultimate Guide to Updating ATI Drivers on a Windows Machine</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-infinix-hot-40i-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Infinix Hot 40i Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-lava-blaze-2-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Lava Blaze 2 without Them Knowing | Dr.fone</u></a></li>
+</ul></div>
