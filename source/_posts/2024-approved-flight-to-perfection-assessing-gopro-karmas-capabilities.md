@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Flight to Perfection  Assessing GoPro Karma's Capabilities\""
-date: 2024-07-12T12:44:08.507Z
-updated: 2024-07-13T12:44:08.507Z
+date: 2024-08-15T19:44:45.109Z
+updated: 2024-08-16T19:44:45.109Z
 tags: 
   - screen-recording
   - ai video
@@ -51,6 +51,9 @@ thumbnail: https://thmb.techidaily.com/d6f225de23330f252c6d5195ffc58e836dfeb5e08
 
  The overall verdict is that this is a fantastic drone for capturing stunning images but it doesn't have the easy flying mode or the battery life to compete with some of the best drones available at the same price point. Although you might have to sacrifice a bit in image quality when compared to a GoPro camera with some competitors, it's often worth it for value knowing that you can capture the shot and maintain control over your drone.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ## Detailed review for GoPro Karma
 
 #### 1\.  Price
@@ -86,6 +89,9 @@ thumbnail: https://thmb.techidaily.com/d6f225de23330f252c6d5195ffc58e836dfeb5e08
 #### 5\.  Controller
 
 ![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 
  One thing that the GoPro Karma did especially well was creating a beautiful controller. The RC controller is relatively small but it feels exactly like playing a videogame with plenty of functions and no need to have a compatible device to use the drone. The other extremely strong point is the camera. Nobody can build a great outdoor camera that is it as resilient as a GoPro with the Hero 5 Black version of this drone capable of shooting in 4K with an astounding video quality, you can catch some amazing video as well as incredible still images on this drone.
 
@@ -94,6 +100,9 @@ thumbnail: https://thmb.techidaily.com/d6f225de23330f252c6d5195ffc58e836dfeb5e08
 Overall, the GoPro Karma is a fairly strong showing for a drone. Although it can be expensive when compared to the specifications on some of the other drones, if you do have some experience flying drones and you are looking for a great image quality, this could be the choice for you especially if you are looking for a portable drone.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -121,3 +130,51 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-converting-video-content-from-twitter-to-an-audiophile-written-mp3-format/"><u>[New] 2024 Approved  Converting Video Content From Twitter to an Audiophile' Written MP3 Format</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-crafting-conceptions-unveiling-the-worlds-best-schools-for-stories-top-8/"><u>[New] 2024 Approved  Crafting Conceptions  Unveiling the World's Best Schools for Stories (Top 8)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-enhancing-televisual-engagement-through-fb-live/"><u>[New] 2024 Approved  Enhancing Televisual Engagement Through FB Live</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-iphones-easy-path-to-picture-softness-four-key-steps/"><u>[New] 2024 Approved  IPhone's Easy Path to Picture Softness (Four Key Steps)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-premier-picks-essential-mp4-lists/"><u>[New] 2024 Approved  Premier Picks  Essential MP4 Lists</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-unveiling-top-tier-displays-optimize-your-xbox-series-x-gaming/"><u>[New] 2024 Approved  Unveiling Top-Tier Displays - Optimize Your Xbox Series X Gaming</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-all-you-need-to-know-about-downloading-wm6/"><u>[New] All You Need to Know About Downloading WM6</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-brushstrokes-of-color-expert-shift-strategies/"><u>[New] Brushstrokes of Color  Expert Shift Strategies</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-pinnacle-teaser-film-assortment/"><u>[New] In 2024, Pinnacle Teaser Film Assortment</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-the-essential-guide-to-enhancing-ar-with-lut-knowledge/"><u>[New] In 2024, The Essential Guide to Enhancing AR with LUT Knowledge</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-the-experts-playbook-for-transforming-srt-into-diverse-formats/"><u>[New] In 2024, The Expert's Playbook for Transforming SRT Into Diverse Formats</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-navigating-picture-in-picture-mode-with-ease-in-microsoft-edge/"><u>[New] Navigating Picture-In-Picture Mode with Ease in Microsoft Edge</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-step-into-mobile-entertainment-funimates-apk-pathway-for-2024/"><u>[New] Step Into Mobile Entertainment  Funimate's APK Pathway for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-the-quest-for-perfect-playback-aps4-capturing-essentials-for-enthusiasts/"><u>[New] The Quest for Perfect Playback  APS4 Capturing Essentials for Enthusiasts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-videotwitterconverter-direct-media-conversion-for-2024/"><u>[New] VideoTwitterConverter  Direct Media Conversion for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-advanced-techniques-for-convincing-ppt-presentations-on-gmeet/"><u>[Updated] 2024 Approved  Advanced Techniques for Convincing PPT Presentations on GMeet</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-backup-your-memories-camera-roll-to-snapchat-explained/"><u>[Updated] 2024 Approved  Backup Your Memories  Camera Roll to Snapchat Explained</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-combatting-iphones-difficulty-in-autofocusing/"><u>[Updated] 2024 Approved  Combatting iPhone's Difficulty in Autofocusing</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-in-pursuit-of-detail-zoom-tactics-for-videoleap-enthusiasts/"><u>[Updated] 2024 Approved  In Pursuit of Detail  Zoom Tactics for VideoLeap Enthusiasts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-the-in-depth-look-at-nikons-4k-powerhouse-j5/"><u>[Updated] 2024 Approved  The In-Depth Look at Nikon's 4K Powerhouse - J5</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-assessing-streaming-quality-vlc-versus-mx-for-2024/"><u>[Updated] Assessing Streaming Quality  VLC versus MX for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-breaking-down-the-top-ae-title-styles/"><u>[Updated] Breaking Down the Top AE Title Styles</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-decoding-the-dichotomy-between-tiktok-and-its-alternative-triller/"><u>[Updated] In 2024, Decoding the Dichotomy Between TikTok and Its Alternative, Triller</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-dynamic-duo-wearable-and-mac-harmony/"><u>[Updated] In 2024, Dynamic Duo  Wearable & Mac Harmony</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-leading-lists-compelling-google-cardboard-vr-game-selections-for-2024/"><u>[Updated] Leading Lists  Compelling Google Cardboard VR Game Selections for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-quickcapture-hd-software/"><u>[Updated] QuickCapture HD Software</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-capturing-impactful-voice-top-tips-for-podcasting-interviews-on-idevices/"><u>2024 Approved  Capturing Impactful Voice  Top Tips for Podcasting Interviews on iDevices</u></a></li>
+<li><a href="https://fox-info.techidaily.com/expert-insights-a-critical-review-of-google-voice-calling-solutions/"><u>Expert Insights: A Critical Review of Google Voice Calling Solutions</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Tecno Spark 10 4G | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-show-wi-fi-password-on-xiaomi-redmi-note-13-pro-5g-by-drfone-android/"><u>How to Show Wi-Fi Password on Xiaomi Redmi Note 13 Pro 5G</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-poco-c50-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Poco C50 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-edit-your-way-to-perfection-with-android/"><u>In 2024, Edit Your Way to Perfection with Android</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-the-two-factor-authentication-on-apple-iphone-11-pro-by-drfone-ios/"><u>In 2024, How To Remove the Two Factor Authentication On Apple iPhone 11 Pro</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-navigating-the-world-of-filmmaking-best-cameras-for-novices/"><u>In 2024, Navigating the World of Filmmaking  Best Cameras for Novices</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-step-by-step-clearing-background-artifacts-in-figma/"><u>In 2024, Step-by-Step  Clearing Background Artifacts in Figma</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-virtual-wit-whip/"><u>In 2024, Virtual Wit Whip</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/leverage-chatgpts-power-for-professional-resume-writing-tips-and-tricks/"><u>Leverage ChatGPT's Power for Professional Resume Writing Tips and Tricks</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/master-the-visuals-top-tips-for-dynamic-and-appealing-live-videos-for-2024/"><u>Master the Visuals  Top Tips for Dynamic and Appealing Live Videos for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/sleep-inducing-screenplays-video-evaluation/"><u>Sleep-Inducing Screenplays  Video Evaluation</u></a></li>
+<li><a href="https://fox-info.techidaily.com/techniques-to-frame-photos-with-leading-lines-iphone/"><u>Techniques to Frame Photos with Leading Lines (iPhone)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-quick-guide-to-modifying-your-vocal-characteristics-in-pubg/"><u>The Quick Guide to Modifying Your Vocal Characteristics in PUBG</u></a></li>
+<li><a href="https://fox-info.techidaily.com/unleashing-potential-a-deep-dive-into-intova-x-for-2024/"><u>Unleashing Potential  A Deep Dive Into Intova X for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-webm-video-shrinking-made-simple-top-online-compressors/"><u>Updated 2024 Approved WebM Video Shrinking Made Simple Top Online Compressors</u></a></li>
+<li><a href="https://apple-account.techidaily.com/why-apple-account-disabled-from-your-iphone-12-mini-how-to-fix-by-drfone-ios/"><u>Why Apple Account Disabled From your iPhone 12 mini? How to Fix</u></a></li>
+</ul></div>

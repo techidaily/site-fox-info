@@ -1,0 +1,178 @@
+---
+title: "\"[Updated] 2024 Approved  Refining Shots with GoPro's Advanced Color Tools\""
+date: 2024-08-15T19:49:40.785Z
+updated: 2024-08-16T19:49:40.785Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes [Updated] 2024 Approved: Refining Shots with GoPro's Advanced Color Tools\""
+excerpt: "\"This Article Describes [Updated] 2024 Approved: Refining Shots with GoPro's Advanced Color Tools\""
+keywords: "GoPro Color Calibration,Advanced GoPro Editing,Enhanced GoPro Video,ProShot Color Adjustment,GoPro Hue Modification,Premium GoPro Filters,Dynamic GoPro Settings"
+thumbnail: https://thmb.techidaily.com/1ddec9a0b5a6c3e1804c33a43db9c91ffd9d92f92510209406429341a2fb6bc6.jpg
+---
+
+## Refining Shots with GoPro's Advanced Color Tools
+
+# How to Do Color Correction in GoPro Studio
+
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+##### Max Wales
+
+ Mar 27, 2024• Proven solutions
+
+ GoPro Action Cameras are ideal for capturing any outdoor moving scenes and for shooting superb vantage points. By making use of the [GoPro Studio](https://tools.techidaily.com/wondershare/filmora/download/) you will be able to add a lot of creative touches to your video. In today's post we are about to discuss how to do the perfect color correction on GoPro Studio and how to edit the footage captured on your action camera.
+
+**You may also like:**
+
+[Color Grading and Correction in Final Cut Pro >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Color Correction in GoPro Studio
+
+ One of the easiest and most convenient ways of making the most out of your action camera is to use the ["Protune"](https://gopro.com/support/articles/how-to-use-protune) setting. The Protune among other things is capable of enhancing the dynamic recording range. The enhanced dynamic range would offer you a flat log like image which appears more vigorous while during color grading.
+
+ No matter whether you are recording with Protune turned on or off, you will be required to adjust the colors during the time of the edit. Color Correction in GoPro Studio is simple and intuitive.
+
+ Just follow the steps below:
+
+**Step 1:** The first thing you have to do is setting the cam to the Protune shooting mode. Now just import and get your Protune footage converted.
+
+**Step 2:** Split the Image- On the right of the screen there is a split button. You need to shift the point almost halfway. Doing this would split the window in ½ though you will not be able to see that. When the color profile of the image is changed the right side is going to change without affecting the left side. This would allow you to compare the image as it was before and after correcting the color. In order to view the original image or the edited one you have to draw the pointer to the right or left.
+
+![Color correction in GoPro Studio](https://images.wondershare.com/filmora/article-images/color-correction-in-gopro-studio-0.jpg)
+
+**Step 3:** Color Correction- On the right hand side of your window the color correction can be done just by hitting on the arrow beside the White Balance button and the Image button. Now you can see the options which needed to be changed in order to correct the color. You will be able to view all the options like temperature, exposure, sharpness, contrast, tint and saturation. You can also choose to apply different preset overlays to give the footage a special filter.
+
+![how to do color correction in GoPro Studio](https://images.wondershare.com/filmora/article-images/color-correction-in-gopro-studio-1.jpg)
+
+ The GoPro Studio is very user friendly and effective video editing software but in order to use it you need to convert the format of your video before you start to edit. There aren't many options especially when you require enhanced controls on the GoPro recordings. This is why we would recommend you to use the [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) editing software. It is equipped with a special action cam tool which not only allows the user to alter the color by changing the brightness, saturation, vignette, tint or temp but even comes with loads of 3D LUT filters which adds a nice effect.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+ The all new version of the Wondershare Filmora editing software for Windows and Mac is packed with exciting features meant exclusively for action cameras. These features include:
+
+1. [Video stabilization](https://tools.techidaily.com/wondershare/filmora/download/), advanced speed control (slow motion, fast motion, replay, freeze frame and reverse), audio de-noise, along with color correction features (3D, white balance, LUT etc).
+2. The Instant Cutter tool would give the users the option of trimming and merging video files without any loss of quality. It would allow you to cut a 8GB footage within just a minutes time.
+3. It fully supports  encoded MP4 format, MTS and Mov videos shot on any action cams, camcorders and phones.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## GoPro Footage Color Correction in Wondershare Filmora
+
+ In order to do the color correction in Filmora you just need to follow the 3 easy steps.
+
+**Step 1:** Import the file. After opening the Filmora app go to the Action Cam Tool right on the interface of the software. Now click on the import button or just drag and drop your clip shot on any action cam into the middle of your timeline.
+
+![color correction](https://images.wondershare.com/filmora/guide/1-action-cam-tool-fix-entrance.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
+
+**Step 2:** Color Tuning. Now you need to choose the Color Tab on the left of your control panel. Here you will be able to drag the individual slider so as to alter the contrast, brightness, tint, vignette and saturation.
+
+![correct gopro footage color](https://images.wondershare.com/filmora/article-images/color-corretion-in-gopro-studio-3.jpg)
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+ The compare button located on the top right lets you check all the segments before and after the correction simultaneously. While the Reset button ![color-tuning-reset-button](https://images.wondershare.com/filmora/guide/color-tuning-reset-button.png) would allow you to clear all the color corrections anytime.
+
+**Step 3:** Save and Share- Once the edit is finished you need to hit the Export button in order to save the edited clip as MOV or MP4 format. You can also alter the video res and the frames per sec. Now just hit the OK button to start the export.
+
+![Export](https://images.wondershare.com/filmora/guide/8-action-cam-tool-export.jpg)
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
+
+Max Wales
+
+Max Wales is a writer and a lover of all things video.
+
+Follow @Max Wales
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-autoplay-youtube-on-phones-without-interruption/"><u>[New] 2024 Approved  Autoplay YouTube on Phones without Interruption</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-amplifying-your-role-play-roblox-closeup-mastery/"><u>[New] Amplifying Your Role-Play  Roblox Closeup Mastery</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-blending-pictures-into-a-single-storyboard-image/"><u>[New] Blending Pictures Into a Single Storyboard Image</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-pigments-and-perceptions-mastering-image-colorization/"><u>[New] Pigments & Perceptions  Mastering Image Colorization</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-expert-tips-for-a-seamless-google-podcast-upload-experience/"><u>[Updated] Expert Tips for a Seamless Google Podcast Upload Experience</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-laughs-galore-a-curated-collection-of-funny-tiktok-content/"><u>[Updated] Laughs Galore  A Curated Collection of Funny TikTok Content</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-definitive-guide-to-audio-interfaces-in-podcasting/"><u>[Updated] The Definitive Guide to Audio Interfaces in Podcasting</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-youtube-video-magic-best-tools-for-effortless-webm-conversion-for-2024/"><u>[Updated] YouTube Video Magic  Best Tools for Effortless WebM Conversion for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-current-and-future-drone-use-cases-unveiled/"><u>2024 Approved  Current & Future  Drone Use Cases Unveiled</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-detailed-discussions-via-zoom-in-ms-teams/"><u>2024 Approved  Detailed Discussions via ZOOM in MS Teams</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-discovering-the-dynamics-of-whatsapp-vocal-messages/"><u>2024 Approved  Discovering the Dynamics of WhatsApp Vocal Messages</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-dive-deep-into-the-latest-upgrades-in-lgs-visionary-360-series/"><u>2024 Approved  Dive Deep Into the Latest Upgrades in LG's Visionary 360 Series</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-echoes-of-music-in-video-landscapes/"><u>2024 Approved  Echoes of Music in Video Landscapes</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-elite-groups-finest-pro-grade-videography-tools/"><u>2024 Approved  Elite Group's Finest Pro-Grade Videography Tools</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-elite-monitors-elevate-photo-editing-find-the-best/"><u>2024 Approved  Elite Monitors Elevate Photo Editing - Find the Best</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-engage-in-windows-11s-dynamic-app-ecosystem/"><u>2024 Approved  Engage in Windows 11'S Dynamic App Ecosystem</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-expanding-horizinas-with-vlcs-versatile-conversion-capabilities/"><u>2024 Approved  Expanding Horizinas with VLC's Versatile Conversion Capabilities</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-expert-picks-top-mac-editors-for-cinema-professionals/"><u>2024 Approved  Expert Picks  Top Mac Editors For Cinema Professionals</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-hear-the-vibe-no-cost-online-tempo-trackers/"><u>2024 Approved  Hear the Vibe – No Cost  Online Tempo Trackers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-in-depth-analysis-lg-bp350s-visual-clarity-and-color-range/"><u>2024 Approved  In-Depth Analysis  LG BP350's Visual Clarity and Color Range</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-innovative-features-of-the-latest-win11-release/"><u>2024 Approved  Innovative Features of the Latest Win11 Release</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-mastering-access-free-picturing-content-streams/"><u>2024 Approved  Mastering Access  Free Picturing Content Streams</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-mastering-snapchat-enhancing-images-and-videos/"><u>2024 Approved  Mastering Snapchat  Enhancing Images & Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-photographic-presentation-prowess-frame-tech/"><u>2024 Approved  Photographic Presentation Prowess Frame Tech</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-pioneering-stories-on-youtube-2023-edition/"><u>2024 Approved  Pioneering Stories on YouTube, 2023 Edition</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-premium-20-unrestricted-pubg-captures-array/"><u>2024 Approved  Premium 20 Unrestricted PUBG Captures Array</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-significant-concepts-in-interactive-tale-design/"><u>2024 Approved  Significant Concepts in Interactive Tale Design</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-step-by-step-process-to-set-trending-tiktok-beats-as-your-cellphone-alarm/"><u>2024 Approved  Step-by-Step Process to Set Trending TikTok Beats as Your Cellphone Alarm</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-the-complete-blueprint-adding-professional-effects-to-your-videos/"><u>2024 Approved  The Complete Blueprint  Adding Professional Effects to Your Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-the-fundamentals-of-gif-design-and-creation/"><u>2024 Approved  The Fundamentals of GIF Design and Creation</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-ultimate-collection-top-16-free-video-platforms/"><u>2024 Approved  Ultimate Collection  Top 16 Free Video Platforms</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-unboxing-marketing-strategy/"><u>2024 Approved  Unboxing Marketing Strategy</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-understanding-and-controlling-safaris-pip-feature/"><u>2024 Approved  Understanding and Controlling Safari's PIP Feature</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-what-makes-virtual-reality-headsets-unique/"><u>2024 Approved  What Makes Virtual Reality Headsets Unique?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024s-best-camera-innovations-explored/"><u>2024'S Best Camera Innovations Explored</u></a></li>
+<li><a href="https://fox-info.techidaily.com/5-ways-to-record-audio-on-windows-11-for-2024/"><u>5 Ways to Record Audio on Windows 11 for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/6-best-microphones-for-live-streaming-overview-for-2024/"><u>6 Best Microphones for Live Streaming Overview for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/a-compreehsive-review-of-the-ultra-hd-actioncamera-for-2024/"><u>A Compreehsive Review of the Ultra-HD ActionCamera for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/achieving-effortless-seams-in-inshot-videos/"><u>Achieving Effortless Seams in Inshot Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/becoming-a-color-connoisseur-top-techniques/"><u>Becoming a Color Connoisseur  Top Techniques</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-thrills-with-the-holy-stone-predator-mini-a-detailed-rc-helicopter-drone-review/"><u>Budget-Friendly Thrills with the Holy Stone Predator Mini: A Detailed RC Helicopter Drone Review</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpts-role-in-refining-home-task-management/"><u>ChatGPT's Role in Refining Home Task Management</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-se-with-a-mask-on-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone SE with a Mask On | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-11-pro-apples-new-iphone-by-drfone-ios/"><u>How to Unlock iPhone 11 Pro, Apples New iPhone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-watch-hulu-outside-us-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/screen-spectrum-your-gateway-to-gameplay-for-2024/"><u>Screen Spectrum  Your Gateway to Gameplay for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/streamlit-splendor-hues-and-highlights-technique-for-2024/"><u>Streamlit Splendor  Hues and Highlights Technique for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-finest-free-iphone-composition-and-photo-editing-tools-reviewed/"><u>The Finest FREE iPhone Composition and Photo Editing Tools Reviewed</u></a></li>
+<li><a href="https://win-answers.techidaily.com/ultimate-guide-to-fixing-your-xbox-game-dealing-with-black-ops-cold-wars-error-code-0xc00n0005/"><u>Ultimate Guide to Fixing Your Xbox Game: Dealing with Black Ops Cold War's Error Code 0XC00n0005</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-how-to-remove-sound-from-iphone-video-easy-guide/"><u>Updated How to Remove Sound From iPhone Video? Easy Guide</u></a></li>
+</ul></div>
