@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Reimagining Your Images  Effective Uses of the Background Eraser in Adobe Photoshop\""
-date: 2024-07-12T12:38:39.144Z
-updated: 2024-07-13T12:38:39.144Z
+date: 2024-08-23T03:40:10.899Z
+updated: 2024-08-24T03:40:10.899Z
 tags: 
   - screen-recording
   - ai video
@@ -44,6 +44,9 @@ The following are the similarities between the Background Eraser and Magic Erase
 
 **Destructive Tools:** Both the Background Eraser and Magic Eraser are destructive tools in nature. They delete the pixels you erase. Therefore, you cannot undo or redo your changes once you've used either of these tools. However, there are some non-native workarounds to restore your images.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Dissimilarities
 
 Here are some dissimilarities between the Background Eraser and Magic Eraser Tools:
@@ -64,6 +67,9 @@ When you enable the Background Eraser tool in Photoshop, you will see that the c
 
 ![bruch preset picker function in background eraser tool](https://images.wondershare.com/filmora/article-images/2023/03/bruch-preset-picker-function-in-background-eraser-tool.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 The **Brush Preset Picker** is the first option that opens up a panel to let you adjust the size of your brush, its hardness, spacing, and tolerance. You can also change the size using the **Left Bracket (\[)** and **Right Bracket (\])**  keys on your PC keyboard.
 
 To adjust the hardness, press the **"Shift+ Left Bracket"** or **"Shift+Right Bracket"** keys. We recommend that you set it to **100%** when erasing the pixels from your image.
@@ -92,6 +98,9 @@ The Limit function comes with three options:
 
 ![limits function in background eraser tool](https://images.wondershare.com/filmora/article-images/2023/03/limits-function-in-background-eraser-tool.png)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ### 4\. Tolerance
 
 Located directly to the right of the Limits function, Tolerance is one of the most important options in Background Eraser, as it signifies how much a pixel's shade can vary from the sampled color for Photoshop to erase it.
@@ -102,6 +111,14 @@ If, however, the background color is fringing around the subject, use a higher T
 
 ![tolerance function in background eraser tool](https://images.wondershare.com/filmora/article-images/2023/03/tolerance-function-in-background-eraser-tool.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. Brush Angle
 
 The Brush Angle option can help you adjust the angle of your crosshair to quickly erase the pixels in difficult-to-reach areas in your image's background. You can also hit the **"R"** key on your keyboard to rotate the canvas.
@@ -112,6 +129,9 @@ Sometimes, Photoshop erases parts of your subject while removing the background,
 
 This option allows you to choose a color from your subject as a foreground color, and Photoshop will stop erasing it while you drag the brush over the image to remove the background.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 7\. Pen Pressure
 
 Pen Pressure is helpful if you use a drawing tablet instead of a mouse. With this option selected, the crosshair opacity will be regulated based on the pressure applied with your pen on the tablet.
@@ -148,6 +168,12 @@ Step6 Finally, after removing the background, you can place the subject on anoth
 
 ![exporting the final image after erasing background with background eraser](https://images.wondershare.com/filmora/article-images/2023/03/exporting-the-final-image-after-erasing-background-with-background-eraser.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## You May Want to Know: The Working Process of Background Eraser Tool
 
 Now that you've learned **how to use the Background Eraser Tool in Photoshop.** During the process of operating, you might wonder how the software works and changes the BG layer.
@@ -166,8 +192,14 @@ Therefore, as long as we keep the crosshair within the pink area, Photoshop will
 
 ![checking the working process of photo shop](https://images.wondershare.com/filmora/article-images/2023/03/checking-the-working-process-of-photo-shop.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 However, if we accidentally erase the blue stripes, we can always go back by simply pressing the **"CTRL+Z"** in Windows and **"Command+Z"** in Mac. To undo multiple steps, hit the **"Ctrl+Alt+Z" (Windows)** or **Command+Option+Z" (Mac)** keys repeatedly.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ## Common FAQs When Using Background Esarser Tool in Photoshop
 
 ### 1\. Why Is Photoshop Eraser Tool Not Accessible?
@@ -178,6 +210,9 @@ If your Photoshop Eraser Tool is not accessible, make sure you have no active se
 
 You can find the Background Eraser Tool in the **Toolbar** on the left-hand side of the screen. Right-click the **"Eraser"** tool and select **"Background Eraser"** from the menu.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## A Bonus Video Tutorial: Background Change Tutorial with Wondershare Filmora
 
 Hopefully, you find this article informative and can now easily use the Background Eraser tool in Adobe Photoshop. Additionally, as artists or creators' world consists of various types of expression, images and videos are among them. Apart from the tutorial of removing images' backgrounds in Photoshop, we also provided you with a video tutorial to remove the video's background. If you have any interests, you can watch it and have fun!
@@ -198,6 +233,9 @@ Hopefully, you can use the tools in Phoshop with ease and remove images' backgro
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 In this comprehensive guide, we've discussed the basic information about the Eraser tool and the adjustment settings of the Background Eraser tool. We've also provided a step-by-step process for using **the Background Eraser Tool in Photoshop.**
@@ -231,3 +269,64 @@ Hopefully, you can use the tools in Phoshop with ease and remove images' backgro
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-chucklechrome-memomasters/"><u>[New] 2024 Approved  ChuckleChrome  MemoMasters</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-how-to-add-motion-blur-to-face-with-picsart/"><u>[New] 2024 Approved  How to Add Motion Blur to Face with Picsart</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-ultimate-guide-for-streamlining-iphone-video-content/"><u>[New] 2024 Approved  The Ultimate Guide for Streamlining iPhone Video Content</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-authority-list-top-10-sports-and-football-streaming-applications-cutting-edge-for-2024/"><u>[New] Authority List  Top 10 Sports & Football Streaming Applications, Cutting Edge for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-become-a-video-quality-guru-with-vce-22-knowledge-for-2024/"><u>[New] Become a Video Quality Guru with VCE 2.2 Knowledge for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-best-breaks-and-takes-from-snowspeedcross-games/"><u>[New] Best Breaks & Takes From Snowspeedcross Games</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-exceptional-audioscape-for-cinematic-videos-for-2024/"><u>[New] Exceptional Audioscape for Cinematic Videos for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-beacons-for-top-tier-vr-screens/"><u>[New] In 2024, Beacons for Top-Tier VR Screens</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-unwrapping-the-4k-delight-sony-xperia-xz-premium-examined/"><u>[New] In 2024, Unwrapping the 4K Delight  Sony Xperia XZ Premium Examined</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-leading-edge-winning-16-free-media-applications-for-2024/"><u>[New] Leading Edge  Winning 16 Free Media Applications for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-playtime-registration-and-logout-tutorials/"><u>[New] Playtime Registration & Logout Tutorials</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-premier-virtual-seminar-title-craftsman/"><u>[New] Premier Virtual Seminar TITLE CRAFTSMAN</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-speech-transcription-made-simple-utilizing-text-conversion-functionality-of-ms-word-for-2024/"><u>[New] Speech Transcription Made Simple  Utilizing Text Conversion Functionality of MS Word for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-the-ultimate-guide-to-supercharge-your-facebook-video-speed/"><u>[New] The Ultimate Guide to Supercharge Your Facebook Video Speed</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-ultimate-quick-picture-viewer-on-windows-10/"><u>[New] Ultimate Quick Picture Viewer on Windows 10</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-apples-ios-a-treasure-trove-of-vr-game-hits/"><u>[Updated] 2024 Approved  Apple's iOS  A Treasure Trove of VR Game Hits</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-embracing-precision-with-iphone-xs-optical-mastery/"><u>[Updated] 2024 Approved  Embracing Precision with iPhone X's Optical Mastery</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-free-visuals-galore-top-10-sites-to-explore/"><u>[Updated] 2024 Approved  Free Visuals Galore – Top 10 Sites to Explore</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-unveiling-dji-phantom-3s-superior-flight-control-features/"><u>[Updated] 2024 Approved  Unveiling DJI Phantom 3'S Superior Flight Control Features</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-virtual-virtuoso-verbalization-voyager/"><u>[Updated] 2024 Approved  Virtual Virtuoso Verbalization Voyager</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-achieving-flawless-photos-with-size-tweaks-on-ios-for-2024/"><u>[Updated] Achieving Flawless Photos with Size Tweaks on iOS for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-expert-tips-to-seamlessly-retrieve-youtube-srt-subtitles-for-2024/"><u>[Updated] Expert Tips to Seamlessly Retrieve YouTube SRT Subtitles for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-aspers-secrets-soundscapes-that-lull-you-to-sleep/"><u>[Updated] In 2024, Asper's Secrets  Soundscapes That Lull You to Sleep</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-mastering-chrome-os-4-screenshots-tricks/"><u>[Updated] In 2024, Mastering Chrome OS  4 Screenshots Tricks</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-pay-attention-focus-fully-on-the-speaker-avoid-distractions-and-show-interest-in-what-theyre-saying/"><u>[Updated] In 2024, Pay Attention  Focus Fully on the Speaker, Avoid Distractions, and Show Interest in What They're Saying</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-quick-kinemaster-techniques-for-memelore/"><u>[Updated] In 2024, Quick KineMaster Techniques for Memelore</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-securing-permanent-distance-from-tiktok-domain/"><u>[Updated] In 2024, Securing Permanent Distance From TikTok Domain</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-symphonic-switch-up-reimagining-your-musical-lists/"><u>[Updated] In 2024, Symphonic Switch-Up  Reimagining Your Musical Lists</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-top-ios-slideshow-programming-for-series-789/"><u>[Updated] In 2024, Top iOS Slideshow Programming for Series 7/8/9</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-push-past-filmora-discover-the-best-tablets-for-visual-excellence/"><u>[Updated] Push Past Filmora - Discover the Best Tablets for Visual Excellence</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-subscribe-like-a-pro-true-or-false/"><u>[Updated] Subscribe Like a Pro  True or False?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-ultimate-guide-to-action-hunting-gear-for-2024/"><u>[Updated] The Ultimate Guide to Action Hunting Gear for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-top-kid-friendly-drone-models-for-first-flights/"><u>[Updated] Top Kid-Friendly Drone Models for First Flights</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-total-gaze-field-vr-device-overview/"><u>[Updated] Total Gaze Field VR Device Overview</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-transforming-ideas-into-impactful-scenes-through-dialogue/"><u>[Updated] Transforming Ideas Into Impactful Scenes Through Dialogue</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-cutting-edge-techniques-for-your-instagram-story-success/"><u>2024 Approved  Cutting-Edge Techniques for Your Instagram Story Success</u></a></li>
+<li><a href="https://android-frp.techidaily.com/5-quick-methods-to-bypass-poco-c55-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Poco C55 FRP</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/ace-your-brand-strategy-with-these-reddit-mastery-methods-for-2024/"><u>Ace Your Brand Strategy with These Reddit Mastery Methods for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Infinix Note 30 Pro | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/from-blurry-edges-to-squared-perfection-the-imovie-guide-for-instagram-videos/"><u>From Blurry Edges to Squared Perfection  The iMovie Guide for Instagram Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/googles-educational-leader-for-2017-mondly-kids-treats-guide/"><u>Google's Educational Leader for 2017 - Mondly Kids Treats Guide</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-upgrade-iphone-15-plus-to-the-latest-iosipados-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade iPhone 15 Plus to the Latest iOS/iPadOS Version? | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-brushstrokes-of-color-expert-shift-strategies/"><u>In 2024, Brushstrokes of Color  Expert Shift Strategies</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-from-real-to-virtual-the-science-behind-vr/"><u>In 2024, From Real to Virtual  The Science Behind VR</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/in-2024-innovative-sound-solutions-for-videographers-streamlining-effect-implementation/"><u>In 2024, Innovative Sound Solutions for Videographers Streamlining Effect Implementation</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-mastery-of-spotify-ad-formats-and-best-practices/"><u>In 2024, Mastery of Spotify Ad Formats and Best Practices</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-updated-method-to-bypass-tecno-pova-5-pro-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Tecno Pova 5 Pro FRP</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-the-secret-to-reversing-tiktok-videos-insider-tips-and-tricks-2023-edition/"><u>New In 2024, The Secret to Reversing TikTok Videos Insider Tips and Tricks 2023 Edition</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-split-your-mpeg-videos-like-a-pro-top-5-free-tools/"><u>New Split Your MPEG Videos Like a Pro Top 5 Free Tools</u></a></li>
+<li><a href="https://article-files.techidaily.com/premiere-previews-extravaganza/"><u>Premiere Previews Extravaganza</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/revitalize-your-touchpad-experience-with-rapid-synaptics-driver-updates-for-ps2-ports/"><u>Revitalize Your Touchpad Experience with Rapid Synaptics Driver Updates for PS/2 Ports</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/revive-your-pc-using-built-in-tools-a-deep-dive-into-windows-10s-sfc-and-dism-features/"><u>Revive Your PC Using Built-In Tools: A Deep Dive Into Windows 10'S SFC and DISM Features</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/solving-windows-11-performance-issues-8-simple-troubleshooting-steps/"><u>Solving Windows 11 Performance Issues: 8 Simple Troubleshooting Steps</u></a></li>
+<li><a href="https://fox-info.techidaily.com/transform-your-iphone-footage-creating-and-editing-lengthened-visual-narratives/"><u>Transform Your iPhone Footage  Creating & Editing Lengthened Visual Narratives</u></a></li>
+<li><a href="https://some-skills.techidaily.com/transform-your-tactics-exclusive-free-voice-change-tool-for-valorant-gamers-for-2024/"><u>Transform Your Tactics  Exclusive Free Voice Change Tool for Valorant Gamers for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unbeatable-deal-m3-macbook-air-with-16gb-ram-and-13-display-at-just-1149/"><u>Unbeatable Deal: M3 MacBook Air with 16GB RAM & 13 Display at Just $1,149!</u></a></li>
+<li><a href="https://fox-info.techidaily.com/why-cant-my-a6400-show-movies/"><u>Why Can't My A6400 Show Movies?</u></a></li>
+</ul></div>
