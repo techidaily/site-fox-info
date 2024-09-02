@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Navigating to YouTube Comment Sections Swiftly\""
-date: 2024-07-12T12:14:57.570Z
-updated: 2024-07-13T12:14:57.570Z
+date: 2024-09-01T11:25:12.508Z
+updated: 2024-09-02T11:25:12.508Z
 tags: 
   - screen-recording
   - ai video
@@ -78,16 +78,25 @@ Step2 On the YouTube homepage, click on the three horizontal parallel lines in t
 
 ![horizontal parallel lines youtube](https://images.wondershare.com/filmora/article-images/2022/11/horizontal-parallel-lines-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 Step3 From the drop down menu, select “History”.
 
 Step4 On the right side under the “Manage all history” section, click on “comments”.
 
 ![manage all history comments youtube](https://images.wondershare.com/filmora/article-images/2022/11/manage-all-history-comments-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Step5 To edit your comment, click on the “vertical ellipsis” (three vertical dots) on the far right side of the listed video page.
 
 Step6 Make the necessary edits and choose “Save”.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ## Highlighted Comments and Replies on YouTube
 
 Among the comments you see on a video, you might notice some that YouTube has labeled “Highlighted Comment.” that label is specific to you, and only appears in your comments list. YouTube that you have a particular interest in a section of comments.
@@ -96,6 +105,9 @@ For example, you might click on a notification, and YouTube takes you to a parti
 
 Each time YouTube adds the “highlighted comment” or “highlighted reply” tags to a video, they create a unique URL. The version of the comment that you see uses this newly generated URL. Therefore, the only way to make these labels disappear (apart from reading the new comments) is to remove the addition to the URL.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ## Why Deleting YouTube Comments?
 
 If you consume a lot of YouTube content, you've likely posted hundreds or even thousands of comments on various channels. You might want to:
@@ -114,6 +126,12 @@ Comments history also contains the link to the video where you've left the comme
 
 ![delete unwanted youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/delete-unwanted-youtube-comments.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 YouTube allows users to view and edit all the comments they have made on YouTube videos on both desktop and mobile apps. You can also edit or delete the comment if you so wish However you cannot delete any comments you made on YouTube from the Google my Activity page. It can be done from within the YouTube app only.
@@ -151,3 +169,46 @@ One way you can encourage people to leave comments on your videos is to finish t
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-clash-of-shadows-and-lightning-black-vs-silver/"><u>[New] 2024 Approved  Clash of Shadows and Lightning  BLACK vs SILVER</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-efficiently-conducting-virtual-meetings-via-zoom-in-win10/"><u>[New] 2024 Approved  Efficiently Conducting Virtual Meetings via Zoom in Win10</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-polishing-your-figma-creations-expert-backdrop-extraction/"><u>[New] 2024 Approved  Polishing Your Figma Creations  Expert Backdrop Extraction</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-5-essential-sites-revolutionizing-how-we-style-text-for-2024/"><u>[New] 5 Essential Sites Revolutionizing How We Style Text for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-2023s-best-intro-editor-app-for-all-your-devices/"><u>[New] In 2024, 2023’S Best Intro Editor App for All Your Devices</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-crafting-facebook-videos-a-step-by-step-guide/"><u>[New] In 2024, Crafting Facebook Videos  A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-essential-aspects-of-a-superior-4k-camera-lens-choice/"><u>[New] In 2024, Essential Aspects of a Superior 4K Camera Lens Choice</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-live-broadcasting-uncovered-master-platform-selection/"><u>[New] Live Broadcasting Uncovered  Master Platform Selection</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-mastering-skype-meetings-windowsos-x-record-for-2024/"><u>[New] Mastering Skype Meetings  Windows/OS X Record for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-new-horizons-in-photography-lg-360-camera-update-for-2024/"><u>[New] New Horizons in Photography - LG 360 Camera Update for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-the-core-upgrades-of-windows-11-for-2024/"><u>[New] The Core Upgrades of Windows 11 for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-ultimate-2024-camcorder-guide-ranked-and-reviewed/"><u>[New] Ultimate 2024 Camcorder Guide  Ranked & Reviewed</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-inside-a-virtual-reality-device-a-basic-overview/"><u>[Updated] 2024 Approved  Inside a Virtual Reality Device  A Basic Overview</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-restoring-macos-sierra-to-os-x-10101-environment/"><u>[Updated] 2024 Approved  Restoring MacOS Sierra to OS X 10.10.1 Environment</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-revolutionizing-virtual-reality-top-pc-headsets-of-the-new-year/"><u>[Updated] 2024 Approved  Revolutionizing Virtual Reality  Top PC Headsets of the New Year</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-transforming-pixels-to-audible-artistry/"><u>[Updated] 2024 Approved  Transforming Pixels to Audible Artistry</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-discover-the-best-practices-for-5-windows-11-audio-capture-methods-for-2024/"><u>[Updated] Discover the Best Practices for 5 Windows 11 Audio Capture Methods for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-elevate-video-quality-mastering-tiktok-number-edits/"><u>[Updated] Elevate Video Quality  Mastering TikTok Number Edits</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-nikon-1j5-takes-video-to-the-next-level-with-its-4k-features/"><u>[Updated] In 2024, Nikon 1J5 Takes Video to the Next Level with Its 4K Features</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-unveiling-virtual-background-magic-a-streamers-guide-to-chroma-key/"><u>[Updated] In 2024, Unveiling Virtual Background Magic  A Streamer's Guide to Chroma Key</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-vibrance-alignment-system/"><u>[Updated] In 2024, Vibrance Alignment System</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-sj4000-owners-guide-to-stylish-and-practical-gear/"><u>[Updated] SJ4000 Owners' Guide to Stylish & Practical Gear</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-art-of-revisiting-your-private-snap-history-for-2024/"><u>[Updated] The Art of Revisiting Your Private Snap History for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-expert-advice-for-xbox-one-zooming-pros/"><u>2024 Approved  Expert Advice for Xbox One Zooming Pros</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/6-easy-free-youtube-closers-for-your-videos-top-picks-for-2024/"><u>6 Easy, Free YouTube Closers for Your Videos (Top Picks) for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/a-beginners-guide-to-professional-gif-creation/"><u>A Beginner's Guide to Professional GIF Creation</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/asus-rt-be96u-the-ultimate-6ghz-wireless-networking-champion-in-depth-review/"><u>Asus RT-BE96U: The Ultimate 6GHz Wireless Networking Champion - In Depth Review</u></a></li>
+<li><a href="https://fox-info.techidaily.com/fine-tuning-fade-effects-in-music-software/"><u>Fine-Tuning Fade Effects in Music Software</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/ignite-your-narratives-complimentary-fb-apps-for-everyday-users-for-2024/"><u>Ignite Your Narratives  Complimentary FB Apps for Everyday Users for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-elevate-video-visibility-with-expert-titles/"><u>In 2024, Elevate Video Visibility with Expert Titles</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-hone-your-meme-skills-quickly-using-9gag-strategies/"><u>In 2024, Hone Your Meme Skills Quickly Using 9GAG Strategies</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-speech-tuning-made-simple-on-sony-playstation-consoles/"><u>In 2024, Speech Tuning Made Simple on Sony PlayStation Consoles</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-the-perfect-strategy-to-insert-subtitles-into-mp4-clips/"><u>In 2024, The Perfect Strategy to Insert Subtitles Into MP4 Clips</u></a></li>
+<li><a href="https://fox-info.techidaily.com/parrot-ar-drone-enhanced-a-compreayer-report-for-2024/"><u>Parrot AR Drone Enhanced - A Compreayer Report for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/quick-fixes-reviving-your-astro-a20-microphone-from-dead-air/"><u>Quick Fixes: Reviving Your Astro A20 Microphone From Dead Air</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-videos-back-from-itel-s23-by-fonelab-android-recover-video/"><u>Simple ways to get lost videos back from Itel S23</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-ultimate-guide-to-the-best-video-speed-controller-extensions-for-2024/"><u>The Ultimate Guide to The Best Video Speed Controller Extensions for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/tone-and-pitch-control-on-chrome-os-select-the-best-online-speech-converters-for-2024/"><u>Tone and Pitch Control on Chrome OS  Select the Best Online Speech Converters for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-nokia-c32-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Nokia C32 | Dr.fone</u></a></li>
+</ul></div>
