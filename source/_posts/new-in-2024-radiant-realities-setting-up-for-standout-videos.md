@@ -1,0 +1,222 @@
+---
+title: "\"[New] In 2024, Radiant Realities  Setting Up for Standout Videos\""
+date: 2024-09-06T02:07:47.016Z
+updated: 2024-09-07T02:07:47.016Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes [New] In 2024, Radiant Realities: Setting Up for Standout Videos\""
+excerpt: "\"This Article Describes [New] In 2024, Radiant Realities: Setting Up for Standout Videos\""
+keywords: "\"Video Setup Basics,Standout Video Tips,Radiant Filming Techniques,Video Production Essentials,Outstanding Video Creation,Video Quality Enhancement,Cutting-Edge Video Planning\""
+thumbnail: https://thmb.techidaily.com/d04a298cb4efeef55fca68d7eaf14aa0f3c43f69fcef497082e91bf17afd4582.jpg
+---
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Radiant Realities: Setting Up for Standout Videos
+
+Many people are wondering how to set up lighting for video shooting. While there are many different ways to set up lighting, some methods are more effective than others.
+
+Therefore, this article will give you a complete guide on how to set up your lighting to make your videos stand out.
+
+## Part 1\. How-to Guide
+
+**_1) Preparation_**
+
+Before we get started, you may need to prepare some things to set up your lighting:
+
+**1\. Powerful LED Lights**
+
+LED lights are a huge step up from traditional incandescent lighting because they generate much less heat and energy. Also, you can change the color temperature and use different lighting effects.
+
+**2\. Softbox**
+
+Softbox can help you diffuse and spread the light on the subject.
+
+**3\. Fresnel lens**
+
+A Fresnel lens is an optional attachment that can bounce the light off of the ceiling of your studio and diffuses the light to look soft.
+
+**_2) Steps_**
+
+For this tutorial, we will use the Three-Point Lighting technique:
+
+##### Step1 Set the Key Light
+
+![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
+
+The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
+
+##### Step2 Set the Fill Light
+
+![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
+
+##### Step3 Set the Backlight
+
+![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
+
+For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
+
+##### Step4 Use Practical Lights
+
+Practical lights appear on the camera to add some visual flair. It can be any light source that isn't meant for lighting the subject. For example, we use a green lamp to help our background pop as it casts a nice orange light on the back wall.
+
+![use practical lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-4.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
+
+![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
+
+![other small led lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-6.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+After setting up all the lighting above, you can take a look at the comparison below:
+
+**Using Key Light only**
+
+![using key light only](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-7.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+**Using Key Light + Fill + Backlight**
+
+![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
+
+**_3) Pro Tips: The light setting_**
+
+We usually set the lights around 50% brightness and a color temperature of 5600K.
+
+![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
+
+## Summary
+
+Hopefully, you learned something about lighting by taking a look at our setup. If you want to know and learn about other lighting tutorials, don’t hesitate to let us know in the comments.
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-a-comprehensive-guide-downloading-from-instagram-to-iphone/"><u>[New] A Comprehensive Guide Downloading From Instagram to iPhone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-efficient-hashtag-use-for-skyrocketing-youtube-audience/"><u>[New] Efficient Hashtag Use for Skyrocketing YouTube Audience</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-cinematic-upgrade-gopro-hero5-black-vs-hero4-silver-edition/"><u>[New] In 2024, Cinematic Upgrade GoPro Hero5 Black vs Hero4 Silver Edition</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-streamers-dilemma-deciding-between-obs-and-shadowplay/"><u>[New] Streamers' Dilemma Deciding Between OBS and ShadowPlay</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-captivating-creatives-an-audience-centric-compilation-of-the-best-20-tiktok-captions/"><u>[Updated] Captivating Creatives An Audience-Centric Compilation of the Best 20 TikTok Captions</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-cutting-edge-creations-expert-tips-for-video-fading-for-2024/"><u>[Updated] Cutting-Edge Creations Expert Tips for Video Fading for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unlocking-the-full-capabilities-of-windows-11/"><u>[Updated] Unlocking the Full Capabilities of Windows 11</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-10-leading-mobile-vr-headsets-ranked/"><u>2024 Approved 10 Leading Mobile VR Headsets Ranked</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-aligning-with-audience-habits-in-podcast-releases/"><u>2024 Approved Aligning with Audience Habits in Podcast Releases</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-best-overlay-strategies-for-videographers/"><u>2024 Approved Best Overlay Strategies for Videographers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-beyond-the-skyline-with-yuneecs-typhoon-q500/"><u>2024 Approved Beyond the Skyline with Yuneec's Typhoon Q500</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-digital-evolutions-meta-vs-omni-reality/"><u>2024 Approved Digital Evolutions Meta Vs. Omni Reality</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-elevate-image-edits-quick-tips-from-the-pixlr-pros/"><u>2024 Approved Elevate Image Edits Quick Tips From the Pixlr Pros</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-elevate-your-content-the-essential-video-tutorial-for-youtube-photos/"><u>2024 Approved Elevate Your Content The Essential Video Tutorial for YouTube Photos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-essential-vr-game-guide-top-8-on-oculus/"><u>2024 Approved Essential VR Game Guide Top 8 on Oculus</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-generate-funny-image-for-giphy/"><u>2024 Approved Generate Funny Image for Giphy</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-master-audio-on-chrome-selecting-the-best-web-based-speech-modifiers/"><u>2024 Approved Master Audio on Chrome Selecting the Best Web-Based Speech Modifiers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-maximizing-impact-with-reddit-essential-tips-revealed/"><u>2024 Approved Maximizing Impact with Reddit - Essential Tips Revealed</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-prime-portals-for-digital-type-art/"><u>2024 Approved Prime Portals for Digital Type Art</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-score-big-with-these-8-no-cost-3d-videos-apps-for-windows-and-mac-os/"><u>2024 Approved Score Big with These 8 No-Cost 3D Videos Apps for Windows & Mac OS</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-shake-free-video-post-capture-tips-and-tricks/"><u>2024 Approved Shake-Free Video Post-Capture Tips & Tricks</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-the-essence-of-scripting-for-film/"><u>2024 Approved The Essence of Scripting for Film</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-the-path-to-virtual-visualization-excellence-a-zoom-video-filters-tutorial/"><u>2024 Approved The Path to Virtual Visualization Excellence A Zoom Video Filters Tutorial</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-turning-compressed-files-into-srt-speaking-texts-quickly/"><u>2024 Approved Turning Compressed Files Into .Srt Speaking Texts Quickly</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-ultimate-guide-to-securing-photographic-backdrops/"><u>2024 Approved Ultimate Guide to Securing Photographic Backdrops</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-xiaomi-13t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Xiaomi 13T | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/5-secrets-to-successful-and-memorable-titles-for-2024/"><u>5 Secrets to Successful and Memorable Titles for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessing-performance-the-truth-about-the-tp-link-powerline-wifi-signal-expander-av1300/"><u>Assessing Performance: The Truth About the TP-Link Powerline WiFi Signal Expander (AV1300)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/from-studio-to-skyline-elevating-images-with-nixplays-iris-cloudtech/"><u>From Studio to Skyline: Elevating Images with Nixplay's Iris Cloudtech</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-enjoy-hulu-on-demand-with-your-lg-smart-television-easy-steps/"><u>How to Enjoy Hulu On Demand with Your LG Smart Television - Easy Steps</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-infinix-note-30-5g-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Infinix Note 30 5G on Mac?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Lava Blaze Curve 5G? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-tecno-spark-20-proplus-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Tecno Spark 20 Pro+ for Streaming | Dr.fone</u></a></li>
+</ul></div>
