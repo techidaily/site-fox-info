@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Curated Queries for Spirited Conversations in Podcasts"
-date: 2024-09-11T05:14:20.067Z
-updated: 2024-09-12T05:14:20.067Z
+date: 2024-09-10T21:15:47.825Z
+updated: 2024-09-17T02:51:48.864Z
 tags: 
   - screen-recording
   - ai video
@@ -22,13 +22,10 @@ The quality of the questions you ask guests makes or breaks a podcast. Interesti
 
 This guide is going to reveal how to come up with the best questions so you can nail your podcast interviews and keep your listeners hooked. So here are the best questions you can ask to make your podcast unique and captivating.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
 
 ## Part 1\. 50 Podcast Interview Questions to Get Unique Answers
 
@@ -38,45 +35,11 @@ The best podcast questions to ask guests differ according to your niche and the 
 
 The best way is to divide your questions into different categories.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### Great Icebreaker/Intro Questions
 
 Icebreaker questions are used to begin an interview or meeting. These are personal questions to learn more about one another quickly. For example, the prompt might be "share your name, role, and what you usually do during the weekend." These questions aim to have fun, create points of connection between guests, and build confidence in speaking in front of the group.
 
 ![icebreaker questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-2.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Here are some icebreaker questions that you can ask to start an interview.
 
@@ -91,39 +54,11 @@ Here are some icebreaker questions that you can ask to start an interview.
 9. What is one of your greatest challenges in life?
 10. How did you meet your spouse or partner?
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### Leading Question
 
 A leading question suggests a particular answer to the question that the questioner desires. These questions mostly have a yes or no answer. However, if you extract your question from the answer just given by the guest of the podcast, it is also a leading question.
 
 ![leading questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-3.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Some leading questions that you can ask are discussed below.
 
@@ -149,19 +84,18 @@ In an interview, a comparison question is one where you ask a person what he pre
 
 ![comparison questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-4.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 You can ask questions from the comparison questions given below.
 
@@ -181,19 +115,12 @@ You can ask questions from the comparison questions given below.
 14. In which weather do you feel comfortable, summer or winter?
 15. What do you prefer to eat, pizza or a burger?
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Great Closing Questions
 
@@ -225,67 +152,40 @@ Asking better questions on a podcast requires preparation beforehand. Here are s
 
 You can get the best information from the person you are interviewing if you do the following:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Ask WHY?
 
 ![ask why](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-5.jpg)
 
-
-
-
+As an interviewer, "why" is your most powerful tool. Guests usually provide surface-level information or opinions. The follow-up question of "why" makes them go further and give deeper details. It will also help your audience understand correctly what the guest wants to say.
 
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
-As an interviewer, "why" is your most powerful tool. Guests usually provide surface-level information or opinions. The follow-up question of "why" makes them go further and give deeper details. It will also help your audience understand correctly what the guest wants to say.
 
 ### What happened next?
 
 If your guest is overwhelmed by the emotions and has stopped before completing his answer, help him achieve it by asking, "What Happened Next?" Use a softer tone while asking this question.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### What were your feelings when this happened?
 
 Sometimes you want the guest to answer your questions with feelings and emotions. Making your guest answer your questions while drenched in emotions can take your podcast to the next level. Questions like "What were your feelings when this happened?" can take the guest back to the past and make him answer your question with full emotions.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Mirror your guest
 
@@ -352,45 +252,18 @@ Consider the following when picking which of the above questions to use on your 
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-seamless-speech-to-text-translation-in-microsoft-office-suite-word/"><u>[New] 2024 Approved Seamless Speech-to-Text Translation in Microsoft Office Suite (Word)</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-ultimate-comparison-adobe-storage-vs-non-adobe-options/"><u>[New] 2024 Approved The Ultimate Comparison Adobe Storage Vs. Non-Adobe Options</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-asuss-high-tech-display-unveiled-the-mg28uq-monitor-insight-for-2024/"><u>[New] ASUS's High Tech Display Unveiled – The MG28UQ Monitor Insight for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-best-hd-video-screen-recorders/"><u>[New] Best HD Video Screen Recorders</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-gigglegrid-create-social-media-laughs-in-seconds-for-2024/"><u>[New] GiggleGrid Create Social Media Laughs in Seconds for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-coders-showdown-which-codec-will-dominate-video-quality/"><u>[New] In 2024, Coders' Showdown Which Codec Will Dominate Video Quality?</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-lgs-visionary-pursuit-deep-insights-into-the-31mu97-b-monitor-review/"><u>[New] In 2024, LG's Visionary Pursuit Deep Insights Into the 31MU97-B Monitor Review</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-pro-capture-not-just-point-and-shoot-mastering-the-hero5-black/"><u>[New] In 2024, Pro Capture, Not Just Point-and-Shoot Mastering the Hero5 Black</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-quick-video-wins-essential-ideas-for-vloggers/"><u>[New] In 2024, Quick Video Wins Essential Ideas for Vloggers</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-reinstating-windows-photo-viewer-ways-for-windows-11-users/"><u>[New] In 2024, Reinstating Windows Photo Viewer Ways for Windows 11 Users</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-unlocking-top-notch-visuals-a-cost-free-approach/"><u>[New] In 2024, Unlocking Top-Notch Visuals A Cost-Free Approach</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-prime-web-picks-for-stylish-3d-sparkling-text/"><u>[New] Prime Web Picks for Stylish 3D Sparkling Text</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-does-rapid-subscription-improve-video-watching/"><u>[Updated] 2024 Approved Does Rapid Subscription Improve Video Watching?</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-essential-filming-gear-for-novices-and-aspiring-cinematographers/"><u>[Updated] 2024 Approved Essential Filming Gear for Novices and Aspiring Cinematographers</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-capturing-fluidity-in-iphone-photography-for-2024/"><u>[Updated] Capturing Fluidity in iPhone Photography for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-complete-guide-to-cleaning-up-figma-canvases/"><u>[Updated] Complete Guide to Cleaning Up Figma Canvases</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-compare-the-best-free-screen-recorders-on-windows-os/"><u>[Updated] In 2024, Compare the Best Free Screen Recorders on Windows OS</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-filmoras-peers-the-best-slide-show-template-collections/"><u>[Updated] In 2024, Filmora's Peers The Best Slide Show Template Collections</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-swift-solutions-for-the-windows-10-photos-app-stability-woes/"><u>[Updated] In 2024, Swift Solutions for the Window's 10 Photos App Stability Woes</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-ultimate-guide-to-sound-changes-in-ps-console-games/"><u>[Updated] In 2024, The Ultimate Guide to Sound Changes in PS Console Games</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-transforming-simple-videos-text-addition-in-windows-10s-photos-software/"><u>[Updated] Transforming Simple Videos Text Addition in Windows 10'S Photos Software</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-smart-strategies-to-modify-user-numbers-on-tiktok/"><u>2024 Approved Smart Strategies to Modify User Numbers on TikTok</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-my-xiaomi-redmi-note-12t-pro-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Xiaomi Redmi Note 12T Pro Location Is Wrong | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/iconic-stock-photographs-meme-lives-and-histories-for-2024/"><u>Iconic Stock Photographs Meme Lives and Histories for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-seamless-blob-disposal-in-photopeas-interface/"><u>In 2024, Seamless Blob Disposal in Photopea's Interface</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-your-one-stop-guide-30-prime-websites-offering-free-vectr-and-graphic-services/"><u>In 2024, Your One-Stop Guide 30 Prime Websites Offering Free Vectr & Graphic Services</u></a></li>
-<li><a href="https://fox-info.techidaily.com/innovative-ai-names-for-podcasts-the-ultimate-guide-for-2024/"><u>Innovative AI Names for Podcasts – The Ultimate Guide for 2024</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-2024-approved-unlocking-visual-content-creation-an-overview-of-pexels-usage/"><u>New 2024 Approved Unlocking Visual Content Creation An Overview of Pexels Usage</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solve-your-rec-room-microphone-problems-on-pc-a-comprehensive-guide/"><u>Solve Your Rec Room Microphone Problems on PC: A Comprehensive Guide</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-filmmakers-guide-to-stunning-spherical-videos-9-must-knows-for-2024/"><u>The Filmmaker's Guide to Stunning Spherical Videos (9 Must-Knows) for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-listening-guide-to-best-headphones-2024-edition/"><u>The Ultimate Listening Guide to Best Headphones, 2024 Edition</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-expert-guide-choosing-best-bdr-players-on-windowsmacos-for-2024/"><u>[New] Expert Guide Choosing Best BDR Players on Windows/macOS for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-explore-elite-data-vaults-best-storages-reviewed/"><u>[New] Explore Elite Data Vaults Best Storages Reviewed</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-simplest-scan-capture-app-on-windows-10/"><u>[New] Simplest Scan-Capture App on Windows 10</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-unlock-video-brilliance-through-advanced-chroma-techniques-11-steps-for-2024/"><u>[New] Unlock Video Brilliance Through Advanced Chroma Techniques (11 Steps) for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-crafting-cinematic-memories-with-music/"><u>[Updated] In 2024, Crafting Cinematic Memories with Music</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-examining-vidma-as-a-video-recorder-for-screens/"><u>2024 Approved Examining Vidma as a Video Recorder for Screens</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722960592681-download-updated-geforce-drivers-enhance-your-experience-on-windows-1011-with-rtx-2080-supers/"><u>Download Updated GeForce Drivers: Enhance Your Experience on Windows 10/11 with RTX 2080 Supers</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Sony Xperia 10 V? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-xiaomi-13-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Xiaomi 13 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/tune-your-status-on-whatsapp-for-2024/"><u>Tune Your Status on WhatsApp for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unveiling-the-best-10-online-background-variant-software-for-2024/"><u>Unveiling the Best 10 Online Background Variant Software for 2024</u></a></li>
 </ul></div>
-
-
-
 

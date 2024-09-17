@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Quick Guide  Activating/Deactivating Picture In Picture (PIP) for YouTube for 2024\""
-date: 2024-09-11T05:15:17.131Z
-updated: 2024-09-12T05:15:17.131Z
+date: 2024-09-16T05:31:35.279Z
+updated: 2024-09-17T03:18:56.012Z
 tags: 
   - screen-recording
   - ai video
@@ -22,13 +22,10 @@ Picture in Picture is now available on YouTube on all platforms and devices in t
 
 After opening the video in PIP mode, you can do things around on the screen of your device as the video plays on a floating window. You will be able to resize and drag the window along as you carry along with other activities on your phone or PC.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
 
 ## Part 1\. How to enable Picture in Picture for YouTube on iPhone
 
@@ -42,38 +39,10 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 
 ![enable pip on iphone](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-1.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128842/7443" target="_top" id="2128842">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128842" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128842/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 1. If you require a **YouTube PIP** shortcut app on your device to proceed, you can download it from App Store or [the Shortcuts Gallery browser](https://shortcutsgallery.com/shortcuts/youtube-pip/) and then add it to your Shortcut Library.
 2. Open the **YouTube PIP** Shortcut and tap **Get Shortcut** on the App. You will be redirected to the shortcut application on your phone. If you don't have the shortcut application, you can download it from the App Store.
 
 ![shortcut application](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-2.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 1. Tap **Allow Untrusted Shortcuts** in the Shortcut Application on your device
 2. Now go to the actual YouTube App and start to play a video
@@ -84,64 +53,16 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 
 ![scriptable app](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-3.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 1. Tap on **View in App Store** on the screen that appears. This will direct you to the App Store.
 2. On the next screen that appears, download [**Scriptable App**](https://apps.apple.com/us/app/scriptable/id1405459188). Get back to the home screen and launch Scriptable App once.
 
 ![download scriptable app](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-4.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 1. Go to YouTube again and start any video. Tap the **Share icon**, scroll to the right and tap the **More icon**, go ahead and tap the YouTube PIP. And on the burner that pops up at the top of the screen of your phone, tap **OK**.
 
 ![floating screen](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-5.jpg)
 
 And there you go, now you will be able to watch your videos on a floating screen. This procedure may be pretty tedious, but it is all worth it if you follow keenly to the end. You will do it only once.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Part 2\. How to Disable Picture in Picture for YouTube on iPhone
 
@@ -194,19 +115,19 @@ And with the Control Commands, you can get into PIP on Mac very easily in only t
 
 ![get into pip on mac](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-7.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-
-
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -240,62 +161,17 @@ Picture in Picture is a computer utility feature in the USA. It has not been lau
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-navigating-the-world-of-drone-races-and-top-fpv-choices/"><u>[New] 2024 Approved Navigating the World of Drone Races & Top FPV Choices</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-premium-platforms-for-virtual-shows/"><u>[New] 2024 Approved Premium Platforms for Virtual Shows</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-smart-shopping-top-6-low-cost-action-cams-under-100/"><u>[New] 2024 Approved Smart Shopping Top 6 Low-Cost ACTION Cams Under $100</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-ultimate-choice-top-tier-webcam-mounts-and-grips/"><u>[New] 2024 Approved Ultimate Choice Top-Tier Webcam Mounts & Grips</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-vivavideo-review-insights-and-impressions/"><u>[New] 2024 Approved VivaVideo Review Insights and Impressions</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-best-photo-background-blur-apps-for-iphone-and-android-phones/"><u>[New] Best Photo Background Blur Apps for iPhone and Android Phones</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-captivate-with-crafted-cost-free-comic-templates/"><u>[New] Captivate with Crafted, Cost-Free Comic Templates</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-elevate-your-editing-game-with-speed-control-skills/"><u>[New] Elevate Your Editing Game with Speed Control Skills</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-essential-list-premier-online-church-service-sites/"><u>[New] In 2024, Essential List Premier Online Church Service Sites</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-installation-masterclass-transitioning-to-macos-sierra/"><u>[New] In 2024, Installation Masterclass Transitioning to macOS Sierra</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-unveiling-the-magic-of-films-mood-with-colors/"><u>[New] In 2024, Unveiling the Magic of Film's Mood with Colors</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-shoes-for-virtual-ground-leading-treadmill-insights-for-2024/"><u>[New] Shoes for Virtual Ground Leading Treadmill Insights for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-speedsters-top-windows-photos-viewer/"><u>[New] Speedster's Top Windows Photos Viewer</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-the-art-of-influencing-amplifying-instagram-post-reach-for-2024/"><u>[New] The Art of Influencing Amplifying Instagram Post Reach for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-the-key-to-smooth-segments-crossfade-logic-pro-steps-for-2024/"><u>[New] The Key to Smooth Segments Crossfade Logic Pro Steps for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-comic-creators-charter-zero-cost-endless-laughs/"><u>[Updated] 2024 Approved Comic Creators' Charter Zero Cost, Endless Laughs</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-find-your-next-vector-the-best-10-pics-sites/"><u>[Updated] 2024 Approved Find Your Next Vector The Best 10 Pics Sites</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-creating-engaging-visual-narratives-from-photographs-using-pixiz-written/"><u>[Updated] Creating Engaging Visual Narratives From Photographs Using Pixiz' Written</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-design-memes-in-adobe-for-2024/"><u>[Updated] Design Memes in Adobe for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-designing-instagrams-ideal-square-video-with-imovie/"><u>[Updated] Designing Instagram's Ideal Square Video with iMovie</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-glacial-glory-pinnacle-sports-achievements-for-2024/"><u>[Updated] Glacial Glory Pinnacle Sports Achievements for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-advanced-tips-for-removing-backgrounds-in-affinity-photo/"><u>[Updated] In 2024, Advanced Tips for Removing Backgrounds in Affinity Photo</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-mastering-the-art-of-focused-cinematography-on-kinemaster/"><u>[Updated] In 2024, Mastering the Art of Focused Cinematography on Kinemaster</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-obsessed-with-broadcasting-choose-between-xsplit-and-obs/"><u>[Updated] In 2024, Obsessed with Broadcasting? Choose Between XSplit & OBS</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-streamlining-social-sessions-with-zoom-and-facebook-live-techniques/"><u>[Updated] In 2024, Streamlining Social Sessions with ZOOM & Facebook Live Techniques</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-movavi-pro-video-review-the-new-standard/"><u>[Updated] Movavi Pro Video Review – The New Standard</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-the-social-media-sphere-speaking-up-to-fans/"><u>[Updated] The Social Media Sphere Speaking Up to Fans</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-visual-identity-simplified-personalized-branding-using-no-cost-templates/"><u>[Updated] Visual Identity Simplified Personalized Branding Using No-Cost Templates</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-honor-magic-6-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Honor Magic 6 without App | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-music-from-honor-magic-6-lite-by-fonelab-android-recover-music/"><u>Best Android Data Recovery - Undelete Lost Music from Honor Magic 6 Lite</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-zte-blade-a73-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on ZTE Blade A73 5G | Dr.fone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fix-my-broken-headphones-on-windows-11-solutions-and-tips-for-successful-setup/"><u>Fix My Broken Headphones on Windows 11: Solutions & Tips for Successful Setup</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Oppo Reno 8T | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-fix-no-matches-on-bumble/"><u>How to Fix No Matches on Bumble</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-motorola-moto-g73-5g-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Motorola Moto G73 5G Fingerprint Lock</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-gif-to-sticker-guide-mastering-conversion-on-discord-whatsapp-telegram/"><u>In 2024, GIF to Sticker Guide Mastering Conversion on Discord, WhatsApp, Telegram</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-many-attempts-to-unlock-apple-iphone-xr-drfone-by-drfone-ios/"><u>In 2024, How Many Attempts To Unlock Apple iPhone XR | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On OnePlus Nord 3 5G? | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-reviving-the-past-essential-vhs-visuals-in-todays-edits/"><u>In 2024, Reviving the Past Essential VHS Visuals in Today's Edits</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-step-by-step-mastering-ppros-full-screen-preview/"><u>In 2024, Step-by-Step Mastering PPro's Full Screen Preview</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-top-online-tips-creating-title-magic/"><u>In 2024, Top Online Tips Creating Title Magic</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-top-strategies-for-high-fidelity-video-conversion-to-dvd/"><u>In 2024, Top Strategies for High-Fidelity Video Conversion to DVD</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lead-with-eloquence-mastery-of-business-communication/"><u>Lead with Eloquence: Mastery of Business Communication</u></a></li>
-<li><a href="https://fox-info.techidaily.com/mastering-multimedia-adding-apple-music-to-videos/"><u>Mastering Multimedia Adding Apple Music to Videos</u></a></li>
-<li><a href="https://fox-info.techidaily.com/pre-purchase-key-facts-every-drone-buyer-should-know-for-2024/"><u>Pre-Purchase Key Facts Every Drone Buyer Should Know for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/scriptwriting-the-creative-process/"><u>Scriptwriting The Creative Process</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/step-by-step-guide-to-control-video-pace-in-instagram-for-2024/"><u>Step-by-Step Guide to Control Video Pace in Instagram for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/top-10-pc-vr-headsets-for-2024/"><u>Top 10 PC VR Headsets for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-transforming-team-meeting-aesthetics-the-prepost-customization-angle/"><u>[New] Transforming Team Meeting Aesthetics The Pre/Post Customization Angle</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-expert-techniques-for-capturing-minute-details-on-video/"><u>[Updated] 2024 Approved Expert Techniques for Capturing Minute Details on Video</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-harnessing-online-revenue-multiplatform-studio-use/"><u>[Updated] Harnessing Online Revenue Multiplatform Studio Use</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-making-your-twitter-videos-dance-convert-them-into-expressive-animated-gifs/"><u>2024 Approved Making Your Twitter Videos Dance Convert Them Into Expressive Animated GIFs</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Motorola Moto G84 5G | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/innovative-shortcuts-for-windows-photos-enthusiasts/"><u>Innovative Shortcuts for Windows Photos Enthusiasts</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/introducing-the-new-cross-platform-video-editor-compatible-with-chrome-os-and-android-devices/"><u>Introducing the New Cross-Platform Video Editor: Compatible with Chrome OS & Android Devices</u></a></li>
+<li><a href="https://fox-info.techidaily.com/laptop-video-edits-going-off-inshot/"><u>Laptop Video Edits Going Off-Inshot</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/the-ultimate-guide-to-text-tracking-software-for-2024/"><u>The Ultimate Guide to Text Tracking Software for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/unveil-the-subject-background-removal-techniques-in-photopea-for-2024/"><u>Unveil the Subject Background Removal Techniques in Photopea for 2024</u></a></li>
 </ul></div>
-
-
-
 
