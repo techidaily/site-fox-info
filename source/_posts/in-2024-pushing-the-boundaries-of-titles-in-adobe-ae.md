@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Pushing the Boundaries of Titles in Adobe AE"
-date: 2024-07-12T12:04:45.558Z
-updated: 2024-07-13T12:04:45.558Z
+date: 2024-09-15T18:16:18.305Z
+updated: 2024-09-21T22:04:25.215Z
 tags: 
   - screen-recording
   - ai video
@@ -95,6 +95,13 @@ Step3 Go to Timeline and click on the text layer to expand it. Click on Animate 
 
 ![add keyframes in after effects](https://images.wondershare.com/filmora/article-images/2022/09/add-keyframes-in-after-effects.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Apart from the animate option and its parameters, there are several parameters such as transform that you can adjust to edit the text effect as per your preference.
 
 ## Part 3\. AE Alternative to Edit Text Effects in Video
@@ -120,6 +127,13 @@ Step3 Double-click on the text layer on the timeline to edit the text preset. Yo
 Step4 Go to Animation section and click on Advanced button. Change different parameters under Customize section such as Blue, Opacity, Shadow, and much more. You can create keyframes on the timeline like AE and edit parameters as per your preference.
 
 ![add animation text in filmora](https://images.wondershare.com/filmora/article-images/2022/09/add-animation-text-in-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4\. Related FAQs of Title Effects in After Effects
 
@@ -155,6 +169,13 @@ If you want to zoom in and zoom out animation for your text or title, you can us
 
 There are different variations of zoom in and out effect that you can try on your text and title to make animation creative and visually appealing. On the other hand, position refers to the location of the text on the video frame depending on X, Y, and Z axis values.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Blur and Opacity
 
 You must have seen the text animation where the blurry text comes into focus and this can be achieved using Blur parameter. Many people confused Blur with Opacity but blur refers to out of focus while opacity can be understood by fade in and fade out effect. You can adjust the horizontal and vertical blur amount separately and you can come up with stunning text animations by changing Blur value.
@@ -168,6 +189,13 @@ Similarly, the stroke color can be changed and you can create an animation with 
 ### 6\. Skew
 
 If you want your text to be distorted and unusual, the skew parameter is there for you in After Effects. Skew means the character will not stay parallel and at right angles. You can adjust the skew value make texts distorted and this is useful in several text animations where distorted texts become normal texts. You can also skew texts in respect to different axis for creative animation.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 7\. Tracking
 
@@ -217,6 +245,13 @@ Step3 Double-click on the text layer on the timeline to edit the text preset. Yo
 
 ![text preset settings filmora](https://images.wondershare.com/filmora/article-images/2022/09/text-preset-settings-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 Go to Animation section and click on Advanced button. Change different parameters under Customize section such as Blue, Opacity, Shadow, and much more. You can create keyframes on the timeline like AE and edit parameters as per your preference.
 
 ![add animation text in filmora](https://images.wondershare.com/filmora/article-images/2022/09/add-animation-text-in-filmora.jpg)
@@ -257,6 +292,22 @@ Motion title is a dynamic text effect template available in After Effects throug
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-legacy-in-pixels-iphone-x-memories-photography/"><u>[New] 2024 Approved Legacy in Pixels IPhone X Memories Photography</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-boost-communication-how-to-use-google-hangouts-on-mobile/"><u>[New] In 2024, Boost Communication How to Use Google Hangouts on Mobile</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-simplified-guide-to-accurate-profile-ages-on-tiktok-for-2024/"><u>[New] Simplified Guide to Accurate Profile Ages on TikTok for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-unlocking-kinemasters-full-potential-in-zoomed-sections/"><u>[Updated] 2024 Approved Unlocking Kinemaster's Full Potential in Zoomed Sections</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-crafting-stories-the-ultimate-youtube-channel-list-for-2024/"><u>[Updated] Crafting Stories - The Ultimate YouTube Channel List for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-bare-bones-budget-friendly-best-5-windows-10-recording-apps/"><u>[Updated] In 2024, Bare-Bones, Budget-Friendly Best 5 Windows 10 Recording Apps</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-effortless-laptop-viewing-with-top-ranked-apps/"><u>[Updated] In 2024, Effortless Laptop Viewing with Top-Ranked Apps</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2023-how-to-watch-facebook-live-in-2024/"><u>2023 | How to Watch Facebook Live, In 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-selecting-the-right-video-subscription-plan-at-vimeo/"><u>2024 Approved Selecting the Right Video Subscription Plan at Vimeo</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/adding-depth-with-customized-facebook-slideshows-for-2024/"><u>Adding Depth with Customized Facebook Slideshows for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-realme-gt-5-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Realme GT 5? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/easy-steps-on-how-to-create-a-new-apple-id-account-on-iphone-15-plus-drfone-by-drfone-ios/"><u>Easy Steps on How To Create a New Apple ID Account On iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-navigating-the-best-lipo-cells-for-quality-flight-time/"><u>In 2024, Navigating the Best LiPo Cells for Quality Flight Time</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/say-goodbye-to-crackles-and-clipping-eliminating-audio-problems-on-your-pc-with-windows-11-or-7/"><u>Say Goodbye to Crackles & Clipping: Eliminating Audio Problems on Your PC with Windows 11 or 7</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshoot-inaccessible-camera-problem-on-snap-effective-tips/"><u>Troubleshoot Inaccessible Camera Problem on Snap: Effective Tips</u></a></li>
+</ul></div>
 

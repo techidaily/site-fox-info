@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Essential Guide to Premium Extensions"
-date: 2024-09-14T08:32:59.724Z
-updated: 2024-09-17T05:06:00.717Z
+date: 2024-09-17T23:53:04.081Z
+updated: 2024-09-21T23:35:16.737Z
 tags: 
   - screen-recording
   - ai video
@@ -50,10 +50,10 @@ If you want to effectively use the After Effects expressions even if you are not
 ![iexpression 2 plugin](https://images.wondershare.com/filmora/article-images/2022/07/iexpression-2-plugin.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## TextBox
@@ -64,26 +64,6 @@ If you want to create the perfect shape behind your text, then TextBox is a good
 
 ![text box plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-box-plugin.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Font Manager
 
 Link: <https://aescripts.com/font-manager/>
@@ -93,10 +73,10 @@ Font Manager is an After Effects text plugin that is useful when creating and wo
 ![font manager plugin](https://images.wondershare.com/filmora/article-images/2022/07/font-manager-plugin.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Cartoon Moblur
@@ -106,6 +86,13 @@ Link: <https://www.toolfarm.com/buy/plugin%5Feverything%5Fcartoon%5Fmoblur>
 This is the most ideal plugin to choose when you want to add motion trail to the graphics in your video, but you want them to appear very cartoony. If you have used the motion blur effect in After Effects, Cartoon Moblur will behave in a similar function, but it is more suited to 2D, flat or minimal graphics. Some of the factors that you can customize include the length of the blur (shutter angle), color, and opacity.
 
 ![cartoon moblur plugin](https://images.wondershare.com/filmora/article-images/2022/07/cartoon-moblur-plugin.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Shadow Studio
 
@@ -122,10 +109,10 @@ This is a bundle of more than 80 different templates to add text effects to any 
 ![texts animation bundle plugin](https://images.wondershare.com/filmora/article-images/2022/07/texts-animation-bundle-plugin.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Artificial Intelligence Titles
@@ -135,6 +122,13 @@ Link: <https://videohive.net/item/ait-artificial-intelligence-titles/22124640?s%
 The Artificial Intelligence Titles is an After Effects text plugin that is designed to be the ultimate typographical solution. Once you have it in After Effects, you can enter any text and the plugin will automatically adjust the entire layout of the text. You can choose to create awesome text boxes, change the color, add special effects and even change the duration, speed, size, and positioning of the text. It also allows users to customize the text animation’s direction without using a keyframe.
 
 ![artificial intelligence titles plugin](https://images.wondershare.com/filmora/article-images/2022/07/artificial-intelligence-titles-plugin.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Text Library
 
@@ -178,15 +172,15 @@ On its own After Effects comes with so many post-production effects and features
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-illuminating-images-in-lightroom-a-step-by-step-hdr-guide-for-2024/"><u>[New] Illuminating Images in Lightroom A Step-by-Step HDR Guide for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-toolwiz-visualize-a-comprehensive-2023-evaluation-for-2024/"><u>[New] Toolwiz Visualize - A Comprehensive 2023 Evaluation for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-twitch-content-integration-boosting-engagement-with-fb-sharing-for-2024/"><u>[New] Twitch Content Integration Boosting Engagement with FB Sharing for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-become-a-zoom-pro-navigating-the-best-practices-for-snaps-in-snapchat/"><u>[Updated] In 2024, Become a Zoom Pro Navigating the Best Practices for Snaps in Snapchat</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/elevate-your-business-practices-using-chatgpt-8-insider-secrets-revealed/"><u>Elevate Your Business Practices Using ChatGPT – 8 Insider Secrets Revealed</u></a></li>
-<li><a href="https://fox-info.techidaily.com/enhance-your-iphone-hd-video-clarity-in-premiere-pro-effortlessly-for-2024/"><u>Enhance Your iPhone HD Video Clarity in Premiere Pro Effortlessly for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fixing-dota-2s-audio-problems-how-to-get-your-mic-back-online/"><u>Fixing Dota 2'S Audio Problems: How to Get Your Mic Back Online</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-hidefake-snapchat-location-on-your-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your ZTE Blade A73 5G | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Oppo K11x | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/stop-default-save-problems-on-windows-systems/"><u>Stop 'Default Save' Problems on Windows Systems</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-most-effective-5-image-editing-programs-on-iphone-x-7-8/"><u>[New] In 2024, Most Effective 5 Image Editing Programs on iPhone (X, 7, 8)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-practical-steps-in-mastering-telegram-web-services/"><u>[Updated] In 2024, Practical Steps in Mastering Telegram Web Services</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-simplified-srt-transformation-from-ttml-xml-and-ssa/"><u>[Updated] In 2024, Simplified SRT Transformation From TTML, XML & SSA</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-top-3ips-most-acclaimed-ipad-audio-capturing-tools/"><u>[Updated] Top 3iP's Most Acclaimed iPad Audio Capturing Tools</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-audio-alchemy-fusing-music-and-visuals-on-instagram/"><u>2024 Approved Audio Alchemy Fusing Music and Visuals on Instagram</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enriching-meta-descriptions-a-template-transformation-journey/"><u>Enriching Meta Descriptions A Template Transformation Journey</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-elite-10-hash-trackers-for-major-social-networks-fb-twt-and-ig/"><u>In 2024, Elite 10 Hash Trackers for Major Social Networks FB, Twt & IG</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-essential-8-linux-software-for-editors/"><u>In 2024, Essential 8 Linux Software for Editors</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-leading-spots-for-digital-3d-glamour-text-artistry/"><u>In 2024, Leading Spots for Digital 3D Glamour Text Artistry</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/ultimate-capture-top-video-screenshot-tools/"><u>Ultimate Capture Top Video Screenshot Tools</u></a></li>
 </ul></div>
 

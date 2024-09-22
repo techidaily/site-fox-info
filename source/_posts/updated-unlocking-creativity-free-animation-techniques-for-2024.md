@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unlocking Creativity  Free Animation Techniques for 2024\""
-date: 2024-09-12T03:39:14.982Z
-updated: 2024-09-17T00:58:01.595Z
+date: 2024-09-14T22:50:45.282Z
+updated: 2024-09-22T01:32:53.905Z
 tags: 
   - screen-recording
   - ai video
@@ -107,37 +107,24 @@ The title in the preview may be clicked to alter the text. Additionally, you may
 
 ![add edit text imovie](https://images.wondershare.com/filmora/article-images/2022/09/add-edit-text-imovie.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step4 Include Animations to Texts
 
 Now choose the appropriate title under the Titles menu. You may get a brief live preview of the titles by moving your cursor over them. Drag the one you prefer into your timeline after you've discovered it. Type whatever text you like in the text box by selecting the Text icon at the top of the interface, and then choose the Animate button to give it an animated effect.
 
 ![include animation to text imovie](https://images.wondershare.com/filmora/article-images/2022/09/include-animation-to-text-imovie.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step5 Export the Project
 
 After finishing your Keynote text animation, export it sing Share > File and then select the format. To obtain the best results, be sure to export in high resolution for a better experience.
 
 ![export media from imovie](https://images.wondershare.com/filmora/article-images/2022/09/export-media-from-imovie.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4\. How to Add Free Animation to Video on Mobile
 
@@ -158,10 +145,10 @@ By clicking the random button, you may create an entirely new color combination 
 ![add text textro](https://images.wondershare.com/filmora/article-images/2022/09/add-text-textro.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step3 Add Animated Template and Customize
@@ -169,6 +156,13 @@ By clicking the random button, you may create an entirely new color combination 
 From the list of templates in both Fonts and Colors tab, select the best suited one and add it to the text. In this way, you can add text adjustments while customizations hand in hand.
 
 ![select text color textro](https://images.wondershare.com/filmora/article-images/2022/09/select-text-color-textro.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step4 Save the Project
 
@@ -218,13 +212,6 @@ On your Mac, iMovie should already be installed; if not, go to the app store and
 
 ![launch imove application](https://images.wondershare.com/filmora/article-images/2022/09/launch-imove-application.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step2 Import Videos
 
 The next step is to import your video, Download the picture, open it in any photo editor, remove the black borders around it, and then add whatever text you choose. To choose a clip instead, pick the import footage option.
@@ -250,10 +237,16 @@ After finishing your Keynote text animation, export it sing Share > File and the
 ![export media from imovie](https://images.wondershare.com/filmora/article-images/2022/09/export-media-from-imovie.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4\. How to Add Free Animation to Video on Mobile
@@ -273,6 +266,19 @@ To get started, just download the app. It will ask you to add text when you firs
 By clicking the random button, you may create an entirely new color combination or change the color scheme of the post using the options that are currently available.
 
 ![add text textro](https://images.wondershare.com/filmora/article-images/2022/09/add-text-textro.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step3 Add Animated Template and Customize
 
@@ -314,18 +320,18 @@ After all, during the last several years, videos have been one of the most popul
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-box-opening-marketing-mastery-for-2024/"><u>[New] Box-Opening Marketing Mastery for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-the-full-scale-of-precision-a-review-of-asus-pa32us-capabilities-for-2024/"><u>[New] The Full Scale of Precision A Review of Asus PA32U's Capabilities for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-xsplit-assortment-comprehensive-gaming-evaluations/"><u>[New] XSplit Assortment Comprehensive Gaming Evaluations</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-the-innovators-playbook-for-premiere-pro-fullscreen-edits/"><u>[Updated] 2024 Approved The Innovator's Playbook for Premiere Pro Fullscreen Edits</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-essential-guide-to-windows-11-photovideo-importing-techniques-for-2024/"><u>[Updated] Essential Guide to Windows 11 Photo/Video Importing Techniques for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-enhancing-media-workflow-the-rise-of-magix-vpx/"><u>[Updated] In 2024, Enhancing Media Workflow The Rise of Magix VPX</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unleash-the-potential-of-pip-in-microsoft-edge-browser/"><u>[Updated] In 2024, Unleash the Potential of PIP in Microsoft Edge Browser</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-decoding-the-mystery-insider-knowledge-on-story-watchers/"><u>2024 Approved Decoding the Mystery Insider Knowledge on Story Watchers</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-personalizing-communication-sounds-a-comprehensive-guide-for-whatsapp-ringtone-lovers/"><u>2024 Approved Personalizing Communication Sounds A Comprehensive Guide for WhatsApp Ringtone Lovers</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Nokia C12 Pro | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-my-spouse-from-spying-on-my-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop My Spouse from Spying on My Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-realme-v30-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Realme V30 Data? | Dr.fone</u></a></li>
-<li><a href="https://driver-install.techidaily.com/no-hassle-just-scsi-driver-download/"><u>No Hassle, Just SCSI Driver Download</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-achieve-proficiency-in-audio-upload-with-google-for-2024/"><u>[New] Achieve Proficiency in Audio Upload with Google for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-explore-top-10-apples-affordable-and-free-image-collage-applications-for-2024/"><u>[New] Explore Top 10 Apple's Affordable & Free Image Collage Applications for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-explore-windows-10s-best-new-applications-and-games/"><u>[New] In 2024, Explore Windows 10'S Best New Applications & Games</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-making-a-mark-creating-standout-slideshows-for-facebook-networks/"><u>[New] In 2024, Making a Mark Creating Standout Slideshows for Facebook Networks</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-discover-the-leading-8-web-resources-for-free-3d-text-psdfiles/"><u>[Updated] In 2024, Discover the Leading 8 Web Resources for Free 3D Text PSDFiles</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-tactics-for-pinpointing-ideal-podcast-debut-days/"><u>[Updated] In 2024, Tactics for Pinpointing Ideal Podcast Debut Days</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-comprehensive-guide-to-icloud-unlock-on-iphone-x-online-by-drfone-ios/"><u>A Comprehensive Guide to iCloud Unlock On iPhone X Online</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/exclusive-list-12-flawless-non-timebound-tools-for-2024/"><u>Exclusive List 12 Flawless Non-Timebound Tools for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/fixing-connectivity-errors-ralink-rt3290-driver-troubleshooting-for-win-1187-users/"><u>Fixing Connectivity Errors: Ralink RT3290 Driver Troubleshooting for Win 11/8/7 Users</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Xiaomi 13T? | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/innovative-vfx-equipment-for-eco-warriors/"><u>Innovative VFX Equipment for Eco Warriors</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/maximize-your-productivity-mastering-anthropics-latest-claude-3-prompt-store-features/"><u>Maximize Your Productivity: Mastering Anthropic’s Latest Claude 3 Prompt Store Features</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/transformative-ai-customized-chatbot-via-gpt-techniques/"><u>Transformative AI: Customized ChatBot via GPT Techniques</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Smartphone Security Systems  Apple’s X Vs. Samsung's Facial Tech\""
-date: 2024-07-12T12:03:01.748Z
-updated: 2024-07-13T12:03:01.748Z
+date: 2024-09-16T16:14:56.445Z
+updated: 2024-09-21T20:42:04.289Z
 tags: 
   - screen-recording
   - ai video
@@ -65,6 +65,13 @@ thumbnail: https://thmb.techidaily.com/ed1580a633035850affefcaff2905a61682a6fee4
 
 ![face ID incovenience](https://images.wondershare.com/filmora/article-images/face-incovenience.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: Safety Issue
 
  Ensuring safety is one of the main concern people have and the face recognition technology in both the devices has done pretty well. Apple uses the TrueDepth camera system which includes flood illuminator, IR camera as well as dot projector to make the face recognized in all possible ways. It has been claimed by the company that the possibility of unlocking the device by a random person’s face is 1 in 1,000,000\. Besides this, Apple had made sure to let people try only 5 face attempts after which they will require to enter the passcode. The probability though doesn’t work same for twins and the family members who resemble you. Also, the children who are less than 13 are able to trick you since they don’t have fully developed facial features.
@@ -84,6 +91,13 @@ thumbnail: https://thmb.techidaily.com/ed1580a633035850affefcaff2905a61682a6fee4
  The technology of facial recognition isn’t new to us and it has made people excited from the time it has come. However, many users have not started using the technology yet. We hope that this functionality will gain the popularity with time and people will start to make use of it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -108,6 +122,20 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-adding-music-to-photo-online/"><u>[New] 2024 Approved Adding Music to Photo Online</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-dive-into-camtasias-ken-burns-feature-rich-tutorial/"><u>[New] Dive Into Camtasia’s Ken Burns Feature-Rich Tutorial</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-effective-strategies-to-craft-influential-patient-stories-on-film-for-2024/"><u>[Updated] Effective Strategies to Craft Influential Patient Stories on Film for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-complete-overview-of-full-scene-in-ppro/"><u>[Updated] In 2024, Complete Overview of Full Scene in PPro</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-minimal-shake-cam-for-dynamic-shooting/"><u>[Updated] In 2024, Minimal-Shake Cam for Dynamic Shooting</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-essential-iphone-skills-photo-resizing-guide/"><u>2024 Approved Essential iPhone Skills Photo Resizing Guide</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-new-youtube-earning-rules-unveiled/"><u>2024 Approved New YouTube Earning Rules Unveiled</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-become-a-design-pro-expertise-in-bypassing-backgrounds-with-canva/"><u>In 2024, Become a Design Pro Expertise in Bypassing Backgrounds with Canva</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/in-2024-create-lip-sync-tiktok-videos-without-installing-any-app/"><u>In 2024, Create Lip Sync TikTok Videos Without Installing Any App</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-redmi-13c-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Xiaomi Redmi 13C Phone Without Password?</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/quick-fix-to-amd-ryzen-issues-safe-driver-updates-and-downloads-here/"><u>Quick Fix to AMD Ryzen Issues? Safe Driver Updates and Downloads Here</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-photos-after-samsung-has-been-deleted-by-fonelab-android-recover-photos/"><u>Recover your photos after Samsung has been deleted.</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/resolving-imgburn-inputoutput-io-errors-effectively/"><u>Resolving ImgBurn Input/Output (I/O) Errors Effectively</u></a></li>
+</ul></div>
 

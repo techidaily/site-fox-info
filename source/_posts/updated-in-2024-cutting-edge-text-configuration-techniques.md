@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Cutting-Edge Text Configuration Techniques\""
-date: 2024-09-10T22:34:37.023Z
-updated: 2024-09-17T03:04:57.973Z
+date: 2024-09-16T01:22:22.438Z
+updated: 2024-09-21T21:12:21.216Z
 tags: 
   - screen-recording
   - ai video
@@ -57,19 +57,6 @@ You should have simple but effective motion text effects in your video so that c
 
 ![motion type text animation preset](https://images.wondershare.com/filmora/article-images/2022/09/motion-type-text-animation-preset.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Typominal Typewriter Effect Preset
 
 There are two FFX files in the pack that lets you get a retro text effect along with the popular typewriter animation. Import the files and drop the effect on your text and you can adjust several parameters to create amazing text effects. The retro effect is very similar to watching something on old monitors with very low resolution.
@@ -82,18 +69,18 @@ If the regular stroke feature is not enough, you have tapered stroke preset that
 
 ![tapered stroke preset](https://images.wondershare.com/filmora/article-images/2022/09/tapered-stroke-preset.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. Stranger Things Text Preset
 
 This is a simple but highly effective text preset that gets the serious attention of the viewers. When you apply the effect, the text turns white to red with fade in effect and viewers are most likely to read the displayed text. There is no keyframe but you change the color as well as the fade-in time.
 
 ![stranger things text preset](https://images.wondershare.com/filmora/article-images/2022/09/stranger-things-text-preset.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6\. Text Styles Preset
 
@@ -222,10 +209,10 @@ You get 80 text presets in this pack that you can customize and make the texts a
 ![text animation bundle preset](https://images.wondershare.com/filmora/article-images/2022/09/text-animation-bundle-preset.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 8\. Kinetic Text Animation
@@ -241,10 +228,10 @@ If you want to keep the text animations simple but you want it to be different t
 ![universial text aniamtion preset](https://images.wondershare.com/filmora/article-images/2022/09/universial-text-aniamtion-preset.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 10\. Text Animation Lower Third
@@ -269,6 +256,13 @@ Step3Click on the text layer to expand it and you will see different parameters 
 
 ![adjust text layer after effects](https://images.wondershare.com/filmora/article-images/2022/09/adjust-text-layer-after-effects.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3\. Alternative Way to Create Text Effects for Video
 
 It is a fact that many find After Effects difficult to get used to as the user interface is not that friendly. If you are looking for the best alternative to After Effects, we recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). The user interface is super intuitive and anyone without prior experience can create text effects for any video instantly. There are different categories of text effects and animations available to satisfy the requirements of video creators. Here are the steps to add After Effects and Premiere Pro text presets using Filmora.
@@ -290,10 +284,10 @@ Step3Go to Titles and you will see different categories of text effects on the l
 ![select any desired template](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step4Double-click on the text layer and edit the text. Place the text layer on the timeline where you want the text to appear. You can also change the text styles and parameters as per your requirements.
@@ -332,15 +326,18 @@ If you decide to use Adobe After Effects to add text effects to your video, we h
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-elevate-your-videos-with-these-11-grading-guides/"><u>[New] Elevate Your Videos with These 11 Grading Guides</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-photoshop-for-beginners-essential-snapseed-techniques/"><u>[New] Photoshop for Beginners Essential Snapseed Techniques</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/he-ultimate-no-charge-frame-by-frame-youtube-tutorial/"><u>[New] The Ultimate No-Charge, Frame-by-Frame YouTube Tutorial</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-streamlined-savings-for-cloud-storage-costs-analysis/"><u>[Updated] 2024 Approved Streamlined Savings for Cloud Storage Costs Analysis</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unveiling-the-youtube-creator-hub-a-guide/"><u>[Updated] In 2024, Unveiling the YouTube Creator Hub A Guide</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-mastering-durecorder-complete-breakdown-for-2024/"><u>[Updated] Mastering DuRecorder Complete Breakdown for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-mastering-slow-motion-photography-in-phantom-cameras/"><u>[Updated] Mastering Slow-Motion Photography in Phantom Cameras</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/decoding-5-key-reasons-companies-shy-away-from-gpt-applications/"><u>Decoding 5 Key Reasons Companies Shy Away From GPT Applications</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-oppo-a59-5g-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Oppo A59 5G?</u></a></li>
-<li><a href="https://fox-info.techidaily.com/the-ultra-hd-advantage-in-samsungs-galaxy-s8/"><u>The Ultra HD Advantage in Samsung’s Galaxy S8</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-beneath-the-surface-assessing-huawei-p10-writability-features/"><u>[New] Beneath the Surface Assessing Huawei P10' Writability Features</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-benq-bl2711u-where-art-meets-science-in-professional-4k-monitoring/"><u>[New] In 2024, BenQ BL2711U - Where Art Meets Science in Professional 4K Monitoring</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-the-best-of-the-best-essential-tablet-sketching-tools/"><u>[New] In 2024, The Best of the Best Essential Tablet Sketching Tools</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-cross-platform-strategies-for-maximum-instagram-exposure-for-2024/"><u>[Updated] Cross-Platform Strategies for Maximum Instagram Exposure for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-voiceovers-unveiled-adding-depth-to-visual-storytelling/"><u>[Updated] In 2024, Voiceovers Unveiled Adding Depth to Visual Storytelling</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-youtubes-entry-level-manual-for-effective-channel-creation/"><u>[Updated] In 2024, Youtube's Entry-Level Manual for Effective Channel Creation</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-unveiling-premium-priced-no-cost-graphic-websites-for-2024/"><u>[Updated] Unveiling Premium-Priced, No-Cost Graphic Websites for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-exploring-the-value-of-sns-hdr-and-its-market-rivals/"><u>2024 Approved Exploring the Value of SNS HDR and Its Market Rivals</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/broadcasting-duels-is-wirecast-superior-to-obs/"><u>Broadcasting Duels Is Wirecast Superior to OBS?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/direct-to-streamer-content-twitch-versus-youtube-explored-for-2024/"><u>Direct-to-Streamer Content Twitch Versus YouTube Explored for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-itel-p55plus-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Itel P55+ If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/unveiling-the-art-of-digital-broadcasting-in-real-time-for-2024/"><u>Unveiling the Art of Digital Broadcasting in Real Time for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Lava Blaze Curve 5G? | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Innovative Ideas for Images with Professional Color Palette for 2024"
-date: 2024-07-12T12:03:15.086Z
-updated: 2024-07-13T12:03:15.086Z
+date: 2024-09-15T23:18:20.775Z
+updated: 2024-09-22T02:16:18.523Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,19 @@ Now do the tuning by navigating to the layer mask and also select the layers. Af
 
 ![use sliders to black or white](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-3.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Tip 3: Add Color to White Object
 
 If you want to add color to your black or white shirt, you can do it by “Hue and Saturation Adjustment Layer.” On this layer, tap on “Colorize” and choose the color you want to add. Another technique is to create a “Fill Adjustment Layer” and then change the blending mode into “Multiple.” Now, click on the “Color Picker,” and you can pick and choose your preferred color. If you want to add a dark color rather than a subtle color, change the mode to “Screen.”
@@ -61,6 +74,13 @@ Through the direct selection color picker, you can change the color of an object
 At the bottom of the options, you can see two points that will tell you about your chosen color and the ranges it offers. You can adjust the color by dragging the sliders manually. Now, adjust the layers of your image to make the colors of the image look better.
 
 ![change specific color to another color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Tip 5: Choose Object Color Range
 
@@ -76,6 +96,13 @@ Afterward, create a group in which add layers, mask, and adjustment layers to ch
 
 ![change hue for changing color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. Tip 6: Use Blend IF
 
 If you want to change the color of leaves on a tree, you can use the “Blend IF” option of Adobe Photoshop to precisely do the changes. Start with duplicating the existing layer and then hiding the second layer. Double click on the layer to open the menu and then use “Blend IF” sliders. This option works when you drag the sliders to black points, and it automatically hides the dark pixels of your photo.
@@ -88,9 +115,29 @@ This method only hides color based on their luminance values; however, this load
 
 ![convert to smart object](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-10.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 It helps the user create transparency across the layer. After hiding the layer and coming back to another object-specific layer, you can create a certain change in effect through adjustment layers. For instance, you can create a “Hue and Saturation” adjustment layer. With the above settings, Photoshop applies this as a layer mask for you. Use the sliders across the set layer to change the color across the selected areas.
 
 ![select your new color](https://images.wondershare.com/filmora/article-images/2022/change-photo-color-11.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 7\. Tip 7: Use Online Photo Editor to Change Colors
 
@@ -130,6 +177,20 @@ Changing the color of a photo can save us a lot of work done and effort. To effo
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-comparative-study-samsung-vs-traditional-photo-tools/"><u>[New] 2024 Approved Comparative Study Samsung vs Traditional Photo Tools</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-a-guide-to-coloring-composition-with-confidence-for-2024/"><u>[New] A Guide to Coloring Composition with Confidence for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-unveiling-the-lg-bp350-a-detailed-performance-and-design-study-for-2024/"><u>[New] Unveiling the LG BP350 A Detailed Performance & Design Study for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-the-ultimate-guide-to-tiktok-video-amplification/"><u>[Updated] 2024 Approved The Ultimate Guide to TikTok Video Amplification</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-enhance-visual-quality-in-your-obs-edits-today/"><u>[Updated] In 2024, Enhance Visual Quality in Your OBS Edits Today</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-professional-3d-design-apps-top-5-for-youtubers/"><u>[Updated] Professional 3D Design Apps - Top 5 for Youtubers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-turning-talk-into-top-tier-podcasts-writing-and-samples-included/"><u>[Updated] Turning Talk Into Top-Tier Podcasts Writing & Samples Included</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/economical-aerial-aviators-affordable-drones-guide-(500-for-2024/"><u>Economical Aerial Aviators Affordable Drones Guide <$500 for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/hp-printer-driver-download-and-update-for-windows-10-11/"><u>HP Printer Driver Download & Update for Windows 10, 11</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-frame-rate-selection-made-simple-pros-and-cons-of-30fps-and-60hz/"><u>In 2024, Frame Rate Selection Made Simple Pros and Cons of 30Fps and 60Hz</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-realme-12-5g-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Realme 12 5G Phones? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/streaming-smarts-engaging-viewers-on-multiple-networks-for-2024/"><u>Streaming Smarts Engaging Viewers on Multiple Networks for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/unlimited-premium-slide-decks-for-entrepreneurs-for-2024/"><u>Unlimited Premium Slide Decks for Entrepreneurs for 2024</u></a></li>
+</ul></div>
 

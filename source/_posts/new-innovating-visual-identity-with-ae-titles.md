@@ -1,7 +1,7 @@
 ---
 title: "[New] Innovating Visual Identity with AE Titles"
-date: 2024-07-12T12:04:57.651Z
-updated: 2024-07-13T12:04:57.651Z
+date: 2024-09-15T17:25:04.016Z
+updated: 2024-09-21T23:59:50.616Z
 tags: 
   - screen-recording
   - ai video
@@ -59,6 +59,13 @@ There are different variations of zoom in and out effect that you can try on you
 
 You must have seen the text animation where the blurry text comes into focus and this can be achieved using Blur parameter. Many people confused Blur with Opacity but blur refers to out of focus while opacity can be understood by fade in and fade out effect. You can adjust the horizontal and vertical blur amount separately and you can come up with stunning text animations by changing Blur value.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. Fill and Stroke
 
 When it comes to text formatting in animation, fill color and stroke color play a major role. You can change the fill of the text so that the text animation is about changing color randomly. There are different options available for fill color such as RGB, Hue, Saturation, and likewise.
@@ -113,6 +120,19 @@ Step2 Drag and drop the video clip onto timeline. Go to Titles option and you wi
 
 ![select background for text filmora](https://images.wondershare.com/filmora/article-images/2022/09/select-background-for-text-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Double-click on the text layer on the timeline to edit the text preset. You can select any available text style as well as adjust parameters from font and settings sections.
 
 ![text preset settings filmora](https://images.wondershare.com/filmora/article-images/2022/09/text-preset-settings-filmora.jpg)
@@ -165,6 +185,13 @@ When it comes to text formatting in animation, fill color and stroke color play 
 
 Similarly, the stroke color can be changed and you can create an animation with changing outline color. At the same time, you can adjust the stroke width to make the text look thick or thin as per your animation requirements.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. Skew
 
 If you want your text to be distorted and unusual, the skew parameter is there for you in After Effects. Skew means the character will not stay parallel and at right angles. You can adjust the skew value make texts distorted and this is useful in several text animations where distorted texts become normal texts. You can also skew texts in respect to different axis for creative animation.
@@ -191,9 +218,23 @@ Step2 Go to Effects and Presets panel, search for the desired text effect preset
 
 ![preview effects and presets ae](https://images.wondershare.com/filmora/article-images/2022/09/preview-effects-and-presets-ae.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Go to Timeline and click on the text layer to expand it. Click on Animate option and select any property that you want to adjust and create animation based on the parameters. Go to Keyframe section and add keyframes and change parameters for different keyframes for the text to animate.
 
 ![add keyframes in after effects](https://images.wondershare.com/filmora/article-images/2022/09/add-keyframes-in-after-effects.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Apart from the animate option and its parameters, there are several parameters such as transform that you can adjust to edit the text effect as per your preference.
 
@@ -257,6 +298,21 @@ Motion title is a dynamic text effect template available in After Effects throug
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-skyrocket-subscribers-and-engagement-top-12-video-promotion-tactics/"><u>[New] 2024 Approved Skyrocket Subscribers and Engagement - Top 12 Video Promotion Tactics</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-capturing-moments-perfecting-zooms-snap/"><u>[New] Capturing Moments Perfecting Zoom's Snap</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-beginners-pathway-utilizing-fade-transitions/"><u>[New] In 2024, Beginner's Pathway Utilizing Fade Transitions</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-ultimate-vision-ai-photography-workshop/"><u>[New] Ultimate Vision AI Photography Workshop</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-gopros-rivalry-with-drift-ghost-the-racing-camera-faceoff/"><u>[Updated] 2024 Approved GoPro's Rivalry with Drift Ghost - The Racing Camera Faceoff</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-mastering-the-art-of-modern-360-camera-purchases-2enas/"><u>[Updated] In 2024, Mastering the Art of Modern 360 Camera Purchases (2Enas)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-how-to-use-dslr-for-facebook-live-on-your-pc/"><u>2024 Approved How to Use DSLR for Facebook Live on Your PC?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-hustle-humor-fast-track-funny-with-kapwing/"><u>2024 Approved Hustle Humor Fast-Track Funny with Kapwing</u></a></li>
+<li><a href="https://network-issues.techidaily.com/correcting-inverted-screen-display-on-windows-7/"><u>Correcting Inverted Screen Display on Windows 7</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-videos-from-infinix-note-30-vip-racing-edition-by-fonelab-android-recover-video/"><u>Easy steps to recover deleted videos from Infinix Note 30 VIP Racing Edition</u></a></li>
+<li><a href="https://fox-info.techidaily.com/fun-on-a-budget-meme-creators-handbook/"><u>Fun on a Budget – Meme Creator’s Handbook</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-xiaomi-redmi-k70-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Xiaomi Redmi K70 Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-the-ultimate-recorders-bible-for-clear-conversations/"><u>In 2024, The Ultimate Recorder's Bible for Clear Conversations</u></a></li>
+<li><a href="https://fox-access.techidaily.com/ranking-of-free-easy-to-use-image-overlay-apps-on-smartphones-for-2024/"><u>Ranking of Free, Easy-to-Use Image Overlay Apps on Smartphones for 2024</u></a></li>
+</ul></div>
 

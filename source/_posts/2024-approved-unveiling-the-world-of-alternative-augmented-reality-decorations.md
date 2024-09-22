@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unveiling the World of Alternative Augmented Reality Decorations\""
-date: 2024-07-12T12:01:04.024Z
-updated: 2024-07-13T12:01:04.024Z
+date: 2024-09-16T05:16:41.180Z
+updated: 2024-09-21T23:05:32.509Z
 tags: 
   - screen-recording
   - ai video
@@ -92,6 +92,13 @@ Step3 Tap the "Frame" icon at the top right to adjust the video ratio. It's also
 
 ![changing canvas size on filmora](https://images.wondershare.com/filmorago/article-image/frame-icon-on-filmorago-camera.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 Select "Props" from the options at the bottom of the screen. Select the AR effect that you want to use.
 
 ![using an ar sticker on filmora](https://images.wondershare.com/filmorago/article-image/props-icon-on-filmorago-camera.jpg)
@@ -164,6 +171,19 @@ Filmora for Mobile's AR Camera feature has many things to offer. It lets you tak
 
 The best thing about Filmora AR Camera is it lets you record multiple videos with different AR stickers. Filmora for Mobile will automatically combine and arrange them.
 
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Use Filmora AR Camera To Record a Video
 
 Here's a tutorial on how to record an AR video & how to edit an AR selfie video on iPhone.
@@ -184,6 +204,13 @@ Step4 Select "Props" from the options at the bottom of the screen. Select the AR
 
 ![using an ar sticker on filmora](https://images.wondershare.com/filmorago/article-image/props-icon-on-filmorago-camera.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5 Tap the purple circle button at the bottom center of the screen to start recording a video.
 
 Step6 You'll see the video you recorded on the left side of the screen. Tap the "Edit" button to proceed to the video timeline.
@@ -193,6 +220,13 @@ Step6 You'll see the video you recorded on the left side of the screen. Tap the 
 Step7 Preview your video, edit as needed, and export it.
 
 ![exporting recorded video on filmora iphone](https://images.wondershare.com/filmorago/article-image/trim-the-animoji-video-you-record-on-filmorago.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### To Edit an AR Selfie Video on iPhone
 
@@ -238,6 +272,13 @@ AR Apps can be dangerous, but not all of them are. Keep in mind that AR apps can
 
 Vendors can also add malware or other things to the apps. So it's necessary that you always stay vigilant. As much as possible, download AR apps from vendors with a good reputation. That's how you ensure the app is not doing something nasty behind your back.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Google AR Stickers are great for enhancing your photos and videos. Too bad it's no longer available on newer Pixel devices. Luckily, other apps are available on the market, and they're available on more platforms. For example, Wondershare Filmora for Mobile has an AR Camera feature. It lets you add AR stickers to your photos and videos, then combine and edit them. The selection of AR effects is also wide. So, you can have loads of fun creating content using Filmora for Mobile.
@@ -264,6 +305,20 @@ Google AR Stickers are great for enhancing your photos and videos. Too bad it's 
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-a-quick-dive-into-obs-zoom-fusion-steps/"><u>[New] In 2024, A Quick Dive Into OBS-Zoom Fusion Steps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-transform-the-way-you-view-web-content-using-ms-edges-split-screen-functionality/"><u>[Updated] 2024 Approved Transform the Way You View Web Content Using MS Edge's Split Screen Functionality</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-exclusive-look-at-zooms-prime-transcription-software-choices/"><u>2024 Approved Exclusive Look at Zoom's Prime Transcription Software Choices</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-traps-in-the-web-avoiding-the-snare-of-buying-non-existent-supporters/"><u>2024 Approved Traps in the Web Avoiding the Snare of Buying Non-Existent Supporters</u></a></li>
+<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-nokia-g22-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Nokia G22 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-the-monetary-value-of-meta-verification/"><u>Evaluating the Monetary Value of Meta Verification</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/free-online-10-the-best-subtitles-tools-for-2024/"><u>Free Online 10 The Best Subtitles Tools for 2024</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/openais-incentivized-vulnerability-hunt-a-step-by-step-guide-on-how-to-get-started/"><u>OpenAI's Incentivized Vulnerability Hunt: A Step-by-Step Guide on How to Get Started</u></a></li>
+<li><a href="https://fox-info.techidaily.com/transformation-rapide-et-gratuite-de-videos-wmv-en-format-mpeg-via-movavi-solutions-de-conversion-en-ligne/"><u>Transformation Rapide Et Gratuite De Vidéos WMV en Format MPEG via Movavi - Solutions De Conversion en Ligne</u></a></li>
+<li><a href="https://fox-info.techidaily.com/transformer-votre-fichier-tga-en-format-jpeg-facilement-et-sans-frais-avec-movavi/"><u>Transformer Votre Fichier TGA en Format JPEG Facilement Et Sans Frais Avec Movavi</u></a></li>
+<li><a href="https://fox-info.techidaily.com/transformez-votre-contenu-video-facilement-conversion-gratuite-des-fichiers-3gp-en-fichiers-flv-via-movavi/"><u>Transformez Votre Contenu Vidéo Facilement: Conversion Gratuite Des Fichiers .3Gp en Fichiers .flv via Movavi</u></a></li>
+<li><a href="https://fox-info.techidaily.com/transformez-votre-video-au-format-f4v-en-version-wmv-librement-avec-movavi/"><u>Transformez Votre Vidéo Au Format F4V en Version WMV Librement – Avec Movavi</u></a></li>
+</ul></div>
 

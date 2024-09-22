@@ -1,7 +1,7 @@
 ---
 title: "[New] Professional Text Design in 10 Minutes or Less (AE Style)"
-date: 2024-07-12T12:04:06.985Z
-updated: 2024-07-13T12:04:06.985Z
+date: 2024-09-21T09:36:45.066Z
+updated: 2024-09-21T18:32:58.600Z
 tags: 
   - screen-recording
   - ai video
@@ -70,6 +70,13 @@ This is a simple but highly effective text preset that gets the serious attentio
 
 ![stranger things text preset](https://images.wondershare.com/filmora/article-images/2022/09/stranger-things-text-preset.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. Text Styles Preset
 
 You get 16 amazing text styles that you can use on your texts and titles to make them look different and refreshing. Thereafter, you can apply any animation you want to amplify the visual appeal. Starting from fiery and neon styles to different variations of 3D effects, these presets bring the fun and the color elements to your text.
@@ -93,6 +100,19 @@ If you are looking for some upbeat text presets, kinetic text animation pack is 
 If you want to keep the text animations simple but you want it to be different than the usual text animations, this is the pack for you. You get 30 standard text animation presets with a geometrical element in each one of them. You can customize the timing, duration, size, and various such parameters to fit them in your video project perfectly.
 
 ![universial text aniamtion preset](https://images.wondershare.com/filmora/article-images/2022/09/universial-text-aniamtion-preset.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 10\. Text Animation Lower Third
 
@@ -135,6 +155,13 @@ Step2Drop the video clip onto timeline if you want to use it as a background to 
 Step3Go to Titles and you will see different categories of text effects on the left panel. Search for any text effect and select any desired template. Drop it onto the timeline above the background layer.
 
 ![select any desired template](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4Double-click on the text layer and edit the text. Place the text layer on the timeline where you want the text to appear. You can also change the text styles and parameters as per your requirements.
 
@@ -226,6 +253,13 @@ Step2Go to Effects and Presets panel and you will find all the presets including
 
 ![search desired text preset after effects](https://images.wondershare.com/filmora/article-images/2022/09/search-desired-text-preset-after-effects.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3Click on the text layer to expand it and you will see different parameters that you can adjust to get the desired text effect. You can also tweak keyframes wherever applicable to adjust the text animation.
 
 ![adjust text layer after effects](https://images.wondershare.com/filmora/article-images/2022/09/adjust-text-layer-after-effects.jpg)
@@ -253,6 +287,13 @@ Step3Go to Titles and you will see different categories of text effects on the l
 Step4Double-click on the text layer and edit the text. Place the text layer on the timeline where you want the text to appear. You can also change the text styles and parameters as per your requirements.
 
 ![edit the text](https://images.wondershare.com/filmora/guide/text-animation-win-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -284,6 +325,23 @@ If you decide to use Adobe After Effects to add text effects to your video, we h
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://win-howtos.techidaily.com/fixed-step-by-step-solutions-for-rectifying-the-infamous-red-screen-malfunction/"><u>[FIXED] Step-by-Step Solutions for Rectifying the Infamous Red Screen Malfunction</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-pioneering-virtual-voyages-with-jaunt-vr/"><u>[New] 2024 Approved Pioneering Virtual Voyages with Jaunt VR</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-unveiling-youtubes-hidden-feature-stop-snippet-viewing/"><u>[New] 2024 Approved Unveiling YouTube's Hidden Feature Stop Snippet Viewing</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-androids-compendium-for-synchronized-and-curved-videography/"><u>[New] Android's Compendium for Synchronized & Curved Videography</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-prolific-performance-our-picks-for-top-8-workflow-planners/"><u>[New] In 2024, Prolific Performance Our Picks for Top 8 Workflow Planners</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-live-webcam-broadcast-the-power-of-vlc-technology/"><u>[New] Live Webcam Broadcast The Power of VLC Technology</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitters-visuals-on-the-social-media-giant-fb/"><u>[New] Twitters' Visuals on the Social Media Giant FB</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-essential-tips-for-audio-crossfades-in-premiere-pro/"><u>[Updated] 2024 Approved Essential Tips for Audio Crossfades in Premiere Pro</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-decoding-instagrams-music-copyright-doctrine/"><u>[Updated] Decoding Instagram's Music Copyright Doctrine</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-social-media-rhythms-to-mobile-melodies-setting-up-your-tiktok-ringtone/"><u>[Updated] In 2024, Social Media Rhythms to Mobile Melodies Setting Up Your TikTok Ringtone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/jovial-access-key-strategies/"><u>Jovial Access Key Strategies</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/movavi-video-editor-plus-walkthrough-effortlessly-converting-mpegx-files-into-mp4/"><u>Movavi Video Editor Plus Walkthrough: Effortlessly Converting MPEGX Files Into MP4</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/quick-and-easy-single-track-dvd-backup-transfer-your-dvds-in-mpeg2-format/"><u>Quick and Easy Single-Track DVD Backup: Transfer Your DVDs in MPEG2 Format</u></a></li>
+<li><a href="https://fox-info.techidaily.com/reignite-your-gaming-experience-free-voice-transformation-for-valorant-lovers-for-2024/"><u>Reignite Your Gaming Experience Free Voice Transformation for Valorant Lovers for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/stop-f1-202-from-crashing-on-your-pc-troubleshooting-tips-and-fixes/"><u>Stop F1 202# From Crashing on Your PC - Troubleshooting Tips and Fixes</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/transforming-digital-art-with-free-versatile-lut-tools/"><u>Transforming Digital Art with Free, Versatile LUT Tools</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Maximizing B-Roll Value  Essential Techniques\""
-date: 2024-09-10T18:46:45.493Z
-updated: 2024-09-16T17:12:34.346Z
+date: 2024-09-17T08:34:05.547Z
+updated: 2024-09-22T08:01:39.501Z
 tags: 
   - screen-recording
   - ai video
@@ -54,10 +54,16 @@ We'll examine the top 5 uses for B rolls across a variety of video genres and di
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Visual detail b roll footage
@@ -69,28 +75,28 @@ Including archival material in your video allows your audience to experience a p
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Undirected b roll footage
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. Atmospheric b roll footage
 
 When you are sharing a narrative that has been told in the past or that has historical significance, incorporating archival material into your video gives your audience the opportunity to see the story as it occurred at the time. This is especially useful when you are discussing a narrative that has been experienced in the past or that has futuristic relevance.
 
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6\. Pick-up shots
 
@@ -136,15 +142,18 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-fastest-8-capture-tools-unveiled/"><u>[Updated] 2024 Approved Fastest 8 Capture Tools Unveiled</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-broadcasting-e-learning-sessions/"><u>[Updated] Broadcasting E-Learning Sessions</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-a-comprehensive-list-top-rated-srt-translation-services/"><u>[Updated] In 2024, A Comprehensive List Top-Rated SRT Translation Services</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-hero-4-vs-hero-5-performance-face-off/"><u>[Updated] In 2024, Hero 4 VS Hero 5 Performance Face-Off</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-inject-photos-with-rotational-blur-effects-in-photosoph/"><u>[Updated] Inject Photos with Rotational Blur Effects in PHOTOSOPH</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-mastering-audio-integration-in-canva-videos/"><u>[Updated] Mastering Audio Integration in Canva Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/sive-list-best-online-video-to-mp3-tools/"><u>Exclusive List Best Online Video to Mp3 Tools</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/leveraging-gpt-3-in-your-projects-using-python-the-ultimate-tutorial/"><u>Leveraging GPT-3 in Your Projects Using Python - The Ultimate Tutorial</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/real-time-streaming-app-manycam-professional-virtual-webcam-and-filming-tool/"><u>Real-Time Streaming App: ManyCam - Professional Virtual Webcam and Filming Tool</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-tecno-spark-20-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Tecno Spark 20 Device</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-navigating-zoom-rooms-with-ease-newcomers/"><u>[New] In 2024, Navigating Zoom Rooms with Ease, Newcomers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-methods-to-access-previous-facebook-journeys-mobiledesktop/"><u>[New] Methods to Access Previous Facebook Journeys (Mobile/Desktop)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-mac-and-monetization-imovie-editing-to-youtube-success/"><u>Bridging Mac & Monetization IMovie Editing to YouTube Success</u></a></li>
+<li><a href="https://fox-info.techidaily.com/comment-faire-concevoir-and-tutorial/"><u>Comment Faire, Concevoir, and Tutorial.</u></a></li>
+<li><a href="https://fox-info.techidaily.com/conversion-video-mp4-vers-matroska-mkv-libre-de-frais-avec-movavi/"><u>Conversion Vidéo MP4 Vers Matroska (MKV) Libre De Frais - Avec Movavi</u></a></li>
+<li><a href="https://fox-info.techidaily.com/conversione-rapida-e-semplice-dei-formati-audio-converti-wav-a-au-senza-costi-con-il-servizio-on-line-di-movavi/"><u>Conversione Rapida E Semplice Dei Formati Audio: Converti WAV a AU Senza Costi Con Il Servizio On-Line Di Movavi</u></a></li>
+<li><a href="https://fox-info.techidaily.com/convert-mp3-files-into-high-quality-aiff-format-for-free-with-online-converter/"><u>Convert MP3 Files Into High-Quality AIFF Format for Free with Online Converter</u></a></li>
+<li><a href="https://fox-info.techidaily.com/convert-tiff-images-to-jpg-for-free-using-movavis-web-tool/"><u>Convert TIFF Images to JPG for Free Using Movavi's Web Tool</u></a></li>
+<li><a href="https://fox-info.techidaily.com/descargas-optimas-de-audio-convierte-tu-video-a-mp3-sin-coste-con-movi-truncated-for-brevity/"><u>Descargas Óptimas De Audio: Convierte Tu Video a MP3 Sin Coste Con Movi... (Truncated for Brevity)</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-infinix-note-30i-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Infinix Note 30i Phone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-top-ways-to-turn-your-shorts-into-a-money-machine-on-youtube/"><u>In 2024, Top Ways to Turn Your Shorts Into a Money Machine on YouTube</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-the-ultimate-list-10-best-free-online-video-looping-software-for-2024/"><u>New The Ultimate List 10 Best Free Online Video Looping Software for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/remove-the-lock-screen-fingerprint-of-your-oppo-find-x7-ultra-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Oppo Find X7 Ultra</u></a></li>
 </ul></div>
 
