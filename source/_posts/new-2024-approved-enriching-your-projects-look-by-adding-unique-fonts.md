@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Enriching Your Project's Look by Adding Unique Fonts\""
-date: 2024-09-21T05:56:36.518Z
-updated: 2024-09-22T05:22:26.164Z
+date: 2024-09-21T18:52:35.156Z
+updated: 2024-09-28T18:16:49.135Z
 tags: 
   - screen-recording
   - ai video
@@ -66,6 +66,13 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 * Then slide the keyframes to set the text effect on the section of the video where you want to add your text. You can also compose the text by clicking on it and editing it for adjusting its content, height, width, opacity, and color.
 * After you are done, save the project and your text effects will be added to the final video successfully.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4\. Alternative ways to edit text fonts
 
 If for some reason you don't want to use After Effects on your device to edit your videos, or your PC is incompatible with your device, then [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a great alternative for you. Filmora is a paid application that is supported on both Windows as well as Mac and comes with a free version where you can try the different video editing features.
@@ -78,16 +85,22 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
@@ -95,13 +108,6 @@ These features also include adding texts and changing the fonts of those texts o
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -118,10 +124,10 @@ These features also include adding texts and changing the fonts of those texts o
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
@@ -130,6 +136,13 @@ These features also include adding texts and changing the fonts of those texts o
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -157,5 +170,18 @@ The article discussed the detailed process of **how to add font to Adobe After E
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-unlocking-full-screen-with-chrome-pip-on-any-platform/"><u>[Updated] 2024 Approved Unlocking Full Screen with Chrome PIP on Any Platform</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-2019-evolution-of-vegaspro/"><u>[Updated] The 2019 Evolution of VegasPro</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-steps-to-prevent-windows-11-photos-app-failures/"><u>2024 Approved Steps to Prevent Windows 11 Photos App Failures</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-unlocking-whatsapps-vocal-messaging-secrets/"><u>2024 Approved Unlocking WhatsApp's Vocal Messaging Secrets</u></a></li>
+<li><a href="https://fox-info.techidaily.com/essential-tips-for-creating-films-with-movie-maker-in-w11-for-2024/"><u>Essential Tips for Creating Films with Movie Maker in W11 for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/how-the-paprika-app-transformed-my-cooking-experience-dont-make-the-same-regret-as-me/"><u>How the Paprika App Transformed My Cooking Experience - Don't Make the Same Regret as Me</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-the-method-for-seamless-volume-dialing-down-in-audacity/"><u>In 2024, The Method for Seamless Volume Dialing Down in Audacity</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-youtube-mastery-elevating-your-channel-with-strategic-spotlight-techniques/"><u>In 2024, YouTube Mastery Elevating Your Channel with Strategic Spotlight Techniques</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/revolutionize-engagement-with-a-cookiebot-powered-web-presence/"><u>Revolutionize Engagement With a Cookiebot Powered Web Presence</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/seamless-picture-refresh-top-software-picks-to-bring-your-images-back-to-life/"><u>Seamless Picture Refresh: Top Software Picks to Bring Your Images Back to Life</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/the-ultimate-guide-to-resolving-frozen-window-updates-on-legacy-oss-like-win7-latest-recommendations-for-better-user-experience-in-year-of-our-lord-two-thou110/"><u>The Ultimate Guide To Resolving Frozen Window Updates On Legacy OSs Like Win7 - Latest Recommendations For Better User Experience In Year Of Our Lord Two Thousand And Twenty-Four (Helpful Tips, Troubleshooting Steps & Solutions)</u></a></li>
+</ul></div>
 

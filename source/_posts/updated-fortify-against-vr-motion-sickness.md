@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Fortify Against VR Motion Sickness"
-date: 2024-09-17T07:13:49.680Z
-updated: 2024-09-22T08:50:33.326Z
+date: 2024-09-23T22:44:05.946Z
+updated: 2024-09-28T18:50:08.597Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,13 @@ thumbnail: https://thmb.techidaily.com/45bc41dfd22bb4252a227dcc20488f6faf42f4a30
 
 **10\. Try not to move your head a lot.** Since motion sickness directly corresponds to movement, reducing your head movement left and right and up and down in one place can help you lower the chances of sickness.
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Oculus have done to reduce motion sickness
 
  With the new, innovative VR devices and the head gear technology has taken a huge leap. Oculus Rift has become widely popular among its enthusiastic users. When Oculus released its first Development kit (DevKit 1) the users experienced the symptoms such as nausea, dizziness, sweating and vomiting. Even Oculus CEO Brendan Iribe experienced “motion sickness” with his own product, while using last year’s “DevKit 1” prototype. These sickness issues were so common while using DevKit 1 that its users called it the “Rift Sickness”.
@@ -62,6 +69,13 @@ thumbnail: https://thmb.techidaily.com/45bc41dfd22bb4252a227dcc20488f6faf42f4a30
  Since Oculus Rift DK1 came to the market, people were really unhappy with the sickness it gave to them. Oculus saw that issue as a big threat, and started to develop DK2 with a much better display. In the original DK1, Oculus Rift used the liquid crystal display (LCD) to display visual in its devices. LCD screen had been of very much advantage because of its brightness, geometric distortion, and less electricity consumption. But it still had been promoting to the sickness issue because of its sluggish motion time response. In replacement of LCD screens, Oculus Rift has introduced OLED (organic light emitting diode) screens which have proved to be a much better idea. Experiments of Oculus Rift with OLED screens have been successful so far in reducing motion sickness to its minimal. OLED has a much faster rate and thus much enhanced positional tracking.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -86,12 +100,18 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-skyrocket-views-implementing-these-proven-youtube-growth-methods/"><u>[New] 2024 Approved Skyrocket Views Implementing These Proven YouTube Growth Methods</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-best-in-class-elite-4k-televisions-for-2024/"><u>[New] Best in Class Elite 4K Televisions for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-top-10-ways-to-procure-quality-photo-and-video-backgrounds/"><u>[New] In 2024, Top 10 Ways to Procure Quality Photo & Video Backgrounds</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-logic-pros-efficient-approach-to-softening-audio-levels/"><u>[Updated] Logic Pro's Efficient Approach to Softening Audio Levels</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-sony-xperia-xz-premium-an-odyssey-into-ultra-hd-phones/"><u>[Updated] Sony Xperia XZ Premium An Odyssey Into Ultra HD Phones</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-expert-advice-on-acquiring-the-latest-360-cameras/"><u>2024 Approved Expert Advice on Acquiring the Latest 360 Cameras</u></a></li>
+<li><a href="https://fox-info.techidaily.com/beginning-your-first-fb-giveaway-announcement-for-2024/"><u>Beginning Your First FB Giveaway Announcement for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-correctly-resolve-the-acpi-conforming-power-management-drivers-issue-in-microsoft-devices/"><u>How to Correctly Resolve the ACPI-Conforming Power Management Drivers Issue in Microsoft Devices</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-factory-reset-ipad-or-iphone-13-without-icloud-password-or-apple-id-by-drfone-ios/"><u>How to Factory Reset iPad or iPhone 13 without iCloud Password or Apple ID?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-vivo-v29e-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Vivo V29e to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/troubleshooting-steps-for-lost-ark-connection-issues-resolving-server-related-errors/"><u>Troubleshooting Steps for 'Lost Ark' Connection Issues: Resolving Server-Related Errors</u></a></li>
+</ul></div>
 

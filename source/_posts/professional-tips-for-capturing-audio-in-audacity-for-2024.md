@@ -1,7 +1,7 @@
 ---
 title: "Professional Tips for Capturing Audio in Audacity for 2024"
-date: 2024-09-16T21:14:16.769Z
-updated: 2024-09-21T17:12:12.375Z
+date: 2024-09-23T19:03:51.781Z
+updated: 2024-09-28T21:17:36.087Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,19 @@ Step3To choose the kind of track you want, click "Tracks" at the top of the page
 
 Step4To begin the recording, simply click the "Record" button. As soon as you press record, an audio graph of your voice should start to display. Using the "Shift + R" hotkeys on your keyboard, you can add a new recording if you'd like to.
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Recording using Mac
 
 To record audio on your Mac, you might need to install Audacity and additional plugins. The best option is to use the Soundflower program, which enables you to send sound to other apps rather than your computer's speakers. Here's how to use Soundflower and Audacity to record audio on a Mac.
@@ -52,6 +65,13 @@ Step2The Soundflower app must then be set up. To achieve this, choose "Sounds" f
 Step3In the "Device" section of the Audacity preferences box, choose "Soundflower (2ch)". From the recording area, choose "Software playthrough." Click "OK" to save the options you've selected.
 
 Step4Launch audacity, then open the app whose audio you wish to record. To begin the recording, click the "Record" button.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Export your audio
 
@@ -99,12 +119,22 @@ Simply select the necessary file format from the drop-down box that appears next
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-drones-uncovered-the-top-pre-purchase-checklist-for-buyers/"><u>[New] 2024 Approved Drones Uncovered The Top Pre-Purchase Checklist for Buyers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-strategic-application-of-hashtags-in-fb-advertising/"><u>[New] Strategic Application of Hashtags in FB Advertising</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ltra-quick-fortnite-image-design/"><u>[New] Ultra-Quick Fortnite Image Design</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-360-camera-buying-guide-how-to-choose-a-suitable-360-camera/"><u>[Updated] 360 Camera Buying Guide How to Choose a Suitable 360 Camera</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-comprehensive-guide-to-superior-recordings-in-audacity-for-2024/"><u>[Updated] The Comprehensive Guide to Superior Recordings in Audacity for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-voice-maestros-toolkit-free-applications-to-enrich-your-auditory-palette-for-2024/"><u>[Updated] The Voice Maestro's Toolkit Free Applications to Enrich Your Auditory Palette for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/concentrate-on-core-affinity-photo-trick-for-2024/"><u>Concentrate on Core - Affinity Photo Trick for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/decoding-the-perfection-of-hp-envy-27s-design-for-2024/"><u>Decoding the Perfection of HP Envy 27'S Design for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/gold-glory-in-gameplay-5-prime-maps-for-riches-for-2024/"><u>Gold Glory in Gameplay 5 Prime Maps for Riches for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/google-ar-stickers-explained-with-comparative-alternatives/"><u>Google AR Stickers Explained with Comparative Alternatives</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-step-up-your-speaking-game-access-free-user-friendly-audio-alteration-tools/"><u>In 2024, Step Up Your Speaking Game - Access Free, User-Friendly Audio Alteration Tools</u></a></li>
+<li><a href="https://win11.techidaily.com/navigating-functional-adjustments-windows-1011-edition/"><u>Navigating Functional Adjustments: Windows 10/11 Edition</u></a></li>
+<li><a href="https://fox-info.techidaily.com/tonal-treasures-the-ultimate-list-of-classical-download-sites-for-2024/"><u>Tonal Treasures The Ultimate List of Classical Download Sites for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/top-10-most-viewed-videos-on-youtube-of-all-time-for-2024/"><u>Top 10 Most Viewed Videos on YouTube of All Time for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-tecno-pop-7-pro-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Tecno Pop 7 Pro Phone</u></a></li>
+</ul></div>
 

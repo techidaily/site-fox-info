@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Essential Techniques to Avert Windows 11 Photos Crashes for 2024"
-date: 2024-09-20T21:07:14.787Z
-updated: 2024-09-22T09:50:57.777Z
+date: 2024-09-24T23:43:44.549Z
+updated: 2024-09-28T22:53:29.980Z
 tags: 
   - screen-recording
   - ai video
@@ -58,8 +58,22 @@ Here is how to troubleshoot –
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Solution 2: Restore Default Libraries
 
@@ -75,10 +89,10 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Solution 3: Reset it
@@ -119,14 +133,14 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -151,5 +165,24 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-essential-strategies-for-effective-use-of-luts-in-video-edits/"><u>[New] In 2024, Essential Strategies for Effective Use of LUTs in Video Edits</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-mastering-inshot-adding-your-favorite-tunes/"><u>[New] In 2024, Mastering InShot Adding Your Favorite Tunes</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-transform-your-phone-personalizing-the-ios-alert-sound/"><u>[New] Transform Your Phone Personalizing the iOS Alert Sound</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-directors-academy-youtube-channels-for-cinematic-innovation/"><u>[Updated] 2024 Approved Directors Academy YouTube Channels for Cinematic Innovation</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-financial-investment-for-youtube-ads-success/"><u>[Updated] 2024 Approved Financial Investment for Youtube Ads Success</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-navigating-the-convert-waters-10-tips-for-youtube-to-mp4mpeg/"><u>[Updated] In 2024, Navigating the Convert Waters 10 Tips for YouTube to MP4/MPEG</u></a></li>
+<li><a href="https://win-able.techidaily.com/iuoajoodjplusocuoodoeodhuocroocpooditrpjllpn7pjg5xjgqhjgqtjg6vjgplnskhljzjjgavkvzzjgovmlrnms5xjgi0i/"><u>「ハジメテガイド:録音ファイルを簡単に作る方法」</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-why-are-recommended-youtube-movies-elusive-on-facebook/"><u>2024 Approved Why Are Recommended YouTube Movies Elusive on Facebook?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/harmonyhub-combining-ios-and-macos-photo-videos-for-2024/"><u>HarmonyHub Combining iOS & macOS Photo-Videos for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-speed-up-your-windows-10-boot-time/"><u>How to Speed Up Your Windows 10 Boot Time</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-boost-your-visuals-video-enhance-pro-22-guide/"><u>In 2024, Boost Your Visuals - Video Enhance Pro 2.2 Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/masterclass-review-top-tier-professional-cameras-spin-full-circle-2023/"><u>Masterclass Review Top-Tier Professional Cameras Spin Full Circle - 2023</u></a></li>
+<li><a href="https://app-tips.techidaily.com/mastering-robust-ai-watermarks-expert-strategies-revealed-by-zdnet/"><u>Mastering Robust AI Watermarks: Expert Strategies Revealed by ZDNet</u></a></li>
+<li><a href="https://fox-info.techidaily.com/pinnacle-of-picture-perfection-with-video-enhance-v22/"><u>Pinnacle of Picture Perfection with Video Enhance V2.2</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/precision-and-power-choosing-best-kung-fu-games-ranked-for-2024/"><u>Precision & Power Choosing Best Kung Fu Games Ranked for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/read-pdf-with-chatgpt-top-4-techniques-explored/"><u>Read PDF with ChatGPT: Top 4 Techniques Explored</u></a></li>
+<li><a href="https://win-able.techidaily.com/ready-to-roam-tips-for-resolving-stalling-start-up-in-far-cry-5/"><u>Ready to Roam? Tips for Resolving Stalling Start-Up in Far Cry 5</u></a></li>
+</ul></div>
 

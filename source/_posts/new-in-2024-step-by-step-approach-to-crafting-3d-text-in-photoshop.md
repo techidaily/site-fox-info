@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Step-by-Step Approach to Crafting 3D Text in Photoshop\""
-date: 2024-09-21T00:58:42.113Z
-updated: 2024-09-22T09:09:55.539Z
+date: 2024-09-25T17:22:09.741Z
+updated: 2024-09-28T16:48:11.608Z
 tags: 
   - screen-recording
   - ai video
@@ -122,38 +122,52 @@ Step1 First, you should download Filmora and install the program on your compute
 ![open new project filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2 Import a background video or image by going to **My Media** and selecting **Import Media.** From here, select any clip or image you want and hit **Open.** When it's imported, simply drag the clip to the Timeline below.
 
 ![import media files filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Next, head over to **Titles** and search for "3D". Select any option you like and drag it to the Timeline, above your background clip.
 
 ![title option filmora](https://images.wondershare.com/filmora/guide/types-of-titles-win-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4 Lastly, double-click on the 3D Title clip in the Timeline and edit its settings. Type in your custom text, change its font, color, and other features.
 
 ![3d titles filmora](https://images.wondershare.com/filmora/guide/3d-title.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 That's it! Congratulations!. You've created a 3D text effect with Filmora in just four simple steps.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -182,5 +196,22 @@ Creating 3D text with Photoshop is a good idea if you already know how to use th
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-engaging-with-srt-soundfiles-on-pc-and-mac/"><u>[New] 2024 Approved Engaging with SRT Soundfiles on PC & Mac</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-auditory-artistry-in-storytelling-for-2024/"><u>[New] Auditory Artistry in Storytelling for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-personalize-your-viewing-experience-building-a-google-cardboard-vr-setup-for-2024/"><u>[New] Personalize Your Viewing Experience Building a Google Cardboard VR Setup for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-quiet-soundscapes-audio-control-tips/"><u>[Updated] 2024 Approved Quiet Soundscapes Audio Control Tips</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-adventure-captured-comparing-black-hero5-to-star-sj7/"><u>[Updated] Adventure Captured Comparing Black Hero5 to Star SJ7</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-top-10-iphone-and-android-video-editing-apps-for-gopro/"><u>[Updated] In 2024, Top 10 iPhone & Android Video Editing Apps for GoPro</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-integrating-gentle-decreases-into-your-audience-experience-via-audacity-for-2024/"><u>[Updated] Integrating Gentle Decreases Into Your Audience Experience via Audacity for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-proven-strategies-for-successful-youtube-shorts/"><u>[Updated] Proven Strategies for Successful YouTube Shorts</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-infinix-zero-30-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Infinix Zero 30 5G without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/hands-on-approaches-to-solve-magic-mouse-tracking-challenges/"><u>Hands-On Approaches to Solve Magic Mouse Tracking Challenges</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Lava Yuva 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/resolved-fixing-window-11s-atikmpagsys-error-during-video-playback-tdr/"><u>Resolved: Fixing Window 11'S 'atikmpag.sys' Error During Video Playback (TDR)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-knack-review-revisited-remarkable-protagonist-facing-conventional-gameplay/"><u>The Knack Review Revisited: Remarkable Protagonist Facing Conventional Gameplay</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-ultimate-insights-into-audio-memos/"><u>The Ultimate Insights Into Audio Memos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/your-ultimate-iphone-podcast-downloading-manual/"><u>Your Ultimate iPhone Podcast Downloading Manual</u></a></li>
+</ul></div>
 

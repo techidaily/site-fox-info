@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Shades & Tints in Action  Practical Application\""
-date: 2024-09-16T05:12:56.052Z
-updated: 2024-09-21T18:14:09.915Z
+date: 2024-09-26T21:19:24.689Z
+updated: 2024-09-28T16:54:43.847Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,13 @@ The blue lines represent what is known as split contrasting colors and these wil
 
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## But How Do I Use This
 
 You may still be unsure as to how to implement color theory into your videos. Let's look at some scenarios that color theory may help your creations.
@@ -62,10 +69,10 @@ You may still be unsure as to how to implement color theory into your videos. Le
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
@@ -75,13 +82,20 @@ As you can see from this example the base color for the scene is a dark blue/pur
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -115,5 +129,20 @@ By including this into your thought process when creating videos with [Filmora](
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-identifying-a-user-writes-silent-unseen-snapshots/"><u>[New] Identifying a User' Writes Silent, Unseen Snapshots</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-inside-the-evolved-sony-bdp-s6700-world-for-2024/"><u>[New] Inside the Evolved Sony BDP-S6700 World for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-luminescence-levered-5-top-videography-enhancers/"><u>[Updated] 2024 Approved Luminescence Levered 5 Top Videography Enhancers</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-mastering-device-independent-techniques-for-capturing-youtube-live-streams/"><u>[Updated] 2024 Approved Mastering Device-Independent Techniques for Capturing YouTube Live Streams</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-obs-vs-wirecast-which-should-you-trust-for-live/"><u>[Updated] 2024 Approved OBS Vs. Wirecast - Which Should You Trust for Live?</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-vimeos-zero-dollar-video-editing-pathway/"><u>[Updated] In 2024, Vimeo's Zero-Dollar Video Editing Pathway</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/achieving-profitability-on-youtube-average-view-count-for-success/"><u>Achieving Profitability on YouTube Average View Count for Success</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578590735-become-a-home-cooking-wizard-in-just-three-easy-steps/"><u>Become a Home Cooking Wizard in Just Three Easy Steps</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-turn-off-find-my-iphone-15-plus-when-phone-is-broken-drfone-by-drfone-ios/"><u>How to Turn Off Find My iPhone 15 Plus when Phone is Broken? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-8-web-archives-of-3d-letterforms/"><u>In 2024, Top 8 Web Archives of 3D Letterforms</u></a></li>
+<li><a href="https://fox-info.techidaily.com/podcastpathfinder-moving-past-dacast/"><u>PodcastPathfinder Moving Past DaCast</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/techniques-to-increase-instagram-content-playback-speed/"><u>Techniques to Increase Instagram Content Playback Speed</u></a></li>
+<li><a href="https://fox-info.techidaily.com/top-8-criteria-when-expanding-your-4k-setup-for-2024/"><u>Top 8 Criteria When Expanding Your 4K Setup for 2024</u></a></li>
+</ul></div>
 
