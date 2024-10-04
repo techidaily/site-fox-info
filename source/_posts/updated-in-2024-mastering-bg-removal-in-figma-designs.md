@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Mastering BG Removal in Figma Designs"
-date: 2024-09-19T17:03:34.217Z
-updated: 2024-09-22T02:27:42.782Z
+date: 2024-09-29T16:38:10.002Z
+updated: 2024-10-04T01:37:53.722Z
 tags: 
   - screen-recording
   - ai video
@@ -82,10 +82,10 @@ The program will start running the plugin, and the background of your image will
 Apart from using PixCut Plugin in Figma, there are some alternatives that you can use to remove the image's background in Figma:
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### (1) When Images Are With Transparent or Solid Colour Backgrounds
@@ -94,13 +94,6 @@ Follow these tips to remove the background of images with transparent or solid c
 
 * When saving your images from programs like Photoshop, make sure to save them with transparent background. This way, when you import it to Figma, the BG will be removed automatically.
 * If your image has a solid background, import it to Figma and use the **"Edit Color"** tool to change the BG to transparent.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### (2) 3 Other Figma Plugins
 
@@ -124,15 +117,36 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### (3) Using Online Removers
 
 Another alternative is to use any tool that **removes the image background online**. For example, we recommend using the [Remove BG tool](https://www.remove.bg/).
 
 To use the Remove BG tool, visit its website, drop your image file, or click the **"Upload"** option to import your file. Now, wait for the program to process your image and then click **"Download"** to save your picture. Afterward, you can import it to Figma for further editing.
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
 
 Hopefully, you have found an ideal solution by now. To help you remove the image's background in Figma with more ease, we have prepared a video for you. You can combine the video content with the guidance above:
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -155,10 +169,16 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### (3) Using Online Removers
@@ -170,13 +190,6 @@ To use the Remove BG tool, visit its website, drop your image file, or click the
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
 
 Hopefully, you have found an ideal solution by now. To help you remove the image's background in Figma with more ease, we have prepared a video for you. You can combine the video content with the guidance above:
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -208,5 +221,23 @@ Hopefully, this article helped resolve your queries, and you can now use the Fig
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-capture-clarity-best-webcams-to-elevate-your-podcasts/"><u>[New] 2024 Approved Capture Clarity Best Webcams to Elevate Your Podcasts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-path-to-perfect-streams-streamlabs-plus-obs-for-mac-users/"><u>[New] 2024 Approved The Path to Perfect Streams Streamlabs + OBS for Mac Users</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-2022-beijing-games-a-chilly-snapshot/"><u>[New] In 2024, 2022 Beijing Games A Chilly Snapshot</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-top-11-techniques-for-perfecting-color-in-post-production/"><u>[Updated] 2024 Approved Top 11 Techniques for Perfecting Color in Post-Production</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-decoding-the-art-of-backdrop-cleansing-in-figma-design/"><u>[Updated] Decoding the Art of Backdrop Cleansing in Figma Design</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-ideal-beginning-enhancer-for-your-devices-for-2024/"><u>[Updated] The Ideal Beginning Enhancer for Your Devices for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-from-clip-to-cohesive-mastering-color-in-fcp/"><u>2024 Approved From Clip to Cohesive Mastering Color in FCP</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-update-drivers-for-your-amd-radeon-rx-470-step-by-step-guide/"><u>Download and Update Drivers for Your AMD Radeon RX 470: Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/easy-acquisition-of-individual-ending-music-files/"><u>Easy Acquisition of Individual Ending Music Files</u></a></li>
+<li><a href="https://fox-info.techidaily.com/hysterics-hub-best-meme-tool-for-2024/"><u>Hysterics Hub Best Meme Tool for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-solution-for-overcoming-this-os-is-not-supported-error-when-setting-up-software/"><u>Step-by-Step Solution for Overcoming ‘This OS Is Not Supported’ Error When Setting Up Software</u></a></li>
+<li><a href="https://fox-info.techidaily.com/subtlety-in-sound-decreasing-decibels-in-logic-pro-projects-for-2024/"><u>Subtlety in Sound Decreasing Decibels in Logic Pro Projects for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-review-comprehensive-gadget-testing-and-analysis/"><u>Tom's Tech Review: Comprehensive Gadget Testing and Analysis</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/top-9-unbeatable-free-flac-audio-file-converters-available-online/"><u>Top 9 Unbeatable FREE FLAC Audio File Converters Available Online</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unlock-the-past-masterful-techniques-for-retrieving-discarded-emails-from-your-gmail-inbox/"><u>Unlock the Past: Masterful Techniques for Retrieving Discarded Emails From Your Gmail Inbox</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/windowsmac-guide-to-opening-srt-audio-cues/"><u>Windows/Mac Guide to Opening SRT Audio Cues</u></a></li>
+</ul></div>
 

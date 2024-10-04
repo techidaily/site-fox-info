@@ -1,7 +1,7 @@
 ---
 title: "[New] Shrinking Volume Levels Seamlessly in Lumafusion"
-date: 2024-09-18T05:48:21.565Z
-updated: 2024-09-22T07:13:38.583Z
+date: 2024-09-29T17:10:20.133Z
+updated: 2024-10-04T06:05:06.556Z
 tags: 
   - screen-recording
   - ai video
@@ -73,35 +73,42 @@ The fade-in audio button inside your audio file may be seen when you just hover 
 
 ![apply fade effects](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step4 Share and export
 
 After finishing the method for editing audio in Filmora, click the Export button in the top menu corner as shown here:
 
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
 
-## Part 3\. Related FAQs about LumaFusion
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## Part 3\. Related FAQs about LumaFusion
 
 ### 1\. How do you fade in a title LumaFusion?
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. How do you do transitions in LumaFusion?
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. How to you split audio and video in LumaFusion?
 
@@ -121,6 +128,13 @@ Drag and drop your sound recordings from the media library to the timeline at th
 
 ![import audios to fade](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step3 Apply Fade Effects
 
 The fade-in audio button inside your audio file may be seen when you just hover over the audio file within the timeline and look for the white circle filled with pink hue at the beginning and finish of your audio file. On the other hand, to choose the fade-out audio, click and drag the pink circle that appears on the opposite end of the audio file in the timeline that you have chosen to fade out the music file.
@@ -135,19 +149,6 @@ In that window, you can select the MP3 format in the format customization box to
 
 ## Part 3\. Related FAQs about LumaFusion
 
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. How do you fade in a title LumaFusion?
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
@@ -155,6 +156,13 @@ Go to Clip Defaults to do that. You may change the Title and Transition lengths 
 ### 2\. How do you do transitions in LumaFusion?
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. How to you split audio and video in LumaFusion?
 
@@ -182,5 +190,24 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-behind-the-scenes-crafting-a-screenplay/"><u>[New] Behind the Scenes Crafting a Screenplay</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-lock-and-load-effortless-profile-url-addition-on-tiktok-for-2024/"><u>[New] Lock-and-Load Effortless Profile URL Addition on TikTok for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-perfectly-funny-meme-creator-app/"><u>[New] Perfectly Funny Meme Creator App</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-smooth-transition-to-sierra-essential-tech-steps-for-2024/"><u>[New] Smooth Transition to Sierra Essential Tech Steps for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-vibration-detectives-uncover-beats-online/"><u>[New] Vibration Detectives Uncover Beats Online</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-compendium-of-different-photographic-gadgets/"><u>[Updated] Compendium of Different Photographic Gadgets</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-innovative-5-slow-mo-video-recording-for-2024/"><u>[Updated] Innovative 5 Slow Mo Video Recording for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unveil-the-potential-of-instagram-footage-comprehensive-guide-to-mp4-conversion-software-windowsosx-for-2024/"><u>[Updated] Unveil the Potential of Instagram Footage Comprehensive Guide to MP4 Conversion Software [Windows/OSX] for 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/cookiebot-enabled-enhance-your-websites-visitor-tracking-and-personalization/"><u>Cookiebot-Enabled: Enhance Your Website's Visitor Tracking and Personalization</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/edit-faster-edit-smarter-top-20-adobe-premiere-shortcuts/"><u>Edit Faster, Edit Smarter Top 20 Adobe Premiere Shortcuts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/explore-the-best-dvd-players-for-your-portable-laptop/"><u>Explore the Best DVD Players for Your Portable Laptop</u></a></li>
+<li><a href="https://change-location.techidaily.com/honor-x7b-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Honor X7b Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-12-without-losing-any-content-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 12 without Losing Any Content? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/is-your-oppo-a1x-5g-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Oppo A1x 5G working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/step-by-step-guide-adding-applications-to-your-macos-dock/"><u>Step-by-Step Guide: Adding Applications to Your macOS Dock</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/the-ultimate-guide-to-bigger-head-vfx-for-tiktok-creators-3-ways-for-2024/"><u>The Ultimate Guide to Bigger-Head VFX for TikTok Creators (3 Ways) for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-effortless-flv-editing-on-windows-8-the-ultimate-guide/"><u>Updated Effortless FLV Editing on Windows 8 The Ultimate Guide</u></a></li>
+</ul></div>
 

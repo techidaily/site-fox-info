@@ -1,7 +1,7 @@
 ---
 title: "\"[New] How to Make Moments Last Longer  Using Phantom's Slow Mo Magic\""
-date: 2024-09-22T17:20:35.586Z
-updated: 2024-09-28T21:57:03.039Z
+date: 2024-09-30T16:54:02.845Z
+updated: 2024-10-03T22:00:33.910Z
 tags: 
   - screen-recording
   - ai video
@@ -52,6 +52,13 @@ The camera will then capture the movement in slow motion, allowing you to see th
 
 ![shoot video with phantom camera](https://images.wondershare.com/filmora/article-images/2022/11/shoot-video-with-phantom-camera.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Why do we need a phantom slow-motion camera?
 
 There are many reasons why someone might want or need to use a phantom slow-motion camera. For example, law enforcement officials can use them to capture footage of high-speed car chases or accidents. Scientists can use them to study fast-moving objects or phenomena. And sports enthusiasts can use them to study the movements of athletes and improve their performance.
@@ -74,10 +81,10 @@ Once you have all of the necessary equipment, you will need to set up your camer
 Depending on the length of the video you want to create, you may need to take thousands of pictures. Once you have all of the pictures, you will need to use a time-lapse video editing software to put them all together.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to edit time-lapse video on a computer
@@ -117,10 +124,10 @@ After creating a new project, there is an option to add media you can your the v
 ![add media to library on filmora](https://images.wondershare.com/filmora/article-images/2022/11/add-media-to-library-on-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step3 Drop the media to timeline
@@ -142,10 +149,10 @@ When you want to save your video or share it on social media just click on the e
 ![export to your desktop](https://images.wondershare.com/filmora/guide/overview-export-win-3.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -176,13 +183,6 @@ The camera will then capture the movement in slow motion, allowing you to see th
 
 ![shoot video with phantom camera](https://images.wondershare.com/filmora/article-images/2022/11/shoot-video-with-phantom-camera.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Why do we need a phantom slow-motion camera?
 
 There are many reasons why someone might want or need to use a phantom slow-motion camera. For example, law enforcement officials can use them to capture footage of high-speed car chases or accidents. Scientists can use them to study fast-moving objects or phenomena. And sports enthusiasts can use them to study the movements of athletes and improve their performance.
@@ -234,6 +234,13 @@ You can easily install Filmora for free, after installing click on it three opti
 
 ![open filmora and create a new project](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step2 Add some media to edit
 
 After creating a new project, there is an option to add media you can your the video which you want to edit.
@@ -247,10 +254,10 @@ Drag and drop your videos on the timeline to start the editing. Once you placed 
 ![drag media into timeline filmora](https://images.wondershare.com/filmora/article-images/2022/11/drag-media-into-timeline-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step4 Add titles, effects, and transitions to your video
@@ -266,23 +273,10 @@ When you want to save your video or share it on social media just click on the e
 ![export to your desktop](https://images.wondershare.com/filmora/guide/overview-export-win-3.png)
 
 <!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -319,22 +313,16 @@ As filmmakers and video lovers, we have come up with some solid examples of time
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-mastering-image-curves-in-adobe-photoshop-for-2024/"><u>[New] Mastering Image Curves in Adobe Photoshop for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-vct-pro-capture-assessment-full-review/"><u>[Updated] 2024 Approved VCT Pro Capture Assessment Full Review</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-essential-guide-for-instagram-video-uploads-from-pcmac/"><u>[Updated] The Essential Guide for Instagram Video Uploads From PC/Mac</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-crafting-cinematic-tales-in-documentary-scripts/"><u>2024 Approved Crafting Cinematic Tales in Documentary Scripts</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-effortless-ios-podcast-acquisition-the-ultimate-guidebook/"><u>2024 Approved Effortless iOS Podcast Acquisition The Ultimate Guidebook</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-excellent-devices-for-frame-by-frame-filmmaking/"><u>2024 Approved Excellent Devices for Frame-by-Frame Filmmaking</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-game-on-mastering-the-art-of-play-with-kinemaster-on-android/"><u>2024 Approved Game On! Mastering the Art of Play with KineMaster on Android</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-hdtv-revolution-comparing-the-leading-8k-tv-brands/"><u>2024 Approved HDTV Revolution Comparing the Leading 8K TV Brands</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-joyful-journeys-the-ultimate-list-of-familial-classics/"><u>2024 Approved Joyful Journeys The Ultimate List of Familial Classics</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-masterclass-for-srt-editing-in-macos/"><u>2024 Approved Masterclass for SRT Editing in macOS</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-melodic-memberships-leading-online-hubs-for-got-ringtone-purchases/"><u>2024 Approved Melodic Memberships Leading Online Hubs for GoT Ringtone Purchases</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-principles-of-evolving-media-artistry/"><u>2024 Approved Principles of Evolving Media Artistry</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-unraveling-the-best-gaming-experience-in-vr/"><u>2024 Approved Unraveling the Best Gaming Experience in VR</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-vs-video-edition-is-gopro-writes-better-stories-than-cube/"><u>2024 Approved Vs. Video Edition Is GoPro' Writes Better Stories Than Cube?</u></a></li>
-<li><a href="https://driver-install.techidaily.com/elevate-audio-experience-pcie-controller-update-on-windows-10/"><u>Elevate Audio Experience - PCIe Controller Update on Windows 10</u></a></li>
-<li><a href="https://win-answers.techidaily.com/obs-microphone-not-working-here-are-the-6-best-fixes-in-202amoji/"><u>OBS Microphone Not Working? Here Are the 6 Best Fixes in 202Amoji</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/top-8-easy-to-use-subtitle-converters-from-sub-to-compliant-srt-format-in-seconds-for-2024/"><u>Top 8 Easy-to-Use Subtitle Converters From SUB to Compliant SRT Format in Seconds for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-the-power-of-stories-in-youtube-expansion/"><u>[New] 2024 Approved The Power of Stories in YouTube Expansion</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-virtual-horizons-top-picks-for-vr-enthusiasts/"><u>[Updated] 2024 Approved Virtual Horizons Top Picks for VR Enthusiasts</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-visual-purity-how-to-exclude-backgrounds-in-recordings/"><u>[Updated] 2024 Approved Visual Purity How to Exclude Backgrounds in Recordings</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-cinematic-upgrade-gopro-hero5-black-vs-hero4-silver-edition/"><u>[Updated] Cinematic Upgrade GoPro Hero5 Black vs Hero4 Silver Edition</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-delving-deep-into-affordable-high-quality-lut-landscapes-for-2024/"><u>[Updated] Delving Deep Into Affordable High-Quality LUT Landscapes for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-sdr-evolution-into-hdri-the-ultimate-video-enhancers-handbook-for-2024/"><u>[Updated] SDR Evolution Into HDRI The Ultimate Video Enhancer's Handbook for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-creating-a-narrative-structure/"><u>2024 Approved Creating a Narrative Structure</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-easily-update-corsair-audio-drivers-for-improved-sound-quality-on-windows/"><u>How to Easily Update Corsair Audio Drivers for Improved Sound Quality on Windows</u></a></li>
+<li><a href="https://fox-info.techidaily.com/master-artistic-freedom-with-the-top-10-mac-drawings-for-2024/"><u>Master Artistic Freedom with the Top 10 Mac Drawings for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-kinetic-typography-text-effect-easyandfast-for-2024/"><u>New Kinetic Typography Text Effect 【EASY&FAST】 for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-audio-issues-fixing-loudspeaker-problems-in-windows-10/"><u>Troubleshooting Audio Issues: Fixing Loudspeaker Problems in Windows 10</u></a></li>
 </ul></div>
 

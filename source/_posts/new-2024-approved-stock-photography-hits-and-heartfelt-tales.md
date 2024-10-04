@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Stock Photography Hits & Heartfelt Tales\""
-date: 2024-09-21T20:51:35.889Z
-updated: 2024-09-28T23:37:16.593Z
+date: 2024-09-30T22:18:45.420Z
+updated: 2024-10-04T02:31:35.151Z
 tags: 
   - screen-recording
   - ai video
@@ -59,10 +59,10 @@ The original photo is the work of Antonio Guillem, who uploaded it on iStock in 
 ![original photo](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 According to Meme Documentation, the first version of the Distracted boyfriend theme dates back to January 2017\. Prog Snob, a Turkish progressive rock group on Facebook, posted the meme on their page to reference Phil Collin's distraction from progressive rock by pop music. However, it was the August 2017 Twitter version referencing the youth's feelings towards capitalism and socialism that went viral.
@@ -79,19 +79,19 @@ The latest version of Distracted boyfriend is a compilation of photos featuring 
 ![latest version](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In addition, Antonio Guillem also has a stock image meme where the roles are reversed. The meme was later posted on Reddit underneath the original and received over 25,600 points in 24 hours.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part3: I Bet He's Thinking About Other Women
@@ -104,18 +104,24 @@ However, subsequent memes feature satirical themes. Here are some of the most po
 
 ![the most popular versions](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-8.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 A July 2017 Instagram post by Cathrottle gained over 13,400 likes in a month. In this version, the man wonders why there are so many Fast and the Furious movies.
 
 * Redditor GallowBoob received 34,700 points and 350 comments within 24 hours of posting it.
 
 ![points and comments](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The post references the Toy Story character Buzz Lightyear, with the man contemplating why Buzz is in denial of being a toy.
 
@@ -149,10 +155,16 @@ The photo is available on most stock photo websites, such as Adobe and Tumblr. F
 ## Part5: FAQs
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Can you use stock photos for memes?
@@ -161,16 +173,16 @@ Yes, you can use stock photos for memes. However, you need to obtain them from r
 
 This is because not all stock photo providers offer their images with a creative commons license. For example, the Unsplash license allows you to use their stock images for personal or commercial use after making adjustments to the original.
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Does copyright law protect memes?
 
 Yes, all memes are under copyright law, which means you have the authority to govern their use. Although identifying the meme owner can be challenging, posting or sharing a meme through your social media accounts without consent violates copyright law. Therefore, only use stock image memes from verified stock content providers like Shutterstock, where the license provisions are clear.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Can you use watermarked stock photos to create memes?
 
@@ -208,22 +220,24 @@ Therefore, always perform stock image reverse searches to verify the image permi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-unlock-the-secrets-of-instagrams-latest-filters-for-2024/"><u>[New] Unlock the Secrets of Instagram's Latest Filters for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-taking-twitter-videos-from-regular-to-high-definition/"><u>[Updated] 2024 Approved Taking Twitter Videos From Regular to High-Definition</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-top-ranked-visual-saver-for-chromebook-users-for-2024/"><u>[Updated] Top-Ranked Visual Saver For Chromebook Users for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/44cm44gp44gn44gp44gn44op44kk44ow44ot44oh44kq5lplusd5a2y5oqa6kgt6kej6kqs44cn/"><u>「どきどきライブビデオ保存技術解説」</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-complete-guide-icloud-drives-desktop-anddocuments-access-in-sierra/"><u>2024 Approved [Complete Guide] iCloud Drive’s Desktop &Documents Access in Sierra</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-attenuating-audio-gradually-in-fl-projects/"><u>2024 Approved Attenuating Audio Gradually in FL Projects</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-best-professional-drones-an-in-depth-pilots-list/"><u>2024 Approved Best Professional Drones – An In-Depth Pilot’s List</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-expertise-in-transition-techniques-adobe-edition/"><u>2024 Approved Expertise in Transition Techniques, Adobe Edition</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-explore-the-best-photo-enhancement-apps-for-android-and-iphone/"><u>2024 Approved Explore the Best Photo Enhancement Apps for Android and iPhone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-quick-and-fun-make-a-meme-with-kinemaster/"><u>2024 Approved Quick & Fun Make a Meme with KineMaster</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-the-insiders-guide-to-ultimate-audio-equipment/"><u>2024 Approved The Insider's Guide to Ultimate Audio Equipment</u></a></li>
-<li><a href="https://fox-info.techidaily.com/audience-peak-hours-crafting-release-dates-for-2024/"><u>Audience Peak Hours Crafting Release Dates for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-on-iphone-xs-max-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code On iPhone XS Max</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-itel-a05s-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Itel A05s Screen Sharing | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Vivo S17t? | Dr.fone</u></a></li>
-<li><a href="https://video-capture.techidaily.com/m4a-to-mp3-conversion-guide/"><u>M4A to MP3 Conversion Guide</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/updated-androids-premier-digital-audio-workstation-apps-for-top-notch-music-creation-for-2024/"><u>Updated Androids Premier Digital Audio Workstation Apps for Top-Notch Music Creation for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-detailed-look-at-the-latest-picsart-update-a-complete-guide-and-review/"><u>[New] 2024 Approved Detailed Look at the Latest PicsArt Update - A Complete Guide & Review</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-harnessing-the-power-of-hdr-in-portrait-photography/"><u>[New] 2024 Approved Harnessing the Power of HDR in Portrait Photography</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-the-best-gopro-hero5-black-batteries-and-chargers-official-and-3rd-party-for-2024/"><u>[New] The Best GoPro Hero5 Black Batteries and Chargers Official and 3Rd Party for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-top-value-gear-affordable-cameras-for-dynamic-sports-for-2024/"><u>[New] Top Value Gear Affordable Cameras for Dynamic Sports for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-significant-20-public-domain-pubg-snapshot-packs/"><u>[Updated] In 2024, Significant 20 Public Domain PUBG Snapshot Packs</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-unveiling-the-magic-behind-shooting-images-with-iphones-hdr/"><u>[Updated] In 2024, Unveiling the Magic Behind Shooting Images with iPhone’s HDR</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-ultimate-guide-to-shooting-phenomenal-igtv-with-dslrsmartphone-for-2024/"><u>[Updated] The Ultimate Guide to Shooting Phenomenal IGTV with DSLR/Smartphone for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-lava-yuva-2-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Lava Yuva 2 to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/essential-tips-for-zooming-on-snapchat-shots-for-2024/"><u>Essential Tips for Zooming on Snapchat Shots for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/free-to-use-the-top-10-mobile-live-streaming-apps-list/"><u>Free to Use The Top 10 Mobile Live Streaming Apps List</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-exclusive-streaming-access-12-top-video-content-hours/"><u>In 2024, Exclusive Streaming Access 12 Top Video Content Hours</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-masterclass-in-picture-text-edits-and-overlays/"><u>In 2024, Masterclass in Picture Text Edits and Overlays</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-seamless-integration-with-picture-in-picture-mode/"><u>In 2024, Seamless Integration with Picture-In-Picture Mode</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/keep-your-duo-cpus-chill-with-silverstones-innovative-new-xe3e360-dual-all-in-one-liquid-cooler/"><u>Keep Your Duo CPUs Chill with SilverStone's Innovative New XE3e360-Dual All-in-One Liquid Cooler</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-finest-15-no-cost-image-editing-tools-unveiled-for-2024/"><u>The Finest 15 No-Cost Image Editing Tools Unveiled for 2024</u></a></li>
+<li><a href="https://fox-where.techidaily.com/top-techniques-for-adding-captions-to-your-mp4-videos/"><u>Top Techniques for Adding Captions to Your MP4 Videos</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-vn-video-editor-pro-apk-a-game-changer-for-mobile-video-editing-for-2024/"><u>Updated VN Video Editor Pro Apk A Game-Changer for Mobile Video Editing for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/7j207kccioycroyaqe2vmouklcdsoitrrlgg67me65su7jikioe8luipluskew3pewftyb8ioydtoqzhcdqtazrp6q/"><u>이제 사용하는 전문 비디오 编辑工具 | 이계 구매</u></a></li>
 </ul></div>
 

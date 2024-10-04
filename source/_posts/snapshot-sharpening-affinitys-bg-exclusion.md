@@ -1,7 +1,7 @@
 ---
 title: "\"Snapshot Sharpening - Affinity's Bg Exclusion\""
-date: 2024-09-24T00:02:57.488Z
-updated: 2024-09-28T20:18:48.962Z
+date: 2024-09-27T20:36:37.421Z
+updated: 2024-10-04T00:34:14.110Z
 tags: 
   - screen-recording
   - ai video
@@ -45,29 +45,9 @@ Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and 
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
 
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
 
@@ -78,10 +58,10 @@ Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** 
 ![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
@@ -89,10 +69,16 @@ Step5 In the last step, press the **"Delete"** key on your keyboard to remove th
 Now, hit **"Control+D"** to deselect the selection. Alternatively, you can click **"Select"** in the top toolbar and choose the **"Deselect"** option. Finally, you can export your file using the **"File" > "Export"** option.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Remove a Busy Background in Affinity Designer
@@ -122,7 +108,21 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Best Alternative of Affinity Photo
 
@@ -183,10 +183,10 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -223,22 +223,16 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-unparalleled-video-gear-top-5-slow-cams/"><u>[New] 2024 Approved Unparalleled Video Gear Top 5 Slow Cams</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-7-crucial-gadgets-for-successful-metaverse-journey-for-2024/"><u>[New] 7 Crucial Gadgets for Successful Metaverse Journey for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-the-ultimate-guide-to-steam-pro-controllers-on-switch/"><u>[Updated] 2024 Approved The Ultimate Guide to Steam Pro Controllers on Switch</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-digital-identification-showdown-iphone-x-and-galaxy-edition/"><u>2024 Approved Digital Identification Showdown IPhone X and Galaxy Edition</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-effortless-audio-volume-reduction-in-garageband/"><u>2024 Approved Effortless Audio Volume Reduction in Garageband</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-examining-gopro-max-and-hero-11-pursuit-of-perfect-footage/"><u>2024 Approved Examining GoPro Max & Hero 11 Pursuit of Perfect Footage</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-front-seat-pleasures-not-so-sporty-top-ten/"><u>2024 Approved Front Seat Pleasures Not So Sporty Top Ten</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-step-by-step-techniques-for-crafting-breathtakingly-long-lasting-time-movies-using-photo-apps-and-online-services/"><u>2024 Approved Step by Step Techniques for Crafting Breathtakingly Long Lasting Time Movies Using Photo Apps & Online Services</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-unleash-creativity-with-these-top-free-slideshow-templates/"><u>2024 Approved Unleash Creativity with These Top Free Slideshow Templates</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-windows-files-reviewed-in-a-flash/"><u>2024 Approved Windows Files Reviewed in a Flash</u></a></li>
-<li><a href="https://fox-info.techidaily.com/30-innovative-video-themes-and-layouts-for-2024/"><u>30 Innovative Video Themes and Layouts for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/iuacgombqeobquodkplusodhplusocquoduplusocquodvoodhplusocoplusocquodleocoeocpoodqplusobrueiuuiqjeobqpluswheimgshjgrpjg7zjg4fjg4pjgqjg4hjgqfjg4pjgqvjg7zmjqjlp77/"><u>最適なビデオ・オーディオファイルの確認に必要!コーデックチェッカー推奨:映像･音声用</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/bringing-realities-closer-google-cardboard-vs-samsung-gear/"><u>Bringing Realities Closer Google Cardboard Vs. Samsung Gear</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-gionee-f3-pro-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from Gionee F3 Pro.</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-itel-a05s-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Itel A05s Phone? | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-free-fast-and-reliable-the-best-pinterest-video-downloads-ranked/"><u>In 2024, Free, Fast & Reliable The Best Pinterest Video Downloads Ranked</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-the-ultimate-method-to-seamless-integration-of-linktree-into-tiktok-profiles/"><u>In 2024, The Ultimate Method to Seamless Integration of Linktree Into TikTok Profiles</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-optimal-srt-tweaks-elevating-your-computing-for-2024/"><u>[New] Optimal SRT Tweaks Elevating Your Computing for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-calculating-earnings-the-essence-of-youtube-short-revenue-split/"><u>[Updated] In 2024, Calculating Earnings The Essence of YouTube Short Revenue Split</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-vivo-s17t-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Vivo S17t Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/compre-points-with-perfect-pictures-snap-techniques-for-teams/"><u>Compre Points with Perfect Pictures Snap Techniques for Teams</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elite-workplace-cloud-data-haven/"><u>Elite Workplace Cloud Data Haven</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/error-code-0x800f0831-fast-fix-with-automated-windows-update-solutions/"><u>Error Code 0X800F0831? Fast Fix with Automated Windows Update Solutions</u></a></li>
+<li><a href="https://fox-info.techidaily.com/hassle-free-tiktok-age-checks/"><u>Hassle-Free TikTok Age Checks</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-easy-methods-to-unlock-icloud-locked-iphone-seipadipod-by-drfone-ios/"><u>In 2024, 3 Easy Methods to Unlock iCloud Locked iPhone SE/iPad/iPod</u></a></li>
+<li><a href="https://fox-info.techidaily.com/live-your-dreams-insights-into-the-panasonic-hx-a1-cam/"><u>Live Your Dreams Insights Into the Panasonic HX-A1 Cam</u></a></li>
+<li><a href="https://fox-info.techidaily.com/premier-general-knowledge-trivia-hubs-for-2024/"><u>Premier General Knowledge Trivia Hubs for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/revive-your-pcs-sound-system-speedily-correct-audio-glitches/"><u>Revive Your PC's Sound System: Speedily Correct Audio Glitches</u></a></li>
 </ul></div>
 

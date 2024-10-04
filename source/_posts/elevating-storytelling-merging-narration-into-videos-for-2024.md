@@ -1,7 +1,7 @@
 ---
 title: "\"Elevating Storytelling  Merging Narration Into Videos for 2024\""
-date: 2024-09-26T19:09:57.827Z
-updated: 2024-09-28T18:02:10.823Z
+date: 2024-09-29T16:46:24.695Z
+updated: 2024-10-04T00:15:13.167Z
 tags: 
   - screen-recording
   - ai video
@@ -49,19 +49,6 @@ But here's the good news: the way you add either option is the same in Filmora.
 
 ![add either option](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to add narration
 
 So the easiest way to add narration is directly to a project. The benefit of this is that you can record your narration inside Filmora while you watch the preview of your edited video.
@@ -69,10 +56,10 @@ So the easiest way to add narration is directly to a project. The benefit of thi
 ![add narration to project](https://images.wondershare.com/filmora/guide/stt-tts-srt-09.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 A good example of this would be narrating a story on top of some still images and video clips from a recent vacation. (In most cases you would want to turn off the sound of the video clip, or at least use ducking to help the viewer focus on the narration.)
@@ -80,6 +67,13 @@ A good example of this would be narrating a story on top of some still images an
 You put the playhead where you want to start recording and hit the microphone icon under the preview window.
 
 ![hit microphone icon](https://images.wondershare.com/filmora/guide/stt-tts-srt-08.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 A 3-second countdown will pop up and start recording immediately after this countdown.
 
@@ -106,16 +100,10 @@ Practice adding it to your videos to see how it adds depth and dimension to your
 It can also help make a connection with your audience because you can be relating to the images on the screen as they watch them. This is effective in building your YouTube audience.
 
 <!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Always use a good mic
@@ -125,10 +113,10 @@ When adding voiceover or narration to your project, be sure to use a good USB mi
 ![use good microphone](https://images.wondershare.com/filmora/article-images/2022/11/use-good-microphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
@@ -171,18 +159,19 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-boosting-your-contents-impact-on-instagram/"><u>[New] 2024 Approved Boosting Your Content's Impact on Instagram</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-becoming-an-insta-star-with-simple-steps/"><u>[New] Becoming an Insta-Star with Simple Steps</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-how-to-share-a-private-youtube-video-with-google-account-in-2024/"><u>[New] How to Share a Private YouTube Video with Google Account, In 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-5-useful-tool-to-brighten-video-online/"><u>2024 Approved 5 Useful Tool to Brighten Video Online</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-how-to-turn-your-smartphone-into-a-virtual-reality-vr-headset/"><u>2024 Approved How to Turn Your Smartphone Into a Virtual Reality (VR) Headset</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-instructions-windows-movie-maker-version-6-installation/"><u>2024 Approved Instructions Windows Movie Maker Version 6 Installation</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-transforming-education-with-instructional-videos/"><u>2024 Approved Transforming Education with Instructional Videos</u></a></li>
-<li><a href="https://fox-info.techidaily.com/a-novices-introduction-to-av1-codec-for-2024/"><u>A Novice's Introduction to AV1 Codec for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/dynamic-title-creation-the-game-changer/"><u>Dynamic Title Creation The Game Changer</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-sony-pictures-an-easy-method-explained-by-fonelab-android-recover-pictures/"><u>How to Restore Deleted Sony Pictures An Easy Method Explained.</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-honor-80-pro-straight-screen-edition-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Honor 80 Pro Straight Screen Edition to PC? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-vivo-y28-5g-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Vivo Y28 5G Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-correcting-access-denied-401-errors-online/"><u>Step-by-Step Guide: Correcting Access Denied (401) Errors Online</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-5-must-know-elements-of-influential-titles/"><u>[New] 5 Must-Know Elements of Influential Titles</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-navigating-vlc-software-basics-for-macos/"><u>[New] In 2024, Navigating VLC Software Basics for MacOS</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-mastering-the-art-of-action-shots-with-gopro-for-2024/"><u>[Updated] Mastering the Art of Action Shots with GoPro for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-tongue-to-type-tools-a-guide-to-the-best-speech-to-text-software-for-2024/"><u>[Updated] Tongue-to-Type Tools A Guide to the Best Speech-to-Text Software for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-visual-humor-for-iphones-enthusiasts-for-2024/"><u>[Updated] Visual Humor for iPhones Enthusiasts for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/17-best-digital-erasers-for-image-layer-cleaning/"><u>17 Best Digital Erasers for Image Layer Cleaning</u></a></li>
+<li><a href="https://win-dash.techidaily.com/asus-ac68-pce-wireless-card-driver-installation-get-now/"><u>ASUS AC68 PCE Wireless Card Driver Installation - Get Now!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/se-vlogging-content-suggestions/"><u>Diverse Vlogging Content Suggestions</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/efficiently-transforming-tiktok-videos-into-gif-format-for-2024/"><u>Efficiently Transforming TikTok Videos Into GIF Format for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/exposing-concealed-viewers-feedback-on-videos-for-2024/"><u>Exposing Concealed Viewers' Feedback on Videos for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/game-enhancement-no-more-crashes-in-apex/"><u>Game Enhancement - No More Crashes in Apex</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-social-media-savviness-mastering-4-techniques-to-record-facebook-lives/"><u>In 2024, Social Media Savviness Mastering 4 Techniques to Record Facebook Lives</u></a></li>
+<li><a href="https://fox-info.techidaily.com/pixiz-workshop-the-art-of-photo-video-synthesis-for-2024/"><u>Pixiz Workshop The Art of Photo Video Synthesis for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-a-new-era-for-internet-discovery-the-role-of-ai-in-website-querying/"><u>Unveiling a New Era for Internet Discovery: The Role of AI in Website Querying</u></a></li>
 </ul></div>
 

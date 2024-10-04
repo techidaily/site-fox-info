@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Beyond Imagination  Cutting-Edge VR Tech\""
-date: 2024-09-19T07:38:09.984Z
-updated: 2024-09-21T17:40:30.177Z
+date: 2024-10-01T18:10:00.533Z
+updated: 2024-10-04T01:25:02.322Z
 tags: 
   - screen-recording
   - ai video
@@ -40,15 +40,36 @@ thumbnail: https://thmb.techidaily.com/bd7c586aade6fed49cfda54f6e705ff08c3876c36
 ![google-cardbaorad-1]( https://images.wondershare.com/filmora/resource/google-cardbaorad-1.jpg
  )
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The VR gaming development is truly rising then
 
  Is it really the right time to make comment like virtual reality is really uprising as a gaming platform? If you take the year of year survey report, yes the result shows a significant uptick for the interest of this platform. If we look back at the last year’s survey, it revealed that only 33.4 percent of the developers were interested to develop games for VR platforms. If you consider in terms of interest, VR was placed behind the PC/Mac, PlayStation 4, smartphones or tablets. But, considering this year’s data, we can see more advancement in the interest for the VR platform! More and more European developers are now getting interested to develop games for VR platforms that the smartphones or tablets.
 
 ![vr-gaming ](https://images.wondershare.com/filmora/resource/vr-gaming1.jpg )
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  This clears the air that VR is turning to be an emerging platform for the European game developers but, which one is preferred more by the professional game developers – is it the Oculus Rift or HTC Vive or something else for that matter? The survey also includes a detailed report on that as well. Asking about which VR platform they are using – 23.1 percent developers said they are using Rift, Vive is slightly behind with 22 percent developers’ preferences. There is PlayStation VR headset as well with 11.8 percent preferences.
 
  However, despite having such acceptance by the professional game developers, the confidence for the VR games market seems to have dropped a bit – at least the recent survey is showing something like that. Last year, 71.7 percent of the game developers considered VR to be a sustainable long-term market while in this year, it slipped a little with 68.8 percent developers are thinking VR could be a long sustaining gaming market.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## About the European VR game makers and their funding
 
@@ -61,6 +82,13 @@ thumbnail: https://thmb.techidaily.com/bd7c586aade6fed49cfda54f6e705ff08c3876c36
  Overall, this is what cooking inside the VR gaming world and this survey report explains the different aspects of virtual reality that clearly presents the state of the VR industry on this year – 2016\. Hopefully, we will come across much more advancement to this process in the coming years since gaming on VR headsets is massively exciting and fun.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -85,18 +113,24 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-changing-screen-aspects-digitally/"><u>[New] Changing Screen Aspects Digitally</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-diving-deep-into-screen-technologies-projection-vs-television-in-4k/"><u>[New] In 2024, Diving Deep Into Screen Technologies Projection vs Television in 4K</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-visual-verve-essential-guide-for-iphones-photo-cropping/"><u>[New] In 2024, Visual Verve Essential Guide for iPhone's Photo Cropping</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-melody-matters-device-reviews/"><u>[Updated] 2024 Approved Melody Matters Device Reviews</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-conquer-the-financial-frontier-of-tiktok-with-these-8-money-making-techniques-for-2024/"><u>[Updated] Conquer the Financial Frontier of TikTok with These 8 Money-Making Techniques for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-expert-choice-top-10-video-subtitles-editors-online-for-2024/"><u>[Updated] Expert Choice Top 10 Video Subtitles Editors Online for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-enriching-listening-activities-for-the-modern-ear-podder/"><u>[Updated] In 2024, Enriching Listening Activities for the Modern Ear-Podder</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-maximizing-revenue-with-youtubes-2024-partner-program/"><u>[Updated] Maximizing Revenue with YouTube's 2024 Partner Program</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-the-key-elements-in-achieving-proficient-interview-performance/"><u>2024 Approved The Key Elements in Achieving Proficient Interview Performance</u></a></li>
+<li><a href="https://fox-info.techidaily.com/harmonized-high-res-overlays-for-devices/"><u>Harmonized High-Res Overlays for Devices</u></a></li>
+<li><a href="https://fox-info.techidaily.com/harmony-and-hype-perfecting-film-teaser-tunes/"><u>Harmony and Hype Perfecting Film Teaser Tunes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-creating-captivating-thumbnails-for-youtube/"><u>In 2024, Creating Captivating Thumbnails for YouTube</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-deconstructed-digital-captions-technique/"><u>In 2024, Deconstructed Digital Captions Technique</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-elevate-your-films-with-savvy-b-roll-techniques/"><u>In 2024, Elevate Your Films with Savvy B-Roll Techniques</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-most-effective-ways-to-bypass-apple-iphone-se-2022-activation-lock-by-drfone-ios/"><u>In 2024, The Most Effective Ways to Bypass Apple iPhone SE (2022) Activation Lock</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-depth-ice-cream-viewer-technology-study/"><u>In-Depth Ice Cream Viewer Technology Study</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/troubleshooting-missing-user32dll-files-a-comprehensive-solution-guide-for-computer-users/"><u>Troubleshooting Missing User32.dll Files: A Comprehensive Solution Guide for Computer Users</u></a></li>
+</ul></div>
 
