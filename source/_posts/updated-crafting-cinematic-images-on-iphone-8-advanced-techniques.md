@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Crafting Cinematic Images on iPhone  8 Advanced Techniques\""
-date: 2024-10-03T00:28:28.275Z
-updated: 2024-10-03T21:17:26.497Z
+date: 2024-10-08T10:32:57.946Z
+updated: 2024-10-08T21:10:48.141Z
 tags: 
   - screen-recording
   - ai video
@@ -47,25 +47,11 @@ thumbnail: https://thmb.techidaily.com/0f399835ae801930fc09d856b55526ca68007b6aa
 
 ![light](https://images.wondershare.com/set-light-iphone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Avoid Using the Digital Zoom
 
  It can be very tempting to try and use the zoom function on your camera to see people better, but this ultimately doesn’t work. You will end up with a grainy video of uncertain quality, rather than one which allows you to see everything in close up. Just move towards the point you are attempting to film – the quality of the video will be better, and you will not have to fiddle with controls and menus while making the video.
 
 ![zoom](https://images.wondershare.com/Zoom.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Use the Grid
 
@@ -73,11 +59,32 @@ thumbnail: https://thmb.techidaily.com/0f399835ae801930fc09d856b55526ca68007b6aa
 
 ![grid](https://images.wondershare.com/grid-iphone-camera.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Use the Exposure Lock
 
  When taking a video or a picture, you will have noticed that it can change the colour and the exposure while trying to get a lock and fix on what it is going to be recording. While it is good that it tries to find the best way to accommodate the light and sound in the room, having your video change exposure throughout will be at best annoying and at worst an outright distraction. Lock your exposure down on the iPhone once you have found the optimum conditions for the video, and it will not change.
 
 ![exposure](https://images.wondershare.com/lock-exposure.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Use Slow Motion\\Time Lapse Mode
 
@@ -86,10 +93,16 @@ thumbnail: https://thmb.techidaily.com/0f399835ae801930fc09d856b55526ca68007b6aa
 ![time lapse](https://images.wondershare.com/time-lapse-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Put your iPhone in Airplane Mode
@@ -101,10 +114,10 @@ thumbnail: https://thmb.techidaily.com/0f399835ae801930fc09d856b55526ca68007b6aa
 ![airplane mode](https://images.wondershare.com/airplane-mode.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Edit your Video with Filmora
@@ -114,17 +127,10 @@ thumbnail: https://thmb.techidaily.com/0f399835ae801930fc09d856b55526ca68007b6aa
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
-  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -158,16 +164,19 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-lightroom-workflow-creating-and-merging-professional-hdr-images/"><u>[New] Lightroom Workflow Creating & Merging Professional HDR Images</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-perfect-presentation-with-personalized-typography-in-ae-projects/"><u>[New] Perfect Presentation with Personalized Typography in AE Projects</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-top-affordable-panoramic-cameras-under-100/"><u>[Updated] 2024 Approved Top Affordable Panoramic Cameras Under $100</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-zest-up-social-feeds-create-meme-adobe-style/"><u>[Updated] Zest Up Social Feeds Create Meme Adobe-Style</u></a></li>
-<li><a href="https://win-answers.techidaily.com/guide-to-resolving-nier-replicant-revived-version-boot-problems/"><u>Guide to Resolving NieR Replicant Revived Version Boot Problems</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Lava Agni 2 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-fast-forward-to-forgotten-reddit-threads/"><u>In 2024, Fast Forward to Forgotten Reddit Threads</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Infinix Note 30 VIP? | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/premium-experience-on-a-budget-apples-ipad-air-4-showdown-with-the-ipad-pro/"><u>Premium Experience on a Budget: Apple's iPad Air 4 Showdown with the iPad Pro</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/samsung-galaxy-f15-5g-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy F15 5G Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/the-insightful-breakdown-of-m4a-audio-files-mastery-in-opening-and-accessing-content/"><u>The Insightful Breakdown of M4A Audio Files: Mastery in Opening & Accessing Content</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-harmonizing-photos-with-musical-scores-for-2024/"><u>[New] Harmonizing Photos With Musical Scores for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-hdr-rating-does-aurora-deliver-quality/"><u>[New] HDR Rating Does Aurora Deliver Quality?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-direct-to-fans-or-mass-market-twitch-vs-youtube-explored/"><u>2024 Approved Direct-to-Fans or Mass-Market? Twitch Vs YouTube Explored</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-unveiling-the-purpose-of-watermarks-in-fb-media/"><u>2024 Approved Unveiling the Purpose of Watermarks in Fb Media</u></a></li>
+<li><a href="https://network-issues.techidaily.com/eradicate-win11-opaque-screen-phenomenon/"><u>Eradicate WIN11 Opaque Screen Phenomenon</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-you-when-your-realme-narzo-60-pro-5g-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Realme Narzo 60 Pro 5G is off? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-evaluating-photoshop-sway-effective-or-not/"><u>In 2024, Evaluating Photoshop Sway Effective or Not?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-iphones-alphabetical-album-setup-and-its-integration-with-icloud-services/"><u>In 2024, IPhone's Alphabetical Album Setup and Its Integration with iCloud Services</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-non-retweeted-video-tweet-guide-for-iphone-and-android-users/"><u>In 2024, Non-Retweeted Video Tweet Guide for iPhone & Android Users</u></a></li>
+<li><a href="https://fox-info.techidaily.com/pinnacle-all-in-one-4k-with-touch-display/"><u>Pinnacle All-in-One, 4K with Touch Display</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-ultrawide-uhd-dilemranc-which-monitor-wins-in-2024/"><u>The Ultrawide-UHD Dilemranc Which Monitor Wins, In 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/uncovering-8-superior-online-srt-translation-tools-for-2024/"><u>Uncovering 8 Superior Online SRT Translation Tools for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unveiling-the-secrets-of-lightroom-on-android-platforms/"><u>Unveiling the Secrets of Lightroom on Android Platforms</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-mastering-gopro-footage-a-step-by-step-mac-editing-guide/"><u>Updated Mastering GoPro Footage A Step-by-Step Mac Editing Guide</u></a></li>
 </ul></div>
 

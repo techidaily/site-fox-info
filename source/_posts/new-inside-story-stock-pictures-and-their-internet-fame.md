@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Inside Story  Stock Pictures and Their Internet Fame\""
-date: 2024-09-27T00:37:19.572Z
-updated: 2024-10-03T16:00:24.393Z
+date: 2024-10-02T12:29:31.686Z
+updated: 2024-10-09T04:22:44.658Z
 tags: 
   - screen-recording
   - ai video
@@ -54,9 +54,23 @@ Another popular stock image meme is Distracted Boyfriend. It features the stock 
 
 ![distracted boyfriend](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The original photo is the work of Antonio Guillem, who uploaded it on iStock in November 2015\. Initially, the photo was labeled as a lisloyal man with his girlfriend looking at another girl and required purchasing the proper license to use it.
 
 ![original photo](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 According to Meme Documentation, the first version of the Distracted boyfriend theme dates back to January 2017\. Prog Snob, a Turkish progressive rock group on Facebook, posted the meme on their page to reference Phil Collin's distraction from progressive rock by pop music. However, it was the August 2017 Twitter version referencing the youth's feelings towards capitalism and socialism that went viral.
 
@@ -83,13 +97,6 @@ However, subsequent memes feature satirical themes. Here are some of the most po
 
 ![the most popular versions](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 A July 2017 Instagram post by Cathrottle gained over 13,400 likes in a month. In this version, the man wonders why there are so many Fast and the Furious movies.
 
 * Redditor GallowBoob received 34,700 points and 350 comments within 24 hours of posting it.
@@ -103,6 +110,13 @@ The post references the Toy Story character Buzz Lightyear, with the man contemp
 According to sources, the stock photo meme was first featured on Twitter in December 2016.
 
 ![stock photo meme](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-10.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
 
@@ -119,10 +133,10 @@ Since then, internet users have continued to use the Bonjour Bear meme to refere
 ![using hand sanitizer](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In addition, the post received over 91,700 points, with 95% of upvotes, within a day on Reddit.
@@ -133,31 +147,19 @@ In addition, the post received over 91,700 points, with 95% of upvotes, within a
 The photo is available on most stock photo websites, such as Adobe and Tumblr. Furthermore, you will find other hilarious versions of Bonjour Bear under the subreddits r/dankmemes and r/memes on Reddit.
 
 <!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part5: FAQs
 
 <!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Can you use stock photos for memes?
@@ -166,23 +168,9 @@ Yes, you can use stock photos for memes. However, you need to obtain them from r
 
 This is because not all stock photo providers offer their images with a creative commons license. For example, the Unsplash license allows you to use their stock images for personal or commercial use after making adjustments to the original.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Does copyright law protect memes?
 
 Yes, all memes are under copyright law, which means you have the authority to govern their use. Although identifying the meme owner can be challenging, posting or sharing a meme through your social media accounts without consent violates copyright law. Therefore, only use stock image memes from verified stock content providers like Shutterstock, where the license provisions are clear.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Can you use watermarked stock photos to create memes?
 
@@ -220,22 +208,21 @@ Therefore, always perform stock image reverse searches to verify the image permi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-cognitive-conundrums-top-11-gk-video-hubs/"><u>[New] 2024 Approved Cognitive Conundrums Top 11 GK Video Hubs</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-effortlessly-record-macos-content-and-display/"><u>[New] 2024 Approved Effortlessly Record macOS Content & Display</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-expert-tips-mixing-visual-filters-and-melodies-in-windows-10-photos/"><u>[New] 2024 Approved Expert Tips Mixing Visual Filters & Melodies in Windows 10 Photos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-steps-youtube-takes-once-a-video-is-submitted-for-viewing/"><u>[New] 2024 Approved The Steps YouTube Takes Once a Video Is Submitted for Viewing</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-easy-entry-into-cinematography-choosing-film-cameras-35mm-to-pands/"><u>[New] Easy Entry Into Cinematography Choosing Film Cameras (35Mm to P&S)</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-10-essential-meme-blueprints/"><u>[Updated] 10 Essential Meme Blueprints</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-top-6-online-communities-catering-to-the-commercial-world/"><u>[Updated] 2024 Approved Top 6 Online Communities Catering to the Commercial World</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-hand-tracking-insights-and-types/"><u>[Updated] Hand Tracking Insights and Types</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-pro-tips-for-time-lapping-your-samsung-camera/"><u>[Updated] In 2024, Pro Tips for Time-Lapping Your Samsung Camera</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-pro-editors-insight-restore-true-colors-to-faded-iphone-hdr-in-adobe-premiere/"><u>2024 Approved [Pro Editor's Insight] Restore True Colors to Faded iPhone HDR in Adobe Premiere</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-unveiling-the-secrets-to-choosing-movie-trailers-music/"><u>2024 Approved Unveiling the Secrets to Choosing Movie Trailers' Music</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/apex-legends-bug-fix-overcoming-basic-cheat-protection-errors/"><u>Apex Legends Bug Fix: Overcoming Basic Cheat Protection Errors</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-exporting-frames-as-images-in-windows-10-photos-viewer/"><u>In 2024, Exporting Frames as Images in Windows 10 Photos Viewer</u></a></li>
-<li><a href="https://fox-info.techidaily.com/mastering-the-art-of-insight-discovering-your-off-facebook-activities-for-2024/"><u>Mastering the Art of Insight Discovering Your Off-Facebook Activities for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/restoring-gpu-efficiency-the-latest-ddu-guide/"><u>Restoring GPU Efficiency: The Latest DDU Guide</u></a></li>
-<li><a href="https://fox-info.techidaily.com/ultimate-guide-premium-plugins-boosting-ae-projects/"><u>Ultimate Guide Premium Plugins Boosting AE Projects</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/utilizing-conversational-ai-to-pave-your-pathway-to-a-perfect-profession/"><u>Utilizing Conversational AI to Pave Your Pathway to a Perfect Profession</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-become-a-trending-sensation-with-these-effective-youtube-seo-strategies/"><u>[New] 2024 Approved Become a Trending Sensation with These Effective YouTube SEO Strategies</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-dive-deep-into-duality-mastering-multi-video-watching-on-youtube/"><u>[New] 2024 Approved Dive Deep Into Duality Mastering Multi-Video Watching on YouTube</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-microcapture-screen-capture-tool-analysis/"><u>[New] In 2024, MicroCapture Screen Capture Tool Analysis</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-understanding-vimeo-online-movie-marketplace-for-2024/"><u>[New] Understanding Vimeo Online Movie Marketplace for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unleash-potential-essential-windows-10-skills-review/"><u>[Updated] Unleash Potential Essential Windows 10 Skills Review</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unlocking-youtubes-potential-10-mpeg-conversion-tips/"><u>[Updated] Unlocking YouTube's Potential 10 MPEG Conversion Tips</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-capture-chuckles-through-adobe-media/"><u>2024 Approved Capture Chuckles Through Adobe Media</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-launch-strategies-for-fb-generosity-campaigns/"><u>2024 Approved Launch Strategies for FB Generosity Campaigns</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-streamlining-cd-manipulation-with-wmp/"><u>2024 Approved Streamlining Cd Manipulation with WMP</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-the-essential-checklist-purging-backdrops-with-affinity-photo/"><u>2024 Approved The Essential Checklist Purging Backdrops with Affinity Photo</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-unlocking-virtual-presence-enhanced-screen-focus-on-ms-teams/"><u>2024 Approved Unlocking Virtual Presence Enhanced Screen Focus on MS Teams</u></a></li>
+<li><a href="https://fox-info.techidaily.com/advanced-livestream-software-arsenal/"><u>Advanced Livestream Software Arsenal</u></a></li>
+<li><a href="https://fox-info.techidaily.com/androids-top-gaming-app-kinemaster-unveiled/"><u>Android's Top Gaming App KineMaster Unveiled</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-motorola-moto-g13-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Motorola Moto G13 to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/improving-your-frames-per-second-fps-in-the-game-tainted-grail-conquest/"><u>Improving Your Frames per Second (FPS) in the Game 'Tainted Grail: Conquest'</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/unlock-xbox-gaming-memories-with-these-4-methods/"><u>Unlock Xbox Gaming Memories with These 4 Methods</u></a></li>
 </ul></div>
 

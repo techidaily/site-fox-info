@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, DIY Build  Custom Google Cardboard Virtual Reality\""
-date: 2024-09-29T23:40:46.273Z
-updated: 2024-10-03T17:16:05.553Z
+date: 2024-10-02T00:54:25.915Z
+updated: 2024-10-09T05:39:11.536Z
 tags: 
   - screen-recording
   - ai video
@@ -38,16 +38,10 @@ thumbnail: https://thmb.techidaily.com/ec364dbb6168e683e422487379a99c7901eeab42b
  In not more than 3 hours, people were able to construct their own virtual reality viewer. Do you also want to successfully make your own? Here’s what you will need, together with some important tips and tools to properly do it.
 
 <!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1.The accessories you will need
@@ -65,10 +59,16 @@ thumbnail: https://thmb.techidaily.com/ec364dbb6168e683e422487379a99c7901eeab42b
  It is recommended to use the right type of cardboard, with the same thickness as that of a durable shoe box. You can use a pizza box, but make sure it offers enough flat surfaced material to work with. Of course, you want something durable, yet slim to work with. In some cases, a couple of additional items might be needed such as ceramic disc magnet, neodymium magnet, some pieces of Velcro, big rubber band and at least 45 mm lenses.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.How to assemble accessories
@@ -84,10 +84,10 @@ thumbnail: https://thmb.techidaily.com/ec364dbb6168e683e422487379a99c7901eeab42b
 * If necessary, affix the NFC tag to the cardboard.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Pros and cons of DYI Google cardboard
@@ -110,10 +110,16 @@ thumbnail: https://thmb.techidaily.com/ec364dbb6168e683e422487379a99c7901eeab42b
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -141,18 +147,17 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-20-most-reliable-hashtag-tracker-tools-fbtwitterinsta/"><u>[New] 2024 Approved 20 Most Reliable Hashtag Tracker Tools (FB/Twitter/Insta)</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-luts-implementation-for-cinematographic-coloring/"><u>[New] 2024 Approved Luts Implementation for Cinematographic Coloring</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-secrets-to-amplifying-gopro-power-life-span/"><u>[New] Secrets to Amplifying GoPro Power Life Span</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-the-editors-edge-adding-sleek-fades-to-your-work-for-2024/"><u>[New] The Editor's Edge Adding Sleek Fades to Your Work for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-zero-price-green-screen-aids/"><u>[Updated] 2024 Approved Zero-Price Green Screen Aids</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-elevate-visibility-maximize-views-seo-for-videos/"><u>[Updated] Elevate Visibility, Maximize Views - SEO for Videos</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-attracting-audiences-hook-up-hacks-for-hosts/"><u>2024 Approved Attracting Audiences Hook-Up Hacks for Hosts</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-quick-tips-for-hitting-the-jackpot-in-pexels/"><u>2024 Approved Quick Tips for Hitting the Jackpot in Pexels</u></a></li>
-<li><a href="https://android-frp.techidaily.com/about-realme-12-pro-5g-frp-bypass-by-drfone-android/"><u>About Realme 12 Pro 5G FRP Bypass</u></a></li>
-<li><a href="https://win-able.techidaily.com/expert-advice-to-stop-starcraft-2-from-hanging-or-crashing-on-your-computer/"><u>Expert Advice to Stop Starcraft 2 From Hanging or Crashing on Your Computer</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/find-your-ideal-chatbot-solution-the-best-10-options-beyond-gpt/"><u>Find Your Ideal Chatbot Solution: The Best 10 Options Beyond GPT</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-excellent-zooid-formats-for-creation/"><u>In 2024, Excellent Zooid Formats for Creation</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-nokia-c02-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Nokia C02 Phone Pattern Lock</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-how-to-add-edit-and-optimize-youtube-tagstitledescription-for-more-views-for-2024/"><u>[New] How to Add, Edit and Optimize YouTube Tags/Title/Description for More Views for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-android-lens-mastery-techniques-and-apps/"><u>[Updated] 2024 Approved Android Lens Mastery Techniques & Apps</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-effortless-gifs-for-snapchat-your-practical-guide/"><u>[Updated] 2024 Approved Effortless GIFs for Snapchat Your Practical Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-mastery-in-myths-and-modernity-the-yt-story-channels-of-23/"><u>[Updated] 2024 Approved Mastery in Myths and Modernity The YT Story Channels of '23</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-chuckle-campaign-7-ingenious-ideas-for-funny-youtube-videos/"><u>[Updated] In 2024, Chuckle Campaign 7 Ingenious Ideas for Funny YouTube Videos</u></a></li>
+<li><a href="https://blog-min.techidaily.com/cambia-facilmente-i-tuoi-gif-a-video-mp4-gratuitamente-usando-il-convertitore-video-movevid-gratis-ed-efficiente/"><u>Cambia Facilmente I Tuoi GIF a Video MP4 Gratuitamente Usando Il Convertitore Video MoveVid - Gratis Ed Efficiente</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Oppo A59 5G | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-digitally-sign-xltx-online-free-tutorial-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How to Digitally Sign .xltx online free - (Tutorial)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-enigmatic-slow-motion-documentary/"><u>In 2024, Enigmatic Slow-Motion Documentary</u></a></li>
+<li><a href="https://fox-info.techidaily.com/jesters-junction-laughter-without-price-tags-for-2024/"><u>Jester’s Junction Laughter Without Price Tags for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-mechanics-of-parody-video-making-101/"><u>The Mechanics of Parody Video Making 101</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-realme-v30-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Realme V30 | Dr.fone</u></a></li>
 </ul></div>
 

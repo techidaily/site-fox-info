@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  IPhone Photography Fundamentals  The Essential 10 Arrangement Rules\""
-date: 2024-09-27T19:29:07.856Z
-updated: 2024-10-03T20:08:44.348Z
+date: 2024-10-05T19:46:13.805Z
+updated: 2024-10-09T12:38:25.609Z
 tags: 
   - screen-recording
   - ai video
@@ -40,10 +40,10 @@ thumbnail: https://thmb.techidaily.com/26237c0b8cf6f930c119cd7d58abe423d11d796e2
 ![rule of third](https://images.wondershare.com/filmora/article-images/rule-of-third.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Leading Lines
@@ -58,13 +58,6 @@ thumbnail: https://thmb.techidaily.com/26237c0b8cf6f930c119cd7d58abe423d11d796e2
 
 ![symmetrical](https://images.wondershare.com/filmora/article-images/Symmetrical.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Framing
 
  When we see a framed photograph, the frame brings out the beauty of the photograph. There are natural and man-made frames lying around. You just need to find that while clicking a picture. Framing the subject with such frames amplifies focus towards it, by isolating it from the world around. You can capture your subject through a hole, an arch, and different shapes and structures that you can visualize at that time.
@@ -72,10 +65,10 @@ thumbnail: https://thmb.techidaily.com/26237c0b8cf6f930c119cd7d58abe423d11d796e2
 ![framing](https://images.wondershare.com/filmora/article-images/framing.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Diagonals
@@ -83,20 +76,6 @@ thumbnail: https://thmb.techidaily.com/26237c0b8cf6f930c119cd7d58abe423d11d796e2
  Diagonals are an integral aspect of photography composition, as they determine the outcome of a picture you have clicked using your iPhone. Let’s get to know what the role of diagonals in a picture is and how it impacts the visual. As you know the Rules of Thirds is important and it positions the subject of interest at a corner over the grid outlay of a photograph. It sometimes might leave the other corner empty and unbalance the image. Using diagonals, you can position the main subject and diagonally move the less important subjects towards the other end to click the perfectly balanced shot.
 
 ![diagonal](https://images.wondershare.com/filmora/article-images/diagonal.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Shape
 
@@ -111,10 +90,10 @@ thumbnail: https://thmb.techidaily.com/26237c0b8cf6f930c119cd7d58abe423d11d796e2
 ![space](https://images.wondershare.com/filmora/article-images/Space.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Direction of Subject
@@ -124,10 +103,16 @@ thumbnail: https://thmb.techidaily.com/26237c0b8cf6f930c119cd7d58abe423d11d796e2
 ![direction](https://images.wondershare.com/filmora/article-images/direction.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Fill Your Frame
@@ -142,6 +127,26 @@ thumbnail: https://thmb.techidaily.com/26237c0b8cf6f930c119cd7d58abe423d11d796e2
 
 ![breal the rules](https://images.wondershare.com/filmora/article-images/break.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclsion
 
  Next time you are out to shoot something with your iPhone, try these photo composition rules and click mind blowing pictures. Though, these rules help you to get amazing iPhone pictures, learning to find the right subject and clicking with the right photo composition helps you more. With or without the rules, you have to keep a steady hand and a sharp eye for detail with patience if you want to click beautiful photographs with your iPhone.
@@ -149,6 +154,13 @@ thumbnail: https://thmb.techidaily.com/26237c0b8cf6f930c119cd7d58abe423d11d796e2
  Images come from the Internet
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -175,18 +187,17 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-effortless-gif-integration-on-your-iphone/"><u>[New] 2024 Approved Effortless GIF Integration on Your iPhone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-navigating-through-quantum-hdr-expertise/"><u>[New] 2024 Approved Navigating Through Quantum HDR Expertise</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-are-reviews-for-goods-online-monetized/"><u>[New] In 2024, Are Reviews For Goods Online Monetized?</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-tackling-photo-app-errors-in-windows-11/"><u>[New] In 2024, Tackling Photo App Errors in Windows 11</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-refined-retouches-using-the-eraser-in-photoshop-proficiently/"><u>[New] Refined Retouches Using the Eraser in Photoshop Proficiently</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-engaging-stories-expanding-audiences-top-three-methods/"><u>[Updated] 2024 Approved Engaging Stories, Expanding Audiences Top Three Methods</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-memelores-premier-10-templates/"><u>[Updated] In 2024, Memelore's Premier 10 Templates</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-pinnacle-cloud-space-for-enterprise-success-for-2024/"><u>[Updated] Pinnacle Cloud Space for Enterprise Success for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-how-vr-revolutionizes-movie-watching/"><u>2024 Approved How VR Revolutionizes Movie-Watching</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-unlocking-the-art-of-pc-games-screen-capture/"><u>2024 Approved Unlocking the Art of PC Games Screen Capture</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/diy-instructions-for-downloading-and-running-llama-2-on-local-systems/"><u>DIY Instructions for Downloading and Running Llama 2 on Local Systems</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-become-an-expert-at-multitasking-the-ffxp-way/"><u>In 2024, Become an Expert at Multitasking The FFXP Way</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-samsung-galaxy-s23-tactical-edition-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Samsung Galaxy S23 Tactical Edition Device</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-tech-leaders-the-most-advanced-video-capture-software-for-2024/"><u>[New] Tech Leaders The Most Advanced Video Capture Software for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-orchestrating-visuals-and-vo-in-powerpoint/"><u>[Updated] In 2024, Orchestrating Visuals & VO in Powerpoint</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-unveiling-fbs-topest-latest-perks/"><u>[Updated] Unveiling FB's Topest Latest Perks</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-a-step-by-step-approach-for-telegram-web-success/"><u>2024 Approved A Step-By-Step Approach for Telegram Web Success</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-craft-your-cinematic-iphone-footage-creating-and-editing-slow-movement-sequences/"><u>2024 Approved Craft Your Cinematic iPhone Footage Creating & Editing Slow Movement Sequences</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-maximizing-chrome-multitasking-via-picture-in-picture-mode/"><u>2024 Approved Maximizing Chrome Multitasking via Picture in Picture Mode</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-seamlessly-blend-apple-music-and-videos/"><u>2024 Approved Seamlessly Blend Apple Music & Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-why-cant-my-a6400-show-movies/"><u>2024 Approved Why Can't My A6400 Show Movies?</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/bypassing-error-messages-in-audacity-a-comprehensive-guide-to-fixing-the-open-sound-device-glitch-5-solutions/"><u>Bypassing Error Messages in Audacity: A Comprehensive Guide to Fixing the 'Open Sound Device' Glitch [5 Solutions]</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/effective-strategies-to-remove-recommended-for-you-section-on-instagram/"><u>Effective Strategies to Remove 'Recommended For You' Section on Instagram</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-x-sync-studio-platform-personal-computing/"><u>In 2024, X-Sync Studio Platform, Personal Computing</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-realme-c53-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Realme C53 | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Tackling Photo App Errors in Windows 11"
-date: 2024-09-13T03:18:32.514Z
-updated: 2024-09-16T16:44:37.452Z
+date: 2024-10-06T10:58:36.517Z
+updated: 2024-10-08T17:02:14.632Z
 tags: 
   - screen-recording
   - ai video
@@ -58,6 +58,13 @@ Here is how to troubleshoot –
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
@@ -73,13 +80,6 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Solution 3: Reset it
 
@@ -102,6 +102,13 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Solution 5: Reinstall Windows 10 Photos app
 
 Alternatively, if nothing works out in your favor, you can always fix Windows 10 Photos App crash issue by reinstalling Windows 10 Photos App. A corrupted Photos App might create disturbance for you, so reinstalling would get a fresh and bug free version on your system from the Microsoft Store.
@@ -113,6 +120,13 @@ Here is how to reinstall the Windows 10 Photos App –
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
@@ -120,10 +134,10 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -151,5 +165,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-streaming-snapshots-for-facebook-2023/"><u>[New] 2024 Approved Streaming Snapshots for Facebook, 2023</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-broadcasting-brilliance-in-final-fragments/"><u>[Updated] In 2024, Broadcasting Brilliance in Final Fragments</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-ultimate-drone-collection-available-now-for-2024/"><u>[Updated] Ultimate Drone Collection Available Now for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-pixel-pizzazz-top-10-screenshot-sticker-enhancers-for-iphonesandroids/"><u>2024 Approved Pixel Pizzazz Top 10 Screenshot Sticker Enhancers for iPhones/Androids</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/behind-the-numbers-carryminatis-youtube-wealth/"><u>Behind the Numbers CarryMinati’s YouTube Wealth</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/best-no-cost-dvd-conversion-software-for-win10win11-users-transform-your-dvds-into-multiple-formats-easily/"><u>Best No-Cost DVD Conversion Software for Win10/Win11 Users: Transform Your DVDs Into Multiple Formats Easily</u></a></li>
+<li><a href="https://fox-info.techidaily.com/comprehensive-srt-breakdown-for-professionals-for-2024/"><u>Comprehensive SRT Breakdown for Professionals for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/conversione-online-gratuita-converti-il-tuo-audioclip-mp2-in-mov-con-movavi/"><u>Conversione Online Gratuita: Converti Il Tuo Audioclip MP2 in MOV Con Movavi</u></a></li>
+<li><a href="https://fox-info.techidaily.com/exploring-the-technological-splendor-m1-pro-vs-m1-max/"><u>Exploring the Technological Splendor M1 Pro Vs. M1 Max</u></a></li>
+<li><a href="https://fox-info.techidaily.com/glowing-android-video-guide-simplified-methods/"><u>Glowing Android Video Guide - Simplified Methods</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-elevate-vlogging-select-best-handheld-and-tripod-systems/"><u>In 2024, Elevate Vlogging Select Best Handheld and Tripod Systems</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-essential-tips-for-constructing-professional-podcast-rss-feeds/"><u>In 2024, Essential Tips for Constructing Professional Podcast RSS Feeds</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-quick-ig-post-featuring-podcast-insight/"><u>In 2024, Quick IG Post Featuring Podcast Insight</u></a></li>
+<li><a href="https://fox-info.techidaily.com/instagram-live-broadcasting-unseen-and-unknown-for-2024/"><u>Instagram Live Broadcasting Unseen and Unknown for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/overcoming-low-end-pc-issues-in-windows-game-capture/"><u>Overcoming Low-End PC Issues in Window's Game Capture</u></a></li>
+<li><a href="https://extra-support.techidaily.com/pairing-podcast-with-picture-for-2024/"><u>Pairing Podcast with Picture for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/st-youtubers/"><u>Richest YouTubers</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/say-goodbye-to-twitch-lag-uncover-7-proven-techniques-to-ensure-smooth-stream-playback/"><u>Say Goodbye to Twitch Lag! Uncover 7 Proven Techniques to Ensure Smooth Stream Playback</u></a></li>
+<li><a href="https://games-able.techidaily.com/step-by-step-streaming-xbox-games-to-discord-channels/"><u>Step-by-Step: Streaming Xbox Games to Discord Channels</u></a></li>
+</ul></div>
 

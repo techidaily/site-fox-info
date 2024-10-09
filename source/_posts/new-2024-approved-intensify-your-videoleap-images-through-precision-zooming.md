@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Intensify Your Videoleap Images Through Precision Zooming\""
-date: 2024-10-02T06:27:03.536Z
-updated: 2024-10-03T20:01:28.082Z
+date: 2024-10-02T03:44:19.025Z
+updated: 2024-10-09T06:45:03.776Z
 tags: 
   - screen-recording
   - ai video
@@ -52,10 +52,10 @@ Videoleap is famous for providing the best video editing features to its users a
 * After you are satisfied, save the project and export it at your preference to your computer.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Animate the Zoom effect in Videoleap
@@ -68,29 +68,16 @@ Sometimes the video contents need a dramatic zoom effect that should take place 
 ![preview timeline videoleap](https://images.wondershare.com/filmora/article-images/2022/07/preview-timeline-videoleap.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Then select the "keyframes" tool from the toolbar at the bottom of your screen.
 * Add the keyframes to the desired portion of the video and then navigate the timecode to the place on the timeline where you want to stop it. After that add another keyframe at that point and pinch in to zoom the video.
 
 ![add keyframes videoleap](https://images.wondershare.com/filmora/article-images/2022/07/add-keyframes-videoleap.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Now head to the second time code where you want to focus the subject and then click on it. Then click on the "Preview" icon and see whether it needs further changes.
 * When you are satisfied, simply export the project and your animated zoom video will be saved successfully.
@@ -128,16 +115,23 @@ Videoleap is one of the leading video editing platforms available out there. The
 
 ![open the filmora application on pc](https://images.wondershare.com/filmora/guide/pan-zoom-feature-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * This will open 4 different types of tools regarding zoom functions. The first tool will help you to go from larger frames to smaller frames by zooming in. Thus, you can use this feature to bring details to a subject in your video. The second option helps you with zooming out from a smaller frame to a larger frame.
 * The third and fourth tools will help you achieve the Pan function from left to right and right to left respectively. This panning will be on a horizontal axis. You can also pan your video screen by using your mouse too.
 * You can select any of these options to zoom in, out, or pan your videos and create a stunning zoom effect on your videos.
 * When you are done with your editing process, save the video and the file will be exported to your PC.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -172,22 +166,22 @@ Videoleap is one of the leading video editing platforms available out there. The
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-essential-guide-to-editing-full-degree-videos-with-premiere-pro/"><u>[New] In 2024, Essential Guide to Editing Full Degree Videos with Premiere Pro</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-sky-cameras-battle-dji-pro-versus-gopro-fury/"><u>[New] In 2024, Sky Cameras Battle DJI Pro Versus GoPro Fury</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-superior-tracking-mounts-for-cameras-phone-sensitive/"><u>[New] In 2024, Superior Tracking Mounts for Cameras, Phone-Sensitive</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-quality-improvement-for-skype-video-calls/"><u>[New] Quality Improvement for Skype Video Calls</u></a></li>
-<li><a href="https://fox-info.techidaily.com/ultimate-guide-solidify-iphone-hdr-quality-with-4-key-editing-steps-for-2024/"><u>[Ultimate Guide] Solidify iPhone HDR Quality with 4 Key Editing Steps for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-mastering-shadows-and-highlights-through-photoshop-curves/"><u>[Updated] 2024 Approved Mastering Shadows & Highlights Through Photoshop Curves</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-strategies-for-time-loop-visual-tricks/"><u>[Updated] 2024 Approved Strategies for Time-Loop Visual Tricks</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-smartest-top-10-free-image-platforms-for-endless-memories/"><u>[Updated] Smartest Top 10 Free Image Platforms for Endless Memories</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-transferring-tactics-swiftly-send-files-to-devices/"><u>[Updated] Transferring Tactics Swiftly Send Files to Devices</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-utilizing-in-presentation-speech-to-text-functionality-in-powerpoint/"><u>[Updated] Utilizing In-Presentation Speech-to-Text Functionality in PowerPoint</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-top-techniques-for-professional-voice-capture/"><u>2024 Approved Top Techniques for Professional Voice Capture</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/become-a-videographer-essentials-of-recording-with-logitech-for-2024/"><u>Become a Videographer Essentials of Recording with Logitech for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-pictures-from-honor-x50iplus-by-fonelab-android-recover-pictures/"><u>Best Android Data Recovery - Retrieve Lost Pictures from Honor X50i+.</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/is-it-possible-to-use-chatgpt-for-managing-your-smart-household-devices/"><u>Is It Possible to Use ChatGPT for Managing Your Smart Household Devices?</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/tackling-non-definable-error-in-windows-environment/"><u>Tackling 'Non-Definable' Error in Windows Environment</u></a></li>
-<li><a href="https://fox-that.techidaily.com/the-digital-trail-how-to-recover-and-find-deleted-facetime-photos/"><u>The Digital Trail: How to Recover and Find Deleted FaceTime Photos</u></a></li>
-<li><a href="https://fox-info.techidaily.com/transcription-mastery-for-office-productivity-using-microsoft-words-voice-recognition-features-for-2024/"><u>Transcription Mastery for Office Productivity Using Microsoft Word's Voice Recognition Features for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-expert-tips-to-transform-lengthy-videos-into-engaging-segmented-content-for-2024/"><u>[New] Expert Tips to Transform Lengthy Videos Into Engaging, Segmented Content for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-elevating-user-experience-in-windows-11/"><u>2024 Approved Elevating User Experience in Windows 11</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-lg-360-camera-full-review/"><u>2024 Approved LG 360 Camera Full Review</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-the-future-of-flight-hubsans-revolutionary-h501s-explored/"><u>2024 Approved The Future of Flight - Hubsan's Revolutionary H501S Explored</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-the-pinnacle-guide-to-choosing-top-after-effects-plugins/"><u>2024 Approved The Pinnacle Guide to Choosing Top After Effects Plugins</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-the-ultimate-guide-to-iphone-composition-choosing-right-angles/"><u>2024 Approved The Ultimate Guide to iPhone Composition Choosing Right Angles</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-win-and-mac-top-8-excellent-subtitles-converters-to-srt/"><u>2024 Approved Win & Mac Top 8 Excellent Subtitles Converters to SRT</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-xsplit-hub-centralized-download-and-evaluation/"><u>2024 Approved XSplit Hub Centralized Download & Evaluation</u></a></li>
+<li><a href="https://program-issues.techidaily.com/back-in-action-origin-online-sign-in-now-restored/"><u>Back in Action: Origin Online Sign-In Now Restored</u></a></li>
+<li><a href="https://fox-info.techidaily.com/belly-laughs-list-ultimate-guide-to-free-memes-for-2024/"><u>Belly Laughs List Ultimate Guide to Free Memes for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/comprehensive-screen-capture-and-synchronization-techniques/"><u>Comprehensive Screen Capture and Synchronization Techniques</u></a></li>
+<li><a href="https://techidaily.com/discover-your-motherboard-type-with-simple-tricks/"><u>Discover Your Motherboard Type with Simple Tricks</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/fixed-windows-ui-glitch-graphics-flow-now-uninterrupted/"><u>Fixed Window's UI Glitch - Graphics Flow Now Uninterrupted</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/godslayer-chronicles-ragnarok-dawn-for-2024/"><u>Godslayer Chronicles Ragnarok Dawn for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/live-streaming-with-manycam-professional-virtual-camera-and-screen-recording-solution/"><u>Live Streaming with ManyCam: Professional Virtual Camera & Screen Recording Solution</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/spotlight-subject-erase-bg-in-photo-editing/"><u>Spotlight Subject, Erase Bg in Photo Editing</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/what-to-do-when-you-encounter-a-fake-chatgpt-website-a-guide/"><u>What to Do When You Encounter a Fake ChatGPT Website: A Guide</u></a></li>
 </ul></div>
 

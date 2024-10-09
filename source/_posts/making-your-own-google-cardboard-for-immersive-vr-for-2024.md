@@ -1,7 +1,7 @@
 ---
 title: "Making Your Own Google Cardboard for Immersive VR for 2024"
-date: 2024-09-29T19:36:52.468Z
-updated: 2024-10-03T18:00:09.447Z
+date: 2024-10-03T11:57:03.140Z
+updated: 2024-10-08T16:35:30.456Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,10 @@ thumbnail: https://thmb.techidaily.com/207578e24a0a184b7539ba9edecf41bf44046bb66
  In not more than 3 hours, people were able to construct their own virtual reality viewer. Do you also want to successfully make your own? Here’s what you will need, together with some important tips and tools to properly do it.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1.The accessories you will need
@@ -59,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/207578e24a0a184b7539ba9edecf41bf44046bb66
  It is recommended to use the right type of cardboard, with the same thickness as that of a durable shoe box. You can use a pizza box, but make sure it offers enough flat surfaced material to work with. Of course, you want something durable, yet slim to work with. In some cases, a couple of additional items might be needed such as ceramic disc magnet, neodymium magnet, some pieces of Velcro, big rubber band and at least 45 mm lenses.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.How to assemble accessories
@@ -78,10 +78,16 @@ thumbnail: https://thmb.techidaily.com/207578e24a0a184b7539ba9edecf41bf44046bb66
 * If necessary, affix the NFC tag to the cardboard.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Pros and cons of DYI Google cardboard
@@ -104,10 +110,10 @@ thumbnail: https://thmb.techidaily.com/207578e24a0a184b7539ba9edecf41bf44046bb66
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -135,14 +141,20 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-accelerated-aesthetics-rapid-revamping-of-images-on-windows-photo-editor/"><u>[New] 2024 Approved Accelerated Aesthetics Rapid Revamping of Images on Windows Photo Editor</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-the-path-to-professional-pictures-with-video-enhance-v22/"><u>[New] 2024 Approved The Path to Professional Pictures with Video Enhance V2.2</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-helmet-hats-a-comprehensive-look-at-best-cams-in-bike-culture/"><u>[New] Helmet Hats A Comprehensive Look at Best Cams in Bike Culture</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-troubleshooting-obs-fullscreen-failure/"><u>[New] Troubleshooting OBS Fullscreen Failure</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-classroom-vids-essential-editing-strategies/"><u>[Updated] 2024 Approved Classroom Vids Essential Editing Strategies</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-thriving-livestreams-strategies-for-beginners-with-low-followers/"><u>[Updated] 2024 Approved Thriving Livestreams Strategies for Beginners with Low Followers</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-leveraging-zoom-in-email-chats-a-guide-to-gmail-users/"><u>2024 Approved Leveraging Zoom in Email Chats – A Guide to Gmail Users</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Realme Narzo N53 | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-advanced-palette-tweaks-by-professionals/"><u>In 2024, Advanced Palette Tweaks by Professionals</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-ultimate-video-recording-guide-s-best-camcorder/"><u>[New] In 2024, Ultimate Video Recording Guide 'S Best Camcorder</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/obile-mastery-in-thumbnail-creation-for-engaging-youtube-videos/"><u>[New] Mobile Mastery in Thumbnail Creation for Engaging YouTube Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-selecting-the-superior-cloud-storage-hub/"><u>[Updated] 2024 Approved Selecting the Superior Cloud Storage Hub</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-cross-media-content-flow-from-youtube-to-thirtyplus-others/"><u>[Updated] Cross-Media Content Flow From YouTube to Thirty+ Others</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-cutting-edge-methods-backing-up-iphone-photos-to-snapchat-for-2024/"><u>[Updated] Cutting-Edge Methods Backing Up iPhone Photos to Snapchat for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-exploring-public-domain-art-what-is-it-and-website-recommendations/"><u>2024 Approved Exploring Public Domain Art What Is It and Website Recommendations</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-the-premier-rankings-best-general-knowledge-shows/"><u>2024 Approved The Premier Rankings Best General Knowledge Shows</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/acquiring-igtv-media-easily-a-comprehensive-pcmac-guide/"><u>Acquiring IGTV Media Easily A Comprehensive PC/Mac Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/creating-compelling-montage-images-step-by-step-for-2024/"><u>Creating Compelling Montage Images Step by Step for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/fusing-iphones-audio-and-visuals-together-for-2024/"><u>Fusing iPhones' Audio and Visuals Together for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-15-pro-max-to-other-iphone-13-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 15 Pro Max To Other iPhone 13 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokémon Go Cooldown Chart On Apple iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-why-apple-account-disabled-from-your-apple-iphone-6-plus-how-to-fix-by-drfone-ios/"><u>In 2024, Why Apple Account Disabled From your Apple iPhone 6 Plus? How to Fix</u></a></li>
+<li><a href="https://fox-info.techidaily.com/top-budget-friendly-timer-tools-for-2024/"><u>Top Budget-Friendly Timer Tools for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unlocking-the-secrets-to-earning-an-official-badge-on-instagram/"><u>Unlocking the Secrets to Earning an Official Badge on Instagram</u></a></li>
 </ul></div>
 

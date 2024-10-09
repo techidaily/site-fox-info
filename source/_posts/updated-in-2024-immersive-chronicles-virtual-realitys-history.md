@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Immersive Chronicles  Virtual Reality's History\""
-date: 2024-09-30T17:04:45.002Z
-updated: 2024-10-03T18:03:18.729Z
+date: 2024-10-05T03:10:19.677Z
+updated: 2024-10-09T00:11:33.387Z
 tags: 
   - screen-recording
   - ai video
@@ -44,37 +44,37 @@ _[Virtual Reality Technology: Current State and Future Challenges](https://tools
 
 In Pygmalions Spectacles, Stanley G. Weinbaum explains a goggle based game in which individuals can watch a holographic recording of virtual stories including touch and smell. This amazing vision of the future would actually turn into what we think of as virtual-reality today. While it's difficult to introduce touch and smell elements into the average virtual-reality experience, these are visions that creators have in mind for the very near future of virtual-reality experiences. It's amazing to think that 85+ years ago, people were already thinking about creating simulation experiences using technology. We still think of these types of plans as we look towards the future of VR. With rapidly changing technology however, these improvements to the VR simulation experience may be far closer than decades away.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## VR development in 1960s
 
 VR headsets actually started development in the 1960s. Just 30 years from the original thought of a VR headset, Ivann Sutherland created the very first VR headset for use with military applications. Using a specialized military software as well as a motion control platform, the first VR headsets were designed for use in training exercises. These VR training tools have now become the standard in the military for training for flight exercises, combat situations and more. An immersive experience is definitely required to push military personnel and prepare them in a safe training environment before they enter into the field. Many air forces around the world require an extensive amount of VR training simulations before they will even let a pilot into one of their aircraft. With the initial development using specialized software and motion controls, VR research would continue to pave the way for training in the military and beyond. Today’s military VR headsets are far more advanced, compact and immersive and these training programs as well as the technology will continue to develop a little bit faster than some of the products that we might find as regular consumers.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
+  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## VR development in 1990s
 
 VR headsets begin to make their way into a few arcade games for simulations and Nintendo announced the first home VR system. Virtual Boy was one of the first home systems available for use with a widespread appeal. Sega also introduced a Sega VR headset for the Sega Genesis console in the year 1993\. These wraparound prototypes had stereo sound, LCD screens and head tracking. Technical development in this VR headset doom the project and the cost of the headset was extensive making it a massive flop for Sega. The Virtual Boy however was a 3-D game console that experienced a little more success. Virtual Boy was released in North America at a price of $180\. The games were entirely made in red and black and there were only a few pieces of software available with the device. Users would wear a VR headset and control the action on a regular Nintendo controller. Unfortunately the console was very uncomfortable to use and because of the lack of games as well as the lack of color, it didn't present the same strong sales as the other Nintendo consoles out at the time.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## VR development in 2014
 
 Oculus VR represents the latest revolution in VR technology. When Facebook officially acquired the Oculus VR system, this showed that virtual-reality was becoming a huge concern for many of the world's top developers. Although the Oculus Rift was formed out of a kickstarter campaign in 2012, the deal in 2014 represented a huge boost in their funding and confidence. Later in 2015, Oculus began to acquire other companies like Surreal Vision and built partnerships with Samsung to develop the Samsung gear VR. As one of the leading companies in VR development, Oculus has fully functioning VR systems for consumers to purchase and use at home. With support for a wide range of applications and further applications being developed for specific use with their VR systems, this was a huge leap forward for VR. After gaining international attention with the demand after the Facebook deal, this would propel many other developers into creating their own VR development firms. Oculus in a way started a brand-new VR renaissance with a call to create immersive and simulated experiences for the average consumer. Previous VR headsets were very technical and inaccessible for the average computer user, but with plug-and-play compatibility and a wide host of supported applications, Oculus gave the average consumer hope that they can enjoy VR again.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## VR development in 2016 and beyond
@@ -86,10 +86,16 @@ The future of VR looks very bright and with so many new devices in development i
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -117,22 +123,15 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-screens-that-make-a-statement-the-ultimate-4k-displays-for-macs/"><u>[New] 2024 Approved Screens That Make a Statement The Ultimate 4K Displays for Macs</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-comprehensive-3d-lut-development-course/"><u>[New] Comprehensive 3D LUT Development Course</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-gamers-rejoice-mavic-air-vs-sparks-duel-explored/"><u>[New] Gamers Rejoice! Mavic Air Vs. Spark's Duel Explored</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-how-to-calculate-and-change-aspect-ratio-online/"><u>[New] How to Calculate and Change Aspect Ratio Online</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-top-vr-game-engines-2023-update-for-2024/"><u>[New] Top VR Game Engines -2023 Update for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-evaluating-brightness-in-hdr-quality-assessment-complete/"><u>[Updated] Evaluating Brightness in HDR Quality Assessment Complete?</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-15-synergistic-tasks-for-the-contemporary-audio-aficionado/"><u>[Updated] In 2024, 15 Synergistic Tasks for the Contemporary Audio Aficionado</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-guiding-steps-for-obtaining-professional-grade-images/"><u>[Updated] In 2024, Guiding Steps for Obtaining Professional-Grade Images</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-halt-real-time-audiovideo-capturing-on-apples-platform/"><u>[Updated] In 2024, Halt Real-Time Audio/Video Capturing on Apple's Platform</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-samsung-galaxy-m14-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Samsung Galaxy M14 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/dealing-with-fps-drops-and-frame-rate-issues-in-dying-light-2-for-a-smoother-pc-gaming-session/"><u>Dealing with FPS Drops and Frame Rate Issues in Dying Light 2 for a Smoother PC Gaming Session</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-poco-x5-pro-device-sim-by-drfone-android/"><u>Easily Unlock Your Poco X5 Pro Device SIM</u></a></li>
-<li><a href="https://article-tips.techidaily.com/exploring-the-best-iphone-selfie-tools-ranked-8/"><u>Exploring the Best iPhone Selfie Tools, Ranked #8</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-icloud-on-apple-iphone-x-smoothly-by-drfone-ios/"><u>How To Remove iCloud On Apple iPhone X Smoothly</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-expert-tips-on-selecting-the-ideal-video-aspect-ratio/"><u>In 2024, Expert Tips on Selecting the Ideal Video Aspect Ratio</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-11-pro-max-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 11 Pro Max without Passcode or Face ID | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/key-players-in-top-6-4k-youtube-to-mp3-conversion-software/"><u>Key Players in Top 6 4K YouTube-to-MP3 Conversion Software</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-the-evolution-of-action-cams-comparing-hero5-and-yis-newest-models-for-2024/"><u>[New] The Evolution of Action Cams Comparing Hero5 and Yi's Newest Models for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-strategies-for-editing-and-elevating-youtube-profiles/"><u>[Updated] 2024 Approved Strategies for Editing and Elevating YouTube Profiles</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-blueprint-for-a-thriving-portfolio-in-graphics/"><u>2024 Approved Blueprint for a Thriving Portfolio in Graphics</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-diving-into-benqs-bl2711u-a-professional-4k-monitor-analysis/"><u>2024 Approved Diving Into BenQ’s BL2711U - A Professional 4K Monitor Analysis</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-swift-windows-insight-sharing-methods/"><u>2024 Approved Swift Windows Insight Sharing Methods</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-tactical-steps-to-download-securely-free-vlc-media-on-mac/"><u>2024 Approved Tactical Steps to Download Securely Free VLC Media on MAC</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-tecno-phantom-v-fold-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Tecno Phantom V Fold | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-pinnacle-racing-experiences-best-of-the-best/"><u>In 2024, Pinnacle Racing Experiences Best of the Best</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-realme-narzo-60-pro-5g-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Realme Narzo 60 Pro 5G</u></a></li>
 </ul></div>
 
