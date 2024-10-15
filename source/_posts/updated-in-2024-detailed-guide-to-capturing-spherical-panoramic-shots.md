@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Detailed Guide to Capturing Spherical Panoramic Shots"
-date: 2024-09-14T20:22:51.522Z
-updated: 2024-09-17T07:39:17.980Z
+date: 2024-10-09T18:45:59.511Z
+updated: 2024-10-15T20:54:50.416Z
 tags: 
   - screen-recording
   - ai video
@@ -47,13 +47,6 @@ thumbnail: https://thmb.techidaily.com/0177669a9f7e47198243a9fecb2a2f8d7897c9576
 
 ![Panning clam on ballhead](https://images.wondershare.com/filmora/article-images/panning-clam-on-ballhead.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3. The actual shooting
 
  For a full frame camera with 15mm fisheye lens in the portrait position, you will require a total of six shot rounds and 1 up to complete a full sphere. If you were using a crop-sensor camera, you will need to have a 10mm fisheye lens to achieve the same sequence.
@@ -66,6 +59,13 @@ thumbnail: https://thmb.techidaily.com/0177669a9f7e47198243a9fecb2a2f8d7897c9576
 
  In normal photography, it always pays to remember what to include and what to exclude in your shots. When it comes to shooting 360s, it becomes more complicated since everything is included. For you to take successful 360s with fisheye therefore, you need to consider keenly where you stand. The fisheye lens will introduce a lot of space between you and the subject, hence you must consider how close or far away you are from the subject so that the pieces of the compositional puzzle will fall in place smoothly both in the horizontal and vertical planes.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Stitching 360 degrees panoramas after shooting
 
  To stitch 360s taken by fisheye lenses after shooting, you will need panorama software like [Autopano Pro](http://www.kolor.com/) or [PTGui](https://www.ptgui.com/). For Autopano Pro, you begin by importing the images into the software and ensuring that the EXIF are displayed correctly on the program. With the right settings in place, the next step is to launch the direct stitching feature if you don’t want to go the manual way. Once the stitching is done, it will be important to present the output online. This can be done using [Pano2VR](http://www.ggnome.com/pano2vr) or you could simply upload the finished panoramas to [360cities](https://www.360cities.net/) for online viewing.
@@ -73,6 +73,13 @@ thumbnail: https://thmb.techidaily.com/0177669a9f7e47198243a9fecb2a2f8d7897c9576
  You might be also interested in:
 
 [How to stitch GoPro clips into 360 videos >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What's fisheye lenses
 
@@ -85,10 +92,10 @@ thumbnail: https://thmb.techidaily.com/0177669a9f7e47198243a9fecb2a2f8d7897c9576
 ![create 360 photos with fisheye lens](https://images.wondershare.com/filmora/article-images/fisheye-lens-image.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Conclusion
@@ -96,6 +103,13 @@ thumbnail: https://thmb.techidaily.com/0177669a9f7e47198243a9fecb2a2f8d7897c9576
  Fisheye lenses have been around for a while now and the process of creating 360 panoramas with them may not be very challenging, but great results are achieved through practice and proper stitching. Once the photos are taken, you can use premium panorama software like Autopano Pro or you can use free options like the Microsoft ICE or Hugin. Ones stitching are done, it is imperative to have the final works uploaded online for others to view.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -120,5 +134,20 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-revolutionizing-art-sales-7-top-generators-for-turning-images-into-nfts/"><u>[New] In 2024, Revolutionizing Art Sales - 7 Top Generators for Turning Images Into NFTs</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-ultimate-choice-elite-desktop-pcs/"><u>[New] Ultimate Choice Elite Desktop PCs</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-detailed-review-of-magixs-acid-pro-and-similar-programs-for-2024/"><u>[Updated] Detailed Review of Magix's ACID Pro & Similar Programs for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-potential-pitfalls-in-virtual-realms/"><u>[Updated] In 2024, Potential Pitfalls in Virtual Realms</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-ravenhill-resonance-essential-websites-to-download-hearing-heroes-tones-for-2024/"><u>[Updated] Ravenhill Resonance Essential Websites to Download Hearing Heroes' Tones for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-perfect-path-from-instagram-to-tiktok/"><u>[Updated] The Perfect Path From Instagram to TikTok</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-web-wonders-weekly-review/"><u>[Updated] Web Wonders Weekly Review</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/easy-fixes-for-a-non-functioning-sound-blaster-microphone/"><u>Easy Fixes for a Non-Functioning Sound Blaster Microphone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elite-group-16-youtube-entries-boosting-views-for-2024/"><u>Elite Group 16 YouTube Entries Boosting Views for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/explore-these-10-free-online-tv-options-beyond-netflix/"><u>Explore These 10 Free Online TV Options, Beyond Netflix</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-honor-magic-5-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Honor Magic 5 ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/live-streaming-made-simple-with-manycam-top-virtual-webcam-software-solution/"><u>Live Streaming Made Simple with ManyCam: Top Virtual Webcam Software Solution</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Realme GT 5 Pro? | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Seamless Transitions  Shooting Smooth Time-Lapse with Hero5 for 2024\""
-date: 2024-10-02T08:56:13.895Z
-updated: 2024-10-08T22:09:13.754Z
+date: 2024-10-13T19:10:16.782Z
+updated: 2024-10-15T18:43:29.667Z
 tags: 
   - screen-recording
   - ai video
@@ -84,10 +84,10 @@ Make use of good tripod, a fast and spacious SD card, a suction mount and always
 [Check at Amazon](https://www.amazon.com/gp/product/B01M14ATO0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M14ATO0&linkId=5ce54ea937ecffa6b1b8056b6922abaa)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Making time lapse videos with Wondershare Filmora
@@ -101,10 +101,16 @@ The Instant cutter tool on the other hand can be used for trimming and merging v
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * First, launch the Filmora app and then choose the ‘action cam tool’
@@ -113,10 +119,10 @@ The Instant cutter tool on the other hand can be used for trimming and merging v
 ![1-action-cam-tool-fix-entrance](https://images.wondershare.com/filmora/article-images/filmora-splash-screen-0321.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Now go to the Speed tab and bring the Playhead to the exact position where the speed effect is to be applied.
@@ -124,19 +130,19 @@ The Instant cutter tool on the other hand can be used for trimming and merging v
 
 ![speed-effect-speed-add-marke](https://images.wondershare.com/filmora/article-images/speed-effect-speed-add-marker.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * The speed settings can be adjusted by clicking on the checkbox marked Speed. The speed slider can be moved forward to make it faster up to 20x for the time lapse effect.
 * Export your time lapse video to Full Features Mode to edit further, such as adding various filters, overlay and effects. Currently, there are more than 300 Effects, and there is an [ACTION CAM WINTER SET](https://www.filmstocks.com/effects-store-upgrade.html)available now. [Check More](https://www.filmstocks.com/effects-store-upgrade.html)
 
 [Learn more detailed information about how to make a time lapse video in Filmora Full Feature Mode](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Max Wales
 
@@ -163,18 +169,17 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-a-comprehensive-look-at-the-newest-updates-of-lg-360-cameras/"><u>[New] In 2024, A Comprehensive Look at the Newest Updates of LG 360 Cameras</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-straightforward-guide-switch-video-direction-in-vlc/"><u>[New] In 2024, Straightforward Guide Switch Video Direction in VLC</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-windows-11-photos-setup-guide-adding-aesthetic-overlays-and-music/"><u>[New] In 2024, Windows 11 Photos Setup Guide Adding Aesthetic Overlays & Music</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-the-most-trusted-free-open-source-video-meeting-solutions-for-companies-and-schools/"><u>[New] The Most Trusted Free, Open Source Video Meeting Solutions for Companies & Schools</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-unleash-creativity-build-logos-using-free-template-inspiration-for-2024/"><u>[New] Unleash Creativity Build Logos Using Free Template Inspiration for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-free-lut-heaven-the-10-finest-and-accessible-resources/"><u>[Updated] Free LUT Heaven The 10 Finest and Accessible Resources</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-video-uploads-on-youtube-a-comprehensive-tutorial/"><u>[Updated] Navigating Video Uploads on YouTube A Comprehensive Tutorial</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/discover-the-secrets-of-effective-image-searches-on-facebook/"><u>Discover the Secrets of Effective Image Searches on Facebook</u></a></li>
-<li><a href="https://location-social.techidaily.com/does-find-my-friends-work-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>Does find my friends work on Motorola Edge+ (2023) | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-asus-rog-phone-7-ultimate-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Asus ROG Phone 7 Ultimate PC | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-the-complete-guide-to-vr-ready-space-setup/"><u>In 2024, The Complete Guide to VR-Ready Space Setup</u></a></li>
-<li><a href="https://win-able.techidaily.com/troubleshooting-critical-bugs-in-call-of-dutys-modern-warfare-and-warzone-games/"><u>Troubleshooting Critical Bugs in Call of Duty's Modern Warfare and Warzone Games</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/unlocking-the-secrets-of-webm-file-playback-for-your-pc-macbook-and-iphone-a-comprehensive-tutorial/"><u>Unlocking the Secrets of WebM File Playback for Your PC, Macbook, and iPhone - A Comprehensive Tutorial</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-apex-screen-capture-tools-the-elite-line-up/"><u>[New] 2024 Approved Apex Screen Capture Tools The Elite Line-Up</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-windows-10-gamers-guide-to-effective-video-capture/"><u>[New] 2024 Approved Windows 10 Gamers' Guide to Effective Video Capture</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-converging-music-and-imagery-online/"><u>[New] Converging Music and Imagery Online</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-enhance-your-iphone-hd-video-clarity-in-premiere-pro-effortlessly/"><u>[New] In 2024, Enhance Your iPhone HD Video Clarity in Premiere Pro Effortlessly</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-enhancing-narrative-flow-integrating-chapters-into-your-youtube-content/"><u>[New] In 2024, Enhancing Narrative Flow Integrating Chapters Into Your YouTube Content</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-incorporating-captions-into-instagrams-video-platform/"><u>[New] In 2024, Incorporating Captions Into Instagram's Video Platform</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-future-of-editing-shines-with-magix-video-pro-x/"><u>[New] The Future of Editing Shines with Magix Video Pro X</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-the-ultimate-guide-to-top-12-html5-video-engines/"><u>[New] The Ultimate Guide to Top 12 HTML5 Video Engines</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-hdrs-edge-pushing-video-production-to-new-heights/"><u>[Updated] HDR's Edge Pushing Video Production to New Heights</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-prophotomaster-the-ai-enhanced-editing-edge/"><u>[Updated] ProPhotoMaster The AI-Enhanced Editing Edge</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/streaming-success-monetization-unlocked-with-500-subscribers-for-2024/"><u>Streaming Success Monetization Unlocked with 500 Subscribers for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-bridge-between-human-and-machine-gpts-language-decipherer/"><u>The Bridge Between Human and Machine: GPT's Language Decipherer</u></a></li>
 </ul></div>
 

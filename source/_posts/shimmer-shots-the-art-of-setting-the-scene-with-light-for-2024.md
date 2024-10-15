@@ -1,7 +1,7 @@
 ---
 title: "\"Shimmer Shots  The Art of Setting the Scene with Light for 2024\""
-date: 2024-10-05T23:00:42.309Z
-updated: 2024-10-08T17:22:06.589Z
+date: 2024-10-09T19:31:25.590Z
+updated: 2024-10-15T17:21:46.604Z
 tags: 
   - screen-recording
   - ai video
@@ -98,10 +98,16 @@ We usually set the lights around 50% brightness and a color temperature of 5600K
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Summary
@@ -138,19 +144,24 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-approaches.techidaily.com/new-understanding-your-macs-capabilities-in-big-sur/"><u>[New] Understanding Your Mac's Capabilities in Big Sur</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-ultimate-compilation-best-gopro-cases-for-action-seekers/"><u>[Updated] 2024 Approved Ultimate Compilation Best GoPro Cases for Action Seekers</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-blend-soundscape-into-ppt-narratives/"><u>[Updated] In 2024, Blend Soundscape Into PPT Narratives</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-in-depth-guide-to-live-photos-and-full-screen-videos-on-iphones/"><u>[Updated] In 2024, In-Depth Guide to Live Photos and Full-Screen Videos on iPhones</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-rapid-reference-green-screen-basics/"><u>[Updated] Rapid Reference Green Screen Basics</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/evaluating-ais-craft-in-cocktail-creation/"><u>Evaluating AI's Craft in Cocktail Creation</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-exceptional-uav-selection-for-optimal-gopro-footage/"><u>In 2024, Exceptional UAV Selection for Optimal GoPro Footage</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-oppo-reno-9a-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Oppo Reno 9A to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/painting-with-light-an-experts-guide-to-color-grading-for-2024/"><u>Painting with Light An Expert's Guide to Color Grading for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/pixel-playbook-transform-your-images-for-2024/"><u>Pixel Playbook Transform Your Images for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/streamlining-fb-live-recording-for-maximum-clarity-for-2024/"><u>Streamlining FB Live Recording for Maximum Clarity for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/ultimate-online-collaboration-conjurer-for-2024/"><u>Ultimate Online Collaboration Conjurer for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/ultimate-speedy-pics-viewing-tool-for-2024/"><u>Ultimate Speedy Pics Viewing Tool for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-editing-images-erasing-unwanted-backdrops/"><u>[New] 2024 Approved Editing Images Erasing Unwanted Backdrops</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-screens-sole-contender-software-or-hardware-triumph/"><u>[New] 2024 Approved The Screen's Sole Contender Software or Hardware Triumph?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-footage-frenzy-pro-vs-platinum-with-gopro-hero5-and-hero4-for-2024/"><u>[New] Footage Frenzy Pro vs Platinum with GoPro Hero5 and Hero4 for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-essential-youtube-beauty-influencers-10-creators-to-watch/"><u>[New] In 2024, Essential YouTube Beauty Influencers 10 Creators to Watch</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-the-ultimate-ranking-top-8-budget-friendly-srt-apps/"><u>[New] The Ultimate Ranking Top 8 Budget-Friendly SRT Apps</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-healthcare-marketing-mastering-fb-ad-strategies/"><u>[Updated] 2024 Approved Healthcare Marketing Mastering FB Ad Strategies</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-virtual-wit-whip/"><u>[Updated] 2024 Approved Virtual Wit Whip</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-master-listings-for-melodic-mobile-alerts/"><u>[Updated] In 2024, Master Listings for Melodic Mobile Alerts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-perfect-pacing-with-macos-a-specialists-guide-to-srt-editing/"><u>[Updated] Perfect Pacing with macOS A Specialist's Guide to SRT Editing</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-top-picks-for-kids-and-first-time-fliers-easy-drone-models/"><u>[Updated] Top Picks for Kids & First-Time Fliers Easy Drone Models</u></a></li>
+<li><a href="https://fox-info.techidaily.com/flight-paths-revealed-full-review-of-dji-phantom-4/"><u>Flight Paths Revealed Full Review of DJI Phantom 4</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-the-ultimate-guide-to-using-obs-in-android/"><u>In 2024, The Ultimate Guide to Using OBS in Android</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/spectral-imagery-phantasmal-camera-analysis/"><u>Spectral Imagery Phantasmal Camera Analysis</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-8-most-effective-authentic-promotion-techniques-for-2024/"><u>The 8 Most Effective, Authentic Promotion Techniques for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-art-of-digital-expression-your-guide-to-sharing-animated-messages-on-snapchat-for-2024/"><u>The Art of Digital Expression Your Guide to Sharing Animated Messages on Snapchat for 2024</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/tightpurses-pet-snapshots-revealed/"><u>TightPurses Pet Snapshots Revealed</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/transform-your-discord-experience-learn-message-pinning/"><u>Transform Your Discord Experience Learn Message Pinning</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/unleashing-potential-top-10-strategies-for-instagram-video-ads-for-2024/"><u>Unleashing Potential Top 10 Strategies for Instagram Video Ads for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/unlocking-the-potential-of-quantum-hdr/"><u>Unlocking the Potential of Quantum HDR</u></a></li>
 </ul></div>
 

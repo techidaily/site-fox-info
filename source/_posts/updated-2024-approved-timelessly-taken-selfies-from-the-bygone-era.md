@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Timelessly Taken  Selfies From the Bygone Era\""
-date: 2024-10-05T12:50:24.798Z
-updated: 2024-10-09T00:36:51.699Z
+date: 2024-10-13T20:32:27.006Z
+updated: 2024-10-15T20:13:36.083Z
 tags: 
   - screen-recording
   - ai video
@@ -41,10 +41,10 @@ In this article, we are going to show you how to take photos in Portrait Mode, o
 * [Part 1: For iPhone 8, 7 or older iPhones users](#part2)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### For iPhone 7 Plus/8 Plus/X users
@@ -67,6 +67,13 @@ The iPhone X can also take Portrait selfies thanks to the TrueDepth front camera
 
 ![portrait-mode-selfie-iphone-x](https://images.wondershare.com/filmora/article-images/portrait-mode-selfie-iphone-x.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Image resource: imore
 
 Launch the Camera app, and swipe to the Portrait option, and then tap on the Camera Swap feature to start using the front camera on your iPhone. Find the Portrait Lightning feature in the camera's Portrait mode, then select one of the options provided by the Portrait Lightning such as Studio Light or Natural light, and proceed to snap a selfie by tapping on the shutter button.
@@ -83,13 +90,6 @@ If there is not enough light or if you are too far away from the camera, the app
 
 ![ezy-watermark-lite-photo](https://images.wondershare.com/filmora/article-images/ezy-watermark-lite-photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Older iPhone models may not have a twin-lens system, but with the aid of a camera app such as FabFocus, iPhone photographers can easily take photos with smooth blurry backgrounds. The Automatic Depth of Field and Bokeh options enable you to add as much blur as you want to your photos and create DSLR-like images. The app also contains basic photo editing tools that can be used to touch-up the photo before you share it with your friends.
 
 #### [Tadaa SLR](https://itunes.apple.com/us/app/tadaa-slr/id724662909?mt=8)
@@ -101,10 +101,10 @@ Older iPhone models may not have a twin-lens system, but with the aid of a camer
 ![iwatermark-watermark-photos](https://images.wondershare.com/filmora/article-images/iwatermark-watermark-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Advertised as the best depth-of-field app for iPhones on the market today, Tadaa SLR sets high photography standards. To make things even better, the app is so easy to use that you just need to set the focal point of the photo and tap on the shutter button to snap a photo. However, Tadaa SLR is only a camera app that doesn't offer a lot of photo editing options.
@@ -117,6 +117,13 @@ Advertised as the best depth-of-field app for iPhones on the market today, Tadaa
 
 ![signature-photo-annotator](https://images.wondershare.com/filmora/article-images/signature-photo-annotator.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The term Bokeh comes from the Japanese language and it represents the aesthetic quality of the out of focus parts of photos. The Bokeh Lens app is designed to make the process of creating a shallow depth of field as fast and fun as it can be. The app lets you fine-tune the level of bokeh you are creating a photo, while it also allows you to select the areas you want to keep in focus.
 
 #### [Defocus](https://itunes.apple.com/us/app/defocus/id1048310180?mt=8)
@@ -126,13 +133,6 @@ The term Bokeh comes from the Japanese language and it represents the aesthetic 
 **Compatible with:** iOS 8.0 or later
 
 ![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
@@ -163,18 +163,14 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-must-try-tiktok-video-ideas-drawing-from-anime-worlds/"><u>[New] 2024 Approved Must-Try TikTok Video Ideas Drawing From Anime Worlds</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-auroras-vision-in-home-theater-systems-evaluated-for-2024/"><u>[New] Aurora's Vision in Home Theater Systems Evaluated for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-mastering-the-art-of-zip-to-srt-conversion/"><u>[New] Mastering the Art of Zip to Srt Conversion</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-subtle-symmetry-balancing-visuals-like-a-pro/"><u>[New] Subtle Symmetry Balancing Visuals Like a Pro</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-the-ultimate-hdr-tutorial-for-exceptional-portraits-for-2024/"><u>[New] The Ultimate HDR Tutorial for Exceptional Portraits for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-motivational-cinema-the-ultimate-guide-to-empowerment-films/"><u>[Updated] 2024 Approved Motivational Cinema The Ultimate Guide to Empowerment Films</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-examining-mobile-enhancements-with-androids-lightroom-app/"><u>[Updated] Examining Mobile Enhancements with Android's Lightroom App</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-discover-the-finest-no-fee-list-of-excellent-luts/"><u>[Updated] In 2024, Discover the Finest No-Fee List of Excellent LUTs</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-ultimate-seal-on-cyberspace-expeditions-for-2024/"><u>[Updated] Ultimate Seal on Cyberspace Expeditions for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-professional-pcmac-screen-recorders/"><u>2024 Approved Professional PC/Mac Screen Recorders</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/5-reasons-that-make-youtube-tv-an-attractive-option-for-viewers/"><u>5 Reasons That Make YouTube TV an Attractive Option for Viewers</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/diagnosing-and-resolving-interface-issues-chatgpts-trouble-with-plugin-connectivity/"><u>Diagnosing & Resolving Interface Issues: ChatGPT's Trouble with Plugin Connectivity</u></a></li>
-<li><a href="https://fox-info.techidaily.com/utilizing-b-roll-enhancing-video-quality-for-2024/"><u>Utilizing B Roll Enhancing Video Quality for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-pro-level-phone-and-camera-gimbal-tracking-systems/"><u>[New] In 2024, Pro-Level Phone & Camera Gimbal Tracking Systems</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-a-trio-of-dimensions-differentiating-the-futures-tech-trio-for-2024/"><u>[Updated] A Trio of Dimensions Differentiating the Future's Tech Trio for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-troubleshooting-common-issues-when-uploading-to-apple-for-2024/"><u>[Updated] Troubleshooting Common Issues When Uploading to Apple for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-visionaries-choice-for-watching-vr/"><u>2024 Approved Visionaries' Choice for Watching VR</u></a></li>
+<li><a href="https://fox-info.techidaily.com/exploring-video-platform-differences-twitch-vs-youtube/"><u>Exploring Video Platform Differences Twitch Vs YouTube</u></a></li>
+<li><a href="https://fox-info.techidaily.com/outshine-samsung-gear-360-with-these-top-camera-alternatives/"><u>Outshine Samsung Gear 360 with These Top Camera Alternatives</u></a></li>
+<li><a href="https://extra-support.techidaily.com/prime-mkv-software-pc-and-android-for-2024/"><u>Prime MKV Software PC & Android for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stand-and-strengthen-with-cubefit-terramat-a-comprehensive-product-review-for-office-workouts/"><u>Stand and Strengthen with CubeFit TerraMat: A Comprehensive Product Review for Office Workouts</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-ultimate-list-of-best-practices-for-tailoring-instructions-on-chatgpt/"><u>The Ultimate List of Best Practices for Tailoring Instructions on ChatGPT</u></a></li>
 </ul></div>
 

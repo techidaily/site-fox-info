@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Popular Imagery  Origins Decoded\""
-date: 2024-09-15T23:41:55.631Z
-updated: 2024-09-17T03:33:07.119Z
+date: 2024-10-13T18:42:00.227Z
+updated: 2024-10-15T18:00:56.258Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,13 @@ According to Andras, Hide the Pain Harold results from his vacation in Turkey. A
 
 Currently, Hide the Pain Harold has over 300,000 followers across all platforms. In addition, Hide the pain Harold has an official Facebook and Know Your Meme page that features the most popular versions of the stock image meme.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part2: Distracted Boyfriend
 
 Another popular stock image meme is Distracted Boyfriend. It features the stock photo meme guy looking at another woman's backside while walking with his girlfriend. In addition, the models' facial expressions add to the photo's impact. For example, the girlfriend shows her disapproval by staring at the man with her mouth open.
@@ -71,6 +78,13 @@ The latest version of Distracted boyfriend is a compilation of photos featuring 
 
 ![latest version](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 In addition, Antonio Guillem also has a stock image meme where the roles are reversed. The meme was later posted on Reddit underneath the original and received over 25,600 points in 24 hours.
 
 ## Part3: I Bet He's Thinking About Other Women
@@ -82,6 +96,13 @@ The meme features a couple in bed with the stock photo meme guy in contemplation
 However, subsequent memes feature satirical themes. Here are some of the most popular versions and their popularity.
 
 ![the most popular versions](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 A July 2017 Instagram post by Cathrottle gained over 13,400 likes in a month. In this version, the man wonders why there are so many Fast and the Furious movies.
 
@@ -103,6 +124,13 @@ Twitter user @chocos posts the image with Spanish captions, with the woman sure 
 
 ![bonjour bear](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-11.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Unlike the previous stock image memes, Bonjour Bear was not an instant hit among netizens. The stock image was posted online in 2016 by Uryadnikov Sergey and featured a polar bear peeking through its winter den. However, it began causing a buzz in early 2019, following a Reddit post that included hilarious captions.
 
 Since then, internet users have continued to use the Bonjour Bear meme to reference their reactions to different scenarios. Typically, you will find the stock photo meme representing some surprise attacks. Below are some of the most popular versions of the meme:
@@ -112,10 +140,10 @@ Since then, internet users have continued to use the Bonjour Bear meme to refere
 ![using hand sanitizer](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In addition, the post received over 91,700 points, with 95% of upvotes, within a day on Reddit.
@@ -126,13 +154,6 @@ In addition, the post received over 91,700 points, with 95% of upvotes, within a
 The photo is available on most stock photo websites, such as Adobe and Tumblr. Furthermore, you will find other hilarious versions of Bonjour Bear under the subreddits r/dankmemes and r/memes on Reddit.
 
 ## Part5: FAQs
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Can you use stock photos for memes?
 
@@ -145,10 +166,10 @@ This is because not all stock photo providers offer their images with a creative
 Yes, all memes are under copyright law, which means you have the authority to govern their use. Although identifying the meme owner can be challenging, posting or sharing a meme through your social media accounts without consent violates copyright law. Therefore, only use stock image memes from verified stock content providers like Shutterstock, where the license provisions are clear.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Can you use watermarked stock photos to create memes?
@@ -185,5 +206,22 @@ Therefore, always perform stock image reverse searches to verify the image permi
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-tips-and-tricks-for-streamlining-color-grading-with-luts-in-adobe/"><u>[New] 2024 Approved Tips and Tricks for Streamlining Color Grading with LUTs in Adobe</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-key-10-efficient-online-subtitle-editors/"><u>[New] Key 10 Efficient Online Subtitle Editors</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-hero-session-vs-cube-a-face-off-in-video-editors/"><u>[Updated] 2024 Approved Hero Session Vs. Cube A Face-Off in Video Editors</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-trimming-the-tremble-a-guide-to-smoother-gopro-videos/"><u>[Updated] 2024 Approved Trimming the Tremble A Guide to Smoother GoPro Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-initiate-the-art-of-movie-making-xp-edition-for-2024/"><u>[Updated] Initiate the Art of Movie Making Xp Edition for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-seamless-audio-junction-expert-logic-pro-x-tips-for-2024/"><u>[Updated] Seamless Audio Junction Expert Logic Pro X Tips for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-unleashing-creative-potential-in-gopro-4k-edits/"><u>[Updated] Unleashing Creative Potential in GoPro 4K Edits</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/expert-review-of-the-budget-friendly-apeman-c450-dash-camera-is-it-worth-your-money/"><u>Expert Review of the Budget-Friendly Apeman C450 Dash Camera: Is It Worth Your Money?</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/fast-track-to-your-ft232r-uart-driver-download-speedy-setup-tips/"><u>Fast Track to Your FT232R UART Driver Download – Speedy Setup Tips</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-oneplus-nord-3-5g-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your OnePlus Nord 3 5G Device</u></a></li>
+<li><a href="https://tools.techidaily.com/quickheal/products/"><u>Quickheal's Products</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-art-of-colors-selecting-the-creme-de-la-creme-monitors/"><u>The Art of Colors Selecting the Crème De La Créme Monitors</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-pickup-monitors-of-2024-4k-ultra-hd-and-gaming-features/"><u>Top Pickup Monitors of 2024: 4K Ultra HD & Gaming Features</u></a></li>
+<li><a href="https://fox-info.techidaily.com/unlock-your-storytelling-potential-for-2024/"><u>Unlock Your Storytelling Potential for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/windows-terminal-and-powershell-unveiling-their-differences/"><u>Windows Terminal & PowerShell: Unveiling Their Differences</u></a></li>
+</ul></div>
 

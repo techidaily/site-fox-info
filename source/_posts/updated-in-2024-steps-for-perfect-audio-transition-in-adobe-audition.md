@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Steps for Perfect Audio Transition in Adobe Audition"
-date: 2024-09-12T05:39:52.286Z
-updated: 2024-09-16T20:22:21.191Z
+date: 2024-10-14T20:29:03.960Z
+updated: 2024-10-15T19:18:41.336Z
 tags: 
   - screen-recording
   - ai video
@@ -77,44 +77,44 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3\. Related FAQs
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. How do you do a master fade in Audition?
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -133,18 +133,25 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
 
-## Part 3\. Related FAQs
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## Part 3\. Related FAQs
 
 ### 1\. How do you fade in multitrack in Audition?
 
@@ -188,5 +195,20 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-elevate-your-images-in-depth-guide-to-smooth-shutter-effect-in-ps-for-2024/"><u>[New] Elevate Your Images In-Depth Guide to Smooth Shutter Effect in PS for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-job-market-gems-shortlist-for-success/"><u>[New] Job Market Gems - Shortlist for Success</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-perfecting-the-art-of-digital-compositing-a-kinemaster-approach/"><u>[New] Perfecting the Art of Digital Compositing A Kinemaster Approach</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-pin-to-play-the-ultimate-free-pinterest-video-download-guide/"><u>[Updated] 2024 Approved Pin-to-Play The Ultimate Free Pinterest Video Download Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-elevate-your-content-perfecting-videos-on-instagram/"><u>2024 Approved Elevate Your Content Perfecting Videos on Instagram</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/essential-fixes-for-windows-defender-shield-unresponsiveness/"><u>Essential Fixes for Windows Defender Shield Unresponsiveness</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-100-pro-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor 100 Pro to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-revolutionize-your-photos-with-these-best-grid-makers-for-ig/"><u>In 2024, Revolutionize Your Photos with These Best Grid Makers for IG</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/professional-macx-hd-video-editor-and-converter-superior-tools-for-itunes-media-formats-conversion-to-ios-devices-and-more/"><u>Professional MacX HD Video Editor & Converter: Superior Tools for iTunes Media Formats Conversion to iOS Devices and More!</u></a></li>
+<li><a href="https://fox-info.techidaily.com/unlock-hidden-potential-snapchat-zooming-tips/"><u>Unlock Hidden Potential Snapchat Zooming Tips</u></a></li>
+<li><a href="https://fox-info.techidaily.com/unveiling-canvas-power-10-pro-editor-techniques-for-2024/"><u>Unveiling Canva's Power 10 Pro Editor Techniques for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/virtual-experiences-galore-the-best-vr-playback-devices-for-pcs-revealed-for-2024/"><u>Virtual Experiences Galore The Best VR Playback Devices for PCs Revealed for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/winxvideo-ai-une-solution-innovante-pour-lenregistrement-decran-de-la-camera-web-et-de-laudio-en-simultane/"><u>WinXvideo AI: Une Solution Innovante Pour L'Enregistrement D’Écran, De La Caméra Web Et De L'Audio en Simultané</u></a></li>
+</ul></div>
 

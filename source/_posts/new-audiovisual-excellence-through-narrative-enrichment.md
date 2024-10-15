@@ -1,7 +1,7 @@
 ---
 title: "[New] Audiovisual Excellence Through Narrative Enrichment"
-date: 2024-10-07T03:42:18.699Z
-updated: 2024-10-09T10:45:46.994Z
+date: 2024-10-09T21:14:21.481Z
+updated: 2024-10-15T16:27:13.669Z
 tags: 
   - screen-recording
   - ai video
@@ -49,13 +49,6 @@ But here's the good news: the way you add either option is the same in Filmora.
 
 ![add either option](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to add narration
 
 So the easiest way to add narration is directly to a project. The benefit of this is that you can record your narration inside Filmora while you watch the preview of your edited video.
@@ -63,10 +56,10 @@ So the easiest way to add narration is directly to a project. The benefit of thi
 ![add narration to project](https://images.wondershare.com/filmora/guide/stt-tts-srt-09.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 A good example of this would be narrating a story on top of some still images and video clips from a recent vacation. (In most cases you would want to turn off the sound of the video clip, or at least use ducking to help the viewer focus on the narration.)
@@ -75,11 +68,31 @@ You put the playhead where you want to start recording and hit the microphone ic
 
 ![hit microphone icon](https://images.wondershare.com/filmora/guide/stt-tts-srt-08.png)
 
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 A 3-second countdown will pop up and start recording immediately after this countdown.
 
 You can record your narration and click stop.
 
 After recording, you can trim and edit your narration, you can delete it and record it again, and can move it and edit it like any other feature.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Some Tips for Recording Narration
 
@@ -99,27 +112,20 @@ Practice adding it to your videos to see how it adds depth and dimension to your
 
 It can also help make a connection with your audience because you can be relating to the images on the screen as they watch them. This is effective in building your YouTube audience.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Always use a good mic
 
 When adding voiceover or narration to your project, be sure to use a good USB microphone. A good quality sound will elevate your entire project and just requires a little planning.
 
 ![use good microphone](https://images.wondershare.com/filmora/article-images/2022/11/use-good-microphone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Should you use narration in your next project?
 
@@ -159,18 +165,22 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-become-a-master-of-virtual-persona-design-metaverse-edition/"><u>[New] In 2024, Become a Master of Virtual Persona Design - Metaverse Edition</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-real-time-instagram-friends-departure-tracking-for-2024/"><u>[New] Real-Time Instagram Friends Departure Tracking for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-crossing-platforms-upload-video-to-twittertumblr/"><u>[Updated] 2024 Approved Crossing Platforms Upload Video to Twitter/Tumblr</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-a-comparative-study-pre-and-post-vegaspro-19/"><u>[Updated] A Comparative Study Pre and Post-VegasPro '19</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-magic-behind-melodies-an-analysis-of-magix-music-maker/"><u>[Updated] Magic Behind Melodies An Analysis of Magix Music Maker</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-ultimate-iphone-hdr-insights-for-stunning-images/"><u>[Updated] Ultimate iPhone HDR Insights for Stunning Images</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-vibrant-visual-photo-assemblies-for-joyful-living-for-2024/"><u>[Updated] Vibrant Visual Photo Assemblies for Joyful Living for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-explore-the-best-9-online-platforms-featuring-advanced-3d-typography/"><u>2024 Approved Explore the Best 9 Online Platforms Featuring Advanced 3D Typography</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-full-screen-pro-excellence-4-precise-pc-and-mac-tools/"><u>2024 Approved Full Screen Pro Excellence 4 Precise PC & Mac Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-tweaks-for-a-personalized-facebook-experience-on-phone/"><u>Essential Tweaks for a Personalized Facebook Experience on Phone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/mystery-of-continuous-pauses-in-photo-booths/"><u>Mystery of Continuous Pauses in Photo Booths</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-ways-to-recover-deleted-files-from-honor-v-purse-by-fonelab-android-recover-data/"><u>Possible ways to recover deleted files from Honor V Purse</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-xiaomi-redmi-a2-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Xiaomi Redmi A2 Phone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-horizon-proworks-complete-4k-integrated-solution-for-2024/"><u>[New] Horizon ProWorks Complete 4K Integrated Solution for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-how-to-profit-on-tiktok-the-8-essential-steps-you-need/"><u>[New] How to Profit on TikTok The 8 Essential Steps You Need</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-srgb-vs-standard-rgb/"><u>[New] In 2024, Srgb vs Standard Rgb</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-the-ultimate-overview-dji-inspire-1-reviewed/"><u>[New] The Ultimate Overview DJI Inspire 1 Reviewed</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-weaving-images-into-stunning-tiled-artworks-for-2024/"><u>[New] Weaving Images Into Stunning Tiled Artworks for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-cerebral-showcase-2024-exclusive-selection-of-trivia-streaming-sites/"><u>[Updated] Cerebral Showcase 2024 Exclusive Selection of Trivia Streaming Sites</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-expertise-unlocked-converting-text-formats-to-voice-ready-srt/"><u>[Updated] Expertise Unlocked Converting Text Formats to Voice-Ready SRT</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-how-to-amend-blurry-mobile-streaming-on-social-platforms/"><u>2024 Approved How to Amend Blurry Mobile Streaming on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-for-unseen-messages-in-online-chats/"><u>Alert for Unseen Messages in Online Chats</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/comment-installer-et-utiliser-correctement-le-logiciel-winxdvd-une-guidance-etape-par-etape/"><u>Comment Installer Et Utiliser Correctement Le Logiciel WinXDVD : Une Guidance Étape Par Étape</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-budget-breakdown-total-spend-on-producing-a-track-videoclip/"><u>In 2024, Budget Breakdown Total Spend on Producing a Track Videoclip</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-podcast-cover-design-ten-essential-best-practices/"><u>In 2024, Podcast Cover Design Ten Essential Best Practices</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-the-ultimate-display-match-top-6-hdmi-21-monitors-compared/"><u>In 2024, The Ultimate Display Match Top 6 HDMI 2.1 Monitors Compared</u></a></li>
+<li><a href="https://fox-info.techidaily.com/spectrumstreams-2024-worldwide-selection-at-fingertips/"><u>SpectrumStreams 2024 Worldwide Selection at Fingertips</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/toms-tech-the-ultimate-guide-to-computer-hardware/"><u>Tom's Tech: The Ultimate Guide to Computer Hardware</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/troubleshooting-h264-format-problems-for-smooth-video-streaming-in-windows-10/"><u>Troubleshooting H.264 Format Problems for Smooth Video Streaming in Windows 10</u></a></li>
+<li><a href="https://win11.techidaily.com/what-makes-a-good-video-coder-for-use-on-windows-systems/"><u>What Makes A Good Video Coder for Use on Windows Systems?</u></a></li>
 </ul></div>
 

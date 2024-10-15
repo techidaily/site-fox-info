@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Quintuple Excellence  Writing for Eight Film Classifications for 2024\""
-date: 2024-10-02T20:06:40.735Z
-updated: 2024-10-09T13:45:48.402Z
+date: 2024-10-12T21:03:42.340Z
+updated: 2024-10-15T19:34:25.708Z
 tags: 
   - screen-recording
   - ai video
@@ -100,18 +100,18 @@ That's exactly what new screenwriter [**Kelly Fremon Craig**](https://en.wikiped
 
 **Download the script here:** <https://www.scriptslug.com/script/the-edge-of-seventeen-2016>
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Best Christmas play scripts
 
 _**1\. A Christmas Carol – Large Cast**_Every man has the power to do good.
 
 ![a christmas carol is large cast](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _**Writer:**_ [Charles Dickens](https://en.wikipedia.org/wiki/Charles%5FDickens)
 
@@ -207,13 +207,6 @@ When Jack meets Esther in the park one day, he swears she looks familiar. Althou
 
 ![2 guns](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-11.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Writers:** Blake Masters (screenplay by) Steven Grant
 
 This screenplay explores the relationship between two criminals – Denzel Washington and Mark Wahlberg – as they clash with U.S. border patrol in this fast-paced adventure.
@@ -250,13 +243,6 @@ Download the script here: <https://www.takarabio.com/documents/User%20Manual/RR0
 
 ![unbreakable](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-14.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Writer:** M. Night Shyamalan
 
 Night Shyamalan (not necessarily a name you'd expect on a list of 'thriller screenplays you should read') has been praised as much for THE SIXTH SENSE as he is criticized for everything that isn't THE SIXTH SENSE, but UNBREAKABLE is a film that ironically, it breaks the mold.
@@ -282,6 +268,19 @@ The money Cinderella made from its release, subsequent record sales, publishing,
 **Writers:** Brenda Chapman, Barry Johnson, Andy Gaskill, Kevin Harkey, Tom Sito, Rick Maki, Burny Mattinson, Lorna Cook, Gary Trousdale, Jorgen Klubien, Larry Leker, Ed Gombert, Mark Kausler, Thom Enriquez, Jim Capobianco, Chris Sanders, Joe Ranft, Francis Glebas
 
 ![the lion king 1994](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-16.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Like any child of the 90s, I admit to having a soft spot for The Lion King. The film was clearly heavily influenced by biblical stories, the Epic of Sundiatus and Shakespeare's Hamlet. It tells the story of Simba, the destined king of Pride Rock, who runs away guilt-ridden after "blaming" his father's death. The film is the highest-grossing hand-drawn film in history and won two Academy Awards for musical score.
 
@@ -351,11 +350,25 @@ Part of its enduring appeal is the simplicity of its concept: A kid who murdered
 
 **Download the script here:** <https://www.studiobinder.com/blog/halloween-script-screenplay-pdf-download/>
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Best comedy scripts
 
 **_1\. 21 Jump Street_**
 
 ![21 jump street](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Writer:** [Michael Bacall](https://en.wikipedia.org/wiki/Michael%5FBacall), [Stephen J. Cannell](https://en.wikipedia.org/wiki/Stephen%5FJ.%5FCannell)
 
@@ -377,18 +390,18 @@ That's exactly what new screenwriter [**Kelly Fremon Craig**](https://en.wikiped
 
 **Download the script here:** <https://www.scriptslug.com/script/the-edge-of-seventeen-2016>
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Best Christmas play scripts
 
 _**1\. A Christmas Carol – Large Cast**_Every man has the power to do good.
 
 ![a christmas carol is large cast](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _**Writer:**_ [Charles Dickens](https://en.wikipedia.org/wiki/Charles%5FDickens)
 
@@ -409,19 +422,6 @@ Angel, a child fairy, learns a valuable lesson about caring for the sick when sh
 ### Best promotional video scripts
 
 ![best promotional video scripts](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-8.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _**1\. Announcement**_
 
@@ -498,10 +498,16 @@ When Jack meets Esther in the park one day, he swears she looks familiar. Althou
 ![2 guns](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-11.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Writers:** Blake Masters (screenplay by) Steven Grant
@@ -548,6 +554,13 @@ The film stands out in the now crowded genre by avoiding any cataclysmic showdow
 
 **Download the script here:** <https://www.scripts.com/script/unbreakable%5F1086>
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Best animation scripts
 
 **_1\. Cinderella_(1950)**
@@ -570,23 +583,9 @@ Like any child of the 90s, I admit to having a soft spot for The Lion King. The 
 
 **Download the script here:** <https://www.studiobinder.com/blog/the-lion-king-script-screenplay-pdf-download/>
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3\. Make your own short movie now
 
 Have you ever stored various videos and photos on a memory card or on the computer? Why not create a movie to show them off? Once finish making a great movie, you can share it with others in a variety of ways including on YouTube, Facebook, and Instagram. Your followers will be amazed at the extraordinarily delightful works. In fact, making a movie using your own photos, videos and audio is easy.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Make a Video with Wondershare Filmora Easy Movie Maker
 
@@ -599,6 +598,19 @@ Have you ever stored various videos and photos on a memory card or on the comput
 The key features offered by [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) include 4K editing support, GIF support, noise removal, color tuning, advanced text editor, audio mixer, video stabilization,[scene detection](https://tools.techidaily.com/wondershare/filmora/download/), and an audio equalizer.
 
 ![make a video with wondershare filmora](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-17.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The 4K editing support feature enables users to edit and export videos at a resolution of up to 4K. The GIF support feature allows importing, editing, and exporting of GIF files. The noise removal feature facilitates removal of unwanted background noise readily.
 
@@ -634,24 +646,15 @@ Creating video content that can potentially go viral is no longer a complicated 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-comparing-standard-and-hdr-screens-the-case-for-aurora/"><u>[New] 2024 Approved Comparing Standard and HDR Screens The Case for Aurora</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/lear-youtubes-obscured-visual-field/"><u>[New] Clear Youtube's Obscured Visual Field</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-no-monetary-investment-how-to-acquire-fcp/"><u>[New] No Monetary Investment? How to Acquire FCP</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-skyward-haven-of-the-pennywise-clouds-for-2024/"><u>[New] Skyward Haven of the Pennywise Clouds for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-streamlined-recording-the-very-best-fullscreen-software/"><u>[New] Streamlined Recording The Very Best Fullscreen Software</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-ultimate-guide-to-2023s-top-value-zero-cost-live-broadcasting-tools/"><u>[New] Ultimate Guide to 2023'S Top Value, Zero-Cost Live Broadcasting Tools</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-exploring-video-realm-mirrorless-challenges-to-dslrs/"><u>[Updated] 2024 Approved Exploring Video Realm Mirrorless Challenges to DSLRs</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-visual-aesthetics-mastering-vsco-styles-and-looks/"><u>[Updated] 2024 Approved Visual Aesthetics Mastering VSCO Styles and Looks</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-conveniently-keep-your-linkedin-videos-with-these-6-apps-for-2024/"><u>[Updated] Conveniently Keep Your LinkedIn Videos with These 6 Apps for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-elevate-your-photos-free-online-and-app/"><u>[Updated] Elevate Your Photos - FREE Online and App</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-deciphering-the-archive-reviewing-past-facebook-updates-on-pc-and-phone/"><u>[Updated] In 2024, Deciphering the Archive Reviewing Past Facebook Updates on PC & Phone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-pixels-melodic-matches-and-personalization-for-2024/"><u>[Updated] Pixel's Melodic Matches and Personalization for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-your-ultimate-guide-to-erasing-backgrounds-in-picsart/"><u>[Updated] Your Ultimate Guide to Erasing Backgrounds in Picsart</u></a></li>
-<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Realme 12 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/elevate-your-content-on-facebook-using-wirecast/"><u>Elevate Your Content on Facebook Using Wirecast</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-a-network-locked-nokia-c12-pro-phone-by-drfone-android/"><u>How to Unlock a Network Locked Nokia C12 Pro Phone?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-infinix-note-30-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Infinix Note 30 to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/rhythm-rulers-the-ultimate-list-of-hit-identification-tools-revised-for-2024/"><u>Rhythm Rulers The Ultimate List of Hit Identification Tools, Revised for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-hp-omen-obelisk-assessment-top-tier-gaming-power-on-a-budget/"><u>The HP OMEN Obelisk Assessment - Top Tier Gaming Power on a Budget</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-first-steps-launching-a-youtube-channel-for-profit-for-2024/"><u>[New] First Steps Launching a YouTube Channel for Profit for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-playing-srt-files-in-windowsmac/"><u>[New] Playing SRT Files in Windows/MAC</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ustainable-streaming-a-deep-dive-into-youtubes-financial-dynamics/"><u>[New] Sustainable Streaming A Deep Dive Into YouTube's Financial Dynamics</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-leveraging-the-power-of-windows-11s-auto-hdr-enhancement-for-2024/"><u>[Updated] Leveraging the Power of Windows 11'S Auto HDR Enhancement for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-digital-vault-for-internet-streams-a-recording-blueprint/"><u>2024 Approved Digital Vault for Internet Streams A Recording Blueprint</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/5-quick-methods-to-bypass-xiaomi-13-ultra-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Xiaomi 13 Ultra FRP</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/funnyframe-generator-for-2024/"><u>FunnyFrame Generator for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-oppo-a1x-5g-photos-an-easy-method-explained-by-fonelab-android-recover-photos/"><u>How to Restore Deleted Oppo A1x 5G Photos An Easy Method Explained.</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-the-ultimate-guide-a-detailed-walkthrough-of-internet-radio-logging/"><u>In 2024, The Ultimate Guide A Detailed Walkthrough of Internet Radio Logging</u></a></li>
 </ul></div>
 

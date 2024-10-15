@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Understanding the Role and Impact of B Roll in Editing for 2024"
-date: 2024-10-07T11:03:22.080Z
-updated: 2024-10-09T13:50:31.080Z
+date: 2024-10-09T18:16:36.886Z
+updated: 2024-10-15T21:07:39.445Z
 tags: 
   - screen-recording
   - ai video
@@ -38,16 +38,10 @@ B roll can be utilized for establishing shots as well as close-ups of items. It 
 For instance, wider shots are frequently used when someone is giving a speech while seated behind a podium so that we can see both them and their surroundings, such as audience members standing close and applauding or security personnel.
 
 <!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Methods to use b roll
@@ -63,10 +57,10 @@ On the other hand, cutaways can show how different people react to what is being
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Archival b roll footage
@@ -76,19 +70,6 @@ Aerial B roll is the solution when you like to show your viewers where your film
 ### 2\. Visual detail b roll footage
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
-
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Storytelling b roll footage
 
@@ -105,16 +86,10 @@ When you are sharing a narrative that has been told in the past or that has hist
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
 
 <!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. Pick-up shots
@@ -122,6 +97,13 @@ Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" tha
 A pick-up is a tiny shot added to previously captured material. Re-shoots involve redoing entire scenes. Both types of shots are commonly added during film editing to fix, logic, continuity, or quality flaws. These photos happen a while after the sets have been taken down, clothes and props stowed, and the actors and crew have gone on to new projects.
 
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 7\. A roll vs b roll
 
@@ -161,20 +143,22 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-dive-deep-into-kinemasters-world-and-explore-best-replacements-online/"><u>[New] 2024 Approved Dive Deep Into KineMaster's World and Explore Best Replacements Online</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-boost-engagement-with-these-premier-html5-players-for-2024/"><u>[New] Boost Engagement with These Premier HTML5 Players for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/xploring-object-oriented-programming-for-complex-applications-for-2024/"><u>[New] Exploring Object-Oriented Programming for Complex Applications for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-unlimited-outro-options-at-no-expense-online/"><u>[New] In 2024, Unlimited Outro Options at No Expense Online</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-enhance-cinematic-vision-using-ae-luts-effectively-for-2024/"><u>[Updated] Enhance Cinematic Vision Using AE LUTs Effectively for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-unlocking-cost-effective-clouds-for-the-budget-conscious-for-2024/"><u>[Updated] Unlocking Cost-Effective Clouds for the Budget-Conscious for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-from-joke-to-jest-constructing-impactful-social-media-memes/"><u>2024 Approved From Joke to Jest Constructing Impactful Social Media Memes</u></a></li>
-<li><a href="https://win-able.techidaily.com/beat-the-frames-expert-strategies-for-resolving-valheims-frame-rate-issues-tip-edition/"><u>Beat the Frames: Expert Strategies for Resolving Valheim's Frame Rate Issues (Tip Edition)</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-honor-100-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Honor 100? | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-capture-in-clarity-best-tools-for-quality-4k-conversion/"><u>In 2024, Capture in Clarity Best Tools for Quality 4K Conversion</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/navigating-the-interview-landscape-a-guide-for-2024/"><u>Navigating the Interview Landscape A Guide for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/optimizing-system-performance-for-god-of-war-overcoming-heavy-cpu-usage/"><u>Optimizing System Performance for God of War: Overcoming Heavy CPU Usage</u></a></li>
-<li><a href="https://fox-info.techidaily.com/sleep-specialist-endorses-aspers-guide/"><u>Sleep Specialist Endorses Asper's Guide</u></a></li>
-<li><a href="https://fox-info.techidaily.com/the-future-of-editing-shines-with-magix-video-pro-x-for-2024/"><u>The Future of Editing Shines with Magix Video Pro X for 2024</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/usb-printer-malfunction-during-win7-restart-from-sleep/"><u>USB Printer Malfunction During Win7 Restart From Sleep</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-flawless-conversion-needed-try-these-top-8-sub-and-srt-tools/"><u>[New] 2024 Approved Flawless Conversion Needed? Try These Top 8 Sub & Srt Tools</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-a-dual-device-expedition-in-virtual-frontiers/"><u>[New] A Dual-Device Expedition in Virtual Frontiers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-discover-the-best-practices-for-streaming-archive-podcasts/"><u>[New] Discover the Best Practices for Streaming Archive Podcasts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-ultimate-cinematic-trailer-collection/"><u>[New] In 2024, Ultimate Cinematic Trailer Collection</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-transform-communication-top-free-mac-text-to-speech-software-rankings/"><u>[New] Transform Communication Top Free Mac Text-to-Speech Software Rankings</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-mastering-rapid-windows-document-examination/"><u>[Updated] 2024 Approved Mastering Rapid Windows Document Examination</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-pinnacle-workshop-25-critique/"><u>[Updated] 2024 Approved Pinnacle Workshop 25 Critique</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-4k-clarity-unleashed-an-intense-study-on-the-31mu97-b-monitor-for-2024/"><u>[Updated] 4K Clarity Unleashed - An Intense Study on the 31MU97-B Monitor for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-augment-slides-with-sonic-enhancements/"><u>[Updated] In 2024, Augment Slides with Sonic Enhancements</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-unveiling-the-secrets-of-adobe-cloud-and-alternative-storage-solutions/"><u>[Updated] In 2024, Unveiling the Secrets of Adobe Cloud & Alternative Storage Solutions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-secrets-unlocked-banishing-instagram-video-fails/"><u>[Updated] Secrets Unlocked Banishing Instagram Video Fails</u></a></li>
+<li><a href="https://win-top.techidaily.com/conversor-rapido-de-mkv-a-avi-con-facilidad-metodologia-fina-por-movavi/"><u>Conversor Rápido De MKV a AVI Con Facilidad - Metodología Fina Por Movavi</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Tecno Spark 10 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-lava-blaze-pro-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from Lava Blaze Pro 5G to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-frosted-feats-beijings-ice-showdown-highlights/"><u>In 2024, Frosted Feats Beijing's Ice Showdown Highlights</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/leaving-facebook-behind-how-group-features-lured-me-back-in/"><u>Leaving Facebook Behind: How Group Features Lured Me Back In</u></a></li>
+<li><a href="https://program-issues.techidaily.com/mastering-cyberpunk-2077-installation-tips-for-bypassing-downloading-hurdles-on-steam/"><u>Mastering Cyberpunk 2077 Installation: Tips for Bypassing Downloading Hurdles on Steam</u></a></li>
 </ul></div>
 

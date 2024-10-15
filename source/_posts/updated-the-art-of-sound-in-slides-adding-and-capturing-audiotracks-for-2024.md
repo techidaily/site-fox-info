@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Art of Sound in Slides  Adding and Capturing Audiotracks for 2024\""
-date: 2024-09-15T17:11:35.120Z
-updated: 2024-09-17T00:37:41.875Z
+date: 2024-10-14T17:10:01.879Z
+updated: 2024-10-15T18:52:43.512Z
 tags: 
   - screen-recording
   - ai video
@@ -89,6 +89,13 @@ NOTE: You can re-record the PowerPoint slides by hitting the Record Slide Show a
 
 ![record from current slide ppt](https://images.wondershare.com/filmora/article-images/2022/02/record-from-current-slide-ppt.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step5 Hit the Record tab to begin recording narration
 
 NOTE: PowerPoint will offer a three-second countdown before it begins recording.
@@ -103,9 +110,29 @@ Save the video by hitting the File tab.
 
 Select Export to confirm.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3 Adjust audio on PowerPoint
 
 This section will look at editing the added Audio into PowerPoint. As we've already gathered steps on adding Audio to PowerPoint and recording Audio on PowerPoint, it's time to move a step ahead into the editing panel as follows.
+
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### I. Trim audio in PowerPoint presentation
 
@@ -116,13 +143,6 @@ Let's suppose we've added long audio to our presentation, and we just only need 
 ##### Step2 Click Playback> Trim Audio as shown below
 
 ![trim ppt audio](https://images.wondershare.com/filmora/article-images/2022/02/trim-ppt-audio.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##### Step3 Within the pop-up window, you need to use the red and green markers to adjust the start and endpoint of the audio
 
@@ -136,6 +156,13 @@ On the same tab, you have a fade duration to adjust Fade In and Fade Out duratio
 
 ![fade audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/fade-audio-ppt.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 It wholly depends upon your preferences and requirements to fade in and fade out the audio.
 
 ### III. Add Bookmark to the audio in PowerPoint presentation
@@ -144,15 +171,22 @@ If you want to switch to a specific point in the Audio, you can add a bookmark. 
 
 ![click audio timeline ppt](https://images.wondershare.com/filmora/article-images/2022/02/click-audio-timeline-ppt.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step1 Click Add Bookmark after clicking the place
 
 ![add bookmark audio ppt](https://images.wondershare.com/filmora/article-images/2022/02/add-bookmark-audio-ppt.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4 How to play audio automatically in PowerPoint
@@ -184,10 +218,16 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 ![download](https://images.wondershare.com/filmora/images/filmora-box.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Step1 Import audio
@@ -197,6 +237,13 @@ Launch the Wondershare Filmora as the necessary primary step. Then, click the Im
 Note: You can also go for in-built music tracks to add music to your video by selecting the 'MUSIC' tab.
 
 ![import audio filmora](https://images.wondershare.com/filmora/article-images/import-media-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step2 Add audio to timeline
 
@@ -228,13 +275,6 @@ Hit the New Project tab to create a new project and click Record a voiceover opt
 
 ![record voiceover filmora](https://images.wondershare.com/filmora/article-images/record-voiceover-before-video-editing.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step3 Edit voiceover
 
 Now, it's time to edit the recorded voiceover and adjust different settings in the audio track, namely the Pitch, Volume, Speed, etc.
@@ -246,13 +286,6 @@ Now, it's time to edit the recorded voiceover and adjust different settings in t
 Hit the Export button and choose the Device and Format you’d like to export it to.
 
 ![export voiceover filmora](https://images.wondershare.com/filmora/article-images/export-output.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 We feel that this way to insert Audio into PowerPoint is pretty creative than using the PowerPoint itself with the lengthy steps. After doing all the adding and recording of Audio on Wondershare Filmora, you can export the project and add its whole presentation. Thus, there's no need to add extra elements and editing tools in the PowerPoint presentation, which could be tricky for an amateur.
 
@@ -283,5 +316,22 @@ In this guide, we’ll specifically talk about the feature by which you can reco
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-navigating-high-speed-video-transitions-with-ease/"><u>[New] In 2024, Navigating High-Speed Video Transitions with Ease</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-secrets-to-enjoying-authentic-cricket-games-in-real-time/"><u>[New] Secrets to Enjoying Authentic Cricket Games in Real-Time</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-youtube-angle-adjustment-a-step-by-step-editing-guide/"><u>[Updated] 2024 Approved Youtube Angle Adjustment A Step-by-Step Editing Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-expert-advice-for-maximizing-your-iphones-photographic-features/"><u>[Updated] Expert Advice for Maximizing Your iPhone's Photographic Features</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-hdr-portrait-perfection-professional-photography-techniques-for-2024/"><u>[Updated] HDR Portrait Perfection Professional Photography Techniques for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-explore-the-best-smartphone-compatible-vr/"><u>[Updated] In 2024, Explore the Best Smartphone-Compatible VR</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-unveiling-techniques-for-high-quality-ps3-game-capture/"><u>[Updated] In 2024, Unveiling Techniques for High-Quality PS3 Game Capture</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-verdant-visualizations-compiling-30plus-free-screen-templates-for-videographers-for-2024/"><u>[Updated] Verdant Visualizations Compiling 30+ Free Screen Templates for Videographers for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/building-captivating-visual-puzzles-a-mosaic-journey/"><u>Building Captivating Visual Puzzles A Mosaic Journey</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-best-practices-in-unbounded-online-space-use/"><u>In 2024, Best Practices in Unbounded Online Space Use</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-unlocking-inshots-potential-with-your-own-songs/"><u>In 2024, Unlocking InShot's Potential with Your Own Songs</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/samsung-galaxy-a24-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy A24 Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-windows-11-wallpaper-transformation-tactics/"><u>The Window's 11 Wallpaper Transformation Tactics</u></a></li>
+<li><a href="https://extra-information.techidaily.com/trendsetters-pictures-origins-explored/"><u>Trendsetters' Pictures Origins Explored</u></a></li>
+</ul></div>
 

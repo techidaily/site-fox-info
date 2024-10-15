@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Expert Techniques in Creating Timelapses on Black Hero5\""
-date: 2024-10-04T21:45:28.523Z
-updated: 2024-10-09T08:25:33.009Z
+date: 2024-10-12T17:48:59.288Z
+updated: 2024-10-15T19:30:49.230Z
 tags: 
   - screen-recording
   - ai video
@@ -84,10 +84,10 @@ Make use of good tripod, a fast and spacious SD card, a suction mount and always
 [Check at Amazon](https://www.amazon.com/gp/product/B01M14ATO0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M14ATO0&linkId=5ce54ea937ecffa6b1b8056b6922abaa)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Making time lapse videos with Wondershare Filmora
@@ -101,10 +101,10 @@ The Instant cutter tool on the other hand can be used for trimming and merging v
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * First, launch the Filmora app and then choose the ‘action cam tool’
@@ -112,23 +112,22 @@ The Instant cutter tool on the other hand can be used for trimming and merging v
 
 ![1-action-cam-tool-fix-entrance](https://images.wondershare.com/filmora/article-images/filmora-splash-screen-0321.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Now go to the Speed tab and bring the Playhead to the exact position where the speed effect is to be applied.
 * Click the Add Marker button. Click the speed marker and drag it onto either side of your timeline so as to choose a number of clips on your timeline.
 
 ![speed-effect-speed-add-marke](https://images.wondershare.com/filmora/article-images/speed-effect-speed-add-marker.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * The speed settings can be adjusted by clicking on the checkbox marked Speed. The speed slider can be moved forward to make it faster up to 20x for the time lapse effect.
@@ -137,6 +136,13 @@ The Instant cutter tool on the other hand can be used for trimming and merging v
 [Learn more detailed information about how to make a time lapse video in Filmora Full Feature Mode](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -163,24 +169,24 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-screencapture-101-with-springs-latest-release/"><u>[New] 2024 Approved ScreenCapture 101 with Spring's Latest Release</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-why-does-imovie-crop-my-videos/"><u>[New] 2024 Approved Why Does iMovie Crop My Videos</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-dynamic-design-the-art-of-adding-motion-to-photos-in-adobe-illustrators-for-2024/"><u>[New] Dynamic Design The Art of Adding Motion to Photos in Adobe Illustrators for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-pro-3-camera-insight-mastering-video-on-the-go-with-ion/"><u>[New] In 2024, Pro 3 Camera Insight Mastering Video on the Go with ION</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-the-world-of-google-ar-accessories-and-beyond/"><u>[New] In 2024, The World of Google AR Accessories, and Beyond</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-premier-text-motion-manuals/"><u>[New] Premier Text Motion Manuals</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-record-your-rush-make-every-game-count/"><u>[New] Record Your Rush Make Every Game Count</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-crafting-professional-sounds-with-magix-soundshaper/"><u>[Updated] 2024 Approved Crafting Professional Sounds with Magix Soundshaper</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-mycam-in-action-a-detailed-review-of-its-recording-abilities/"><u>[Updated] 2024 Approved MyCam in Action A Detailed Review of Its Recording Abilities</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-enhance-your-game-experience-with-simple-voice-alterations-in-pubg-for-2024/"><u>[Updated] Enhance Your Game Experience with Simple Voice Alterations in PUBG for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-image-intensifiers-ranking-the-best-10-photography-lenses/"><u>[Updated] Image Intensifiers Ranking the Best 10 Photography Lenses</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-explore-essential-web-portals-delivering-impeccable-text-effects/"><u>[Updated] In 2024, Explore Essential Web Portals Delivering Impeccable Text Effects</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-replay-anywhere-instant-guide-to-youtube-video-loops/"><u>[Updated] Replay Anywhere Instant Guide to YouTube Video Loops</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-insta-twist-techniques-for-tailoring-your-photos-on-the-fly/"><u>2024 Approved Insta-Twist Techniques for Tailoring Your Photos on the Fly</u></a></li>
-<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Infinix Smart 8 | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-how-to-master-pip-in-google-chrome-a-comprehensive-guide/"><u>In 2024, How to Master PIP in Google Chrome A Comprehensive Guide</u></a></li>
-<li><a href="https://driver-error.techidaily.com/revealing-opengl-compatible-intel-chipset-name/"><u>Revealing OpenGL-Compatible Intel Chipset Name</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/step-by-step-solutions-preventing-fatal-challenges-ahead-of-your-business-launch/"><u>Step-by-Step Solutions: Preventing Fatal Challenges Ahead of Your Business Launch</u></a></li>
-<li><a href="https://driver-error.techidaily.com/troubleshooting-and-solutions-for-hcmondriver-installation-issues/"><u>Troubleshooting and Solutions for Hcmondriver Installation Issues</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-advancing-photo-quality-on-snapchat-via-zoom-for-2024/"><u>[New] Advancing Photo Quality on Snapchat via Zoom for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-how-to-take-screenshots-on-windows-5-methods-for-2024/"><u>[New] How to Take Screenshots on Windows [5 Methods] for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-optimizing-your-chromebooks-zoom-capabilities/"><u>[New] Optimizing Your Chromebook's Zoom Capabilities</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-premium-top-5-ultra-hd-capture-gear/"><u>[New] Premium Top 5 Ultra HD Capture Gear</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-vlc-vs-mpc-which-is-the-best-free-video-player/"><u>[New] VLC vs MPC Which Is the Best Free Video Player</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-elevating-your-immersive-video-storytelling-mastering-360-degree-edits-in-premierepro-for-2024/"><u>[Updated] Elevating Your Immersive Video Storytelling Mastering 360-Degree Edits in PremierePro for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-exclusive-insight-into-mematics-app-features/"><u>[Updated] In 2024, Exclusive Insight Into Mematic's App Features</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-understanding-fps-making-a-choice-between-30-and-60-hertz/"><u>[Updated] In 2024, Understanding FPS Making a Choice Between 30 & 60 Hertz</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-inside-the-drone-an-in-depth-review-of-dji-phantom-3-pro/"><u>2024 Approved Inside the Drone An In-Depth Review of DJI Phantom 3 Pro</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/3-ways-to-track-apple-iphone-xr-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>3 Ways to Track Apple iPhone XR without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/enhancing-ai-with-efficient-vector-database-architecture/"><u>Enhancing AI with Efficient Vector Database Architecture</u></a></li>
+<li><a href="https://fox-info.techidaily.com/essential-tools-in-transforming-digital-performers-vocal-identity/"><u>Essential Tools in Transforming Digital Performers' Vocal Identity</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-can-you-unlock-apple-iphone-6s-after-forgetting-the-passcode-by-drfone-ios/"><u>In 2024, Can You Unlock Apple iPhone 6s After Forgetting the Passcode?</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-vdy-hd-snapshot-reviews-complete-evaluation/"><u>In 2024, VDY HD Snapshot Reviews Complete Evaluation</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-your-ultimate-guide-to-the-best-affordable-online-video-effect-tools/"><u>In 2024, Your Ultimate Guide to the Best Affordable Online Video Effect Tools</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/personalized-literature-at-your-fingertips-dive-into-these-5-innovative-ai-tools/"><u>Personalized Literature at Your Fingertips - Dive Into These 5 Innovative AI Tools</u></a></li>
+<li><a href="https://fox-info.techidaily.com/quick-guide-to-crafting-realistic-motion-blur-effect-in-ps-for-2024/"><u>Quick Guide to Crafting Realistic Motion Blur Effect in PS for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/unleashing-content-effortless-download-of-youtube-video-for-ios-for-2024/"><u>Unleashing Content Effortless Download of Youtube Video for iOS for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/z2-masterclass-smartphone-smarter-than-ever/"><u>Z2 Masterclass Smartphone Smarter Than Ever?</u></a></li>
 </ul></div>
 

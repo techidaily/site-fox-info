@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Understanding the Basics of Audio Crossfading"
-date: 2024-09-13T02:44:37.710Z
-updated: 2024-09-16T16:30:30.336Z
+date: 2024-10-13T17:43:31.674Z
+updated: 2024-10-15T16:39:18.015Z
 tags: 
   - screen-recording
   - ai video
@@ -81,23 +81,31 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3\. Related FAQs
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
 
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. How do you do a master fade in Audition?
@@ -107,6 +115,13 @@ Select the option of amplifying the effects i.e., amplitude and compression. Do 
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -132,28 +147,15 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 ## Part 3\. Related FAQs
 
 <!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. How do you do a master fade in Audition?
 
@@ -162,13 +164,6 @@ Select the option of amplifying the effects i.e., amplitude and compression. Do 
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -200,5 +195,21 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-virtual-horizons-unveiled-critics-top-oculus-headsets/"><u>[New] 2024 Approved Virtual Horizons Unveiled Critics' Top Oculus Headsets</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-elite-easytime-timer-service-for-free/"><u>[New] Elite EasyTime Timer Service for Free</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-streamlabs-or-obs-picking-the-best-software-for-your-channel/"><u>[New] In 2024, Streamlabs or OBS Picking the Best Software for Your Channel</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-10-yt-channels-surging-ideas-and-insights-unleashed/"><u>[Updated] 2024 Approved 10 YT Channels Surging Ideas and Insights Unleashed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-explore-advanced-video-control-in-youtubes-playback-features-for-2024/"><u>[Updated] Explore Advanced Video Control in YouTube’s Playback Features for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-enhance-media-creation-the-ultimate-list-of-top-8-montage-apps/"><u>[Updated] In 2024, Enhance Media Creation The Ultimate List of Top 8 Montage Apps</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-video-editor-how-to-edit-instagram-videos/"><u>[Updated] Instagram Video Editor How to Edit Instagram Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-leading-spots-for-stunning-3d-metallic-type-creations-for-2024/"><u>[Updated] Leading Spots for Stunning 3D Metallic Type Creations for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-ultimate-guide-for-effortless-youtube-shorts-design/"><u>2024 Approved The Ultimate Guide for Effortless YouTube Shorts Design</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-avoid-motion-sickness-in-virtual-reality-games/"><u>In 2024, Avoid Motion Sickness in Virtual Reality Games</u></a></li>
+<li><a href="https://fox-info.techidaily.com/snapcraft-universe-top-8-photo-connector/"><u>SnapCraft Universe Top 8 Photo Connector</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/step-by-step-guide-to-find-youtube-hidden-videos-for-2024/"><u>Step-By-Step Guide to Find YouTube Hidden Videos for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unveiling-creative-screen-usage-pip-techniques-for-mac-users-for-2024/"><u>Unveiling Creative Screen Usage PIP Techniques for Mac Users for 2024</u></a></li>
+</ul></div>
 

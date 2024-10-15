@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] AE User Guide  Adding Flavor with Typefaces\""
-date: 2024-10-07T09:16:56.922Z
-updated: 2024-10-09T07:33:04.322Z
+date: 2024-10-09T16:23:59.974Z
+updated: 2024-10-15T17:21:54.583Z
 tags: 
   - screen-recording
   - ai video
@@ -55,10 +55,16 @@ Adobe After Effects provides a ton of families of fonts that can be added and us
 Some of the most famous fonts such as "typewriter", "Cursive Handwriting" and many more are categorized under their family of fonts and are very easy to access. Along with this, you can also select fonts with different character strokes and can alter their features while adding to your videos.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3\. How to use text effects in After Effects?
@@ -68,13 +74,6 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 * First, select the project video that you want to edit. Then navigate to "effects and presets" and search for the presets of the texts that you want to edit.
 
 ![effects and presets adobe](https://images.wondershare.com/filmora/article-images/2022/07/effects-and-presets-adobe.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Now, add that text effect to your video by clicking on it and dragging and dropping it on your video. Then select any animation preset for your text from "Adobe Bridge".
 * Then slide the keyframes to set the text effect on the section of the video where you want to add your text. You can also compose the text by clicking on it and editing it for adjusting its content, height, width, opacity, and color.
@@ -92,6 +91,13 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
@@ -102,6 +108,13 @@ These features also include adding texts and changing the fonts of those texts o
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -114,22 +127,15 @@ These features also include adding texts and changing the fonts of those texts o
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
@@ -166,20 +172,18 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-a-guide-to-crafting-a-captivating-fb-memory-reel-for-2024/"><u>[New] A Guide to Crafting a Captivating FB Memory Reel for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-boosting-your-windows-photos-feed-incorporating-audio-elements/"><u>[New] In 2024, Boosting Your Windows Photos Feed Incorporating Audio Elements</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-elevate-viewing-experience-activating-av1-codec-on-youtube/"><u>[New] In 2024, Elevate Viewing Experience Activating AV1 Codec on YouTube</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-heads-up-on-high-tech-the-best-motorcycle-cam-gear-guide-in-23/"><u>[New] In 2024, Heads Up on High-Tech - The Best Motorcycle Cam Gear Guide in '23</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-maximum-mobile-mastery-highlights-covers-on-iosandroid-for-2024/"><u>[New] Maximum Mobile Mastery Highlights Covers on iOS/Android for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-pinnacle-studio-25-review-for-2024/"><u>[New] Pinnacle Studio 25 Review for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-spotting-success-stories-2023s-most-shared-tweets-for-2024/"><u>[New] Spotting Success Stories 2023’S Most Shared Tweets for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-advanced-cameras-front-screen-center-stage-for-2024/"><u>[Updated] Advanced Cameras Front Screen Center Stage for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-from-novice-to-master-photographer-with-lunapic/"><u>[Updated] In 2024, From Novice to Master Photographer with LunaPic</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-future-of-fitness-in-virtual-reality-walkers/"><u>[Updated] In 2024, The Future of Fitness in Virtual Reality Walkers</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/engaging-audiences-facebook-live-meets-tv-for-2024/"><u>Engaging Audiences Facebook Live Meets TV for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/expert-advice-on-addressing-and-resolving-error-code-0x80070652-during-windows-updates/"><u>Expert Advice on Addressing and Resolving Error Code 0X80070652 During Windows Updates</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-zte-nubia-z60-ultra-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror ZTE Nubia Z60 Ultra to Roku | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-oppo-a59-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Oppo A59 5G to Enjoy More Fun | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/the-chatgpt-approach-to-exceptional-resumes/"><u>The ChatGPT Approach to Exceptional Resumes</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-unlocking-your-hp-laptops-full-screen-capture-capabilities/"><u>[New] 2024 Approved Unlocking Your HP Laptop's Full Screen Capture Capabilities</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-customize-your-view-with-this-diy-guide-for-google-vr-gear-for-2024/"><u>[New] Customize Your View with This DIY Guide for Google VR Gear for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-inside-look-unlocking-the-potential-of-m1-max-clip/"><u>[New] In 2024, Inside Look Unlocking the Potential of M1 Max Clip</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-photography-powerhouses-for-crisp-composites-for-2024/"><u>[New] Photography Powerhouses for Crisp Composites for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-top-camera-mastery-films-best-practices-unveiled/"><u>[New] Top Camera Mastery Film's Best Practices Unveiled</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-epicurean-envoys-the-best-food-vloggers-to-watch/"><u>[Updated] 2024 Approved Epicurean Envoys The Best Food Vloggers to Watch</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-exploring-the-best-of-android-does-pickup-lead-photo-editing-tools/"><u>[Updated] 2024 Approved Exploring the Best of Android Does PickUp Lead Photo Editing Tools?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-top-video-editors-aiding-in-app-dev-creation/"><u>[Updated] In 2024, Top Video Editors Aiding in App Dev Creation</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-transforming-everyday-alerts-how-to-create-customizable-tones-on-android-phones/"><u>[Updated] In 2024, Transforming Everyday Alerts How to Create Customizable Tones on Android Phones</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/windows-118/"><u>💻Windows 11の最高スクリーンレコーダー：画面キャプチャの達人8つを紹介しよう！</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/closing-with-panache-free-youtubes-1-six-for-2024/"><u>Closing with Panache Free YouTube's #1 Six for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/discovering-the-magic-of-augmented-realms/"><u>Discovering the Magic of Augmented Realms</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-master-internet-tracking-and-tailoring-by-enabling-cookies-on-any-web-browser/"><u>How to Master Internet Tracking and Tailoring by Enabling Cookies on Any Web Browser</u></a></li>
 </ul></div>
 
