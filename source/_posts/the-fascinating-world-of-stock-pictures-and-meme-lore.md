@@ -1,7 +1,7 @@
 ---
 title: "The Fascinating World of Stock Pictures & Meme Lore"
-date: 2024-10-11T20:42:04.891Z
-updated: 2024-10-15T20:18:06.103Z
+date: 2024-10-14T19:09:53.859Z
+updated: 2024-10-21T00:30:12.707Z
 tags: 
   - screen-recording
   - ai video
@@ -54,16 +54,22 @@ Another popular stock image meme is Distracted Boyfriend. It features the stock 
 
 ![distracted boyfriend](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-4.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The original photo is the work of Antonio Guillem, who uploaded it on iStock in November 2015\. Initially, the photo was labeled as a lisloyal man with his girlfriend looking at another girl and required purchasing the proper license to use it.
 
 ![original photo](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 According to Meme Documentation, the first version of the Distracted boyfriend theme dates back to January 2017\. Prog Snob, a Turkish progressive rock group on Facebook, posted the meme on their page to reference Phil Collin's distraction from progressive rock by pop music. However, it was the August 2017 Twitter version referencing the youth's feelings towards capitalism and socialism that went viral.
 
@@ -85,10 +91,10 @@ In addition, Antonio Guillem also has a stock image meme where the roles are rev
 ![meme features](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The meme features a couple in bed with the stock photo meme guy in contemplation and the woman facing him with a concerned look. At first glance, the image shows a couple experiencing relationship problems, with the original caption showing the woman worrying that the man is thinking about other women.
@@ -98,10 +104,10 @@ However, subsequent memes feature satirical themes. Here are some of the most po
 ![the most popular versions](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 A July 2017 Instagram post by Cathrottle gained over 13,400 likes in a month. In this version, the man wonders why there are so many Fast and the Furious movies.
@@ -109,6 +115,13 @@ A July 2017 Instagram post by Cathrottle gained over 13,400 likes in a month. In
 * Redditor GallowBoob received 34,700 points and 350 comments within 24 hours of posting it.
 
 ![points and comments](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The post references the Toy Story character Buzz Lightyear, with the man contemplating why Buzz is in denial of being a toy.
 
@@ -118,25 +131,11 @@ According to sources, the stock photo meme was first featured on Twitter in Dece
 
 ![stock photo meme](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
 
 ## Part4: Bonjour Bear
 
 ![bonjour bear](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-11.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Unlike the previous stock image memes, Bonjour Bear was not an instant hit among netizens. The stock image was posted online in 2016 by Uryadnikov Sergey and featured a polar bear peeking through its winter den. However, it began causing a buzz in early 2019, following a Reddit post that included hilarious captions.
 
@@ -147,10 +146,10 @@ Since then, internet users have continued to use the Bonjour Bear meme to refere
 ![using hand sanitizer](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
 </a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In addition, the post received over 91,700 points, with 95% of upvotes, within a day on Reddit.
@@ -171,6 +170,13 @@ This is because not all stock photo providers offer their images with a creative
 ### 2\. Does copyright law protect memes?
 
 Yes, all memes are under copyright law, which means you have the authority to govern their use. Although identifying the meme owner can be challenging, posting or sharing a meme through your social media accounts without consent violates copyright law. Therefore, only use stock image memes from verified stock content providers like Shutterstock, where the license provisions are clear.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Can you use watermarked stock photos to create memes?
 
@@ -208,24 +214,20 @@ Therefore, always perform stock image reverse searches to verify the image permi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-key-sound-editing-solutions-for-video-bloggers/"><u>[New] 2024 Approved Key Sound Editing Solutions for Video Bloggers</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-rapid-restoration-of-reddit-archives-removed/"><u>[New] In 2024, Rapid Restoration of Reddit Archives Removed</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-navigate-the-digital-landscape-discover-these-10-sites-of-3d-graffiti-brilliance-for-2024/"><u>[New] Navigate the Digital Landscape Discover These 10 Sites of 3D Graffiti Brilliance for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-unveiling-paid-content-in-product-analysis/"><u>[Updated] 2024 Approved Unveiling Paid Content in Product Analysis</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-enhancing-visual-effects-with-movie-maker-for-animation-projects/"><u>[Updated] Enhancing Visual Effects with Movie Maker for Animation Projects</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-fluxvideoart-compile-and-display-on-macos-sierra/"><u>[Updated] In 2024, FluxVideoArt Compile & Display on macOS Sierra</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-sticker-savvy-on-discord-platform-for-2024/"><u>[Updated] Sticker Savvy on Discord Platform for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-unlocking-language-barriers-select-top-8-free-srt-tools/"><u>[Updated] Unlocking Language Barriers Select Top 8 Free SRT Tools</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-ultimate-guide-pcs-hd-color-videography/"><u>2024 Approved Ultimate Guide PC's HD Color Videography</u></a></li>
-<li><a href="https://fox-info.techidaily.com/compreenas-a-step-by-step-process-to-apply-luts-in-photoshop-cc/"><u>Compreenas a Step-by-Step Process to Apply LUTs in Photoshop CC</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Gionee F3 Pro | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/hp-photosmart-7520-software-download-installation-and-support/"><u>HP Photosmart 7520 Software Download: Installation and Support</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-oppo-find-x7-ultrafrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Oppo Find X7 UltraFRP Lock</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-the-updated-method-to-bypass-motorola-edge-40-neo-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Motorola Edge 40 Neo FRP</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/in-2024-why-does-itools-virtual-location-not-work-for-apple-iphone-7ipad-solved-drfone-by-drfone-virtual-ios/"><u>In 2024, Why Does iTools Virtual Location Not Work For Apple iPhone 7/iPad? Solved | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-realme-gt-neo-5-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Realme GT Neo 5? Fixed | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/samsung-ue590-4k-freesync-gaming-monitor-review/"><u>Samsung UE590 4K FreeSync Gaming Monitor Review</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Tecno Spark 10 Pro | Dr.fone</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/updated-an-ultimate-guide-of-best-narrator-voice-generators/"><u>Updated An Ultimate Guide of Best Narrator Voice Generators</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-game-changing-displays-the-creme-de-la-creme-of-4k-monitors/"><u>[New] 2024 Approved Game-Changing Displays The Crème De La Crème of 4K Monitors</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-luts-as-the-key-to-vivid-film-colors/"><u>[New] 2024 Approved Luts as the Key to Vivid Film Colors</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-breaking-through-with-stunning-hdr-portrait-shots/"><u>[New] Breaking Through with Stunning HDR Portrait Shots</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-how-to-add-fonts-to-after-effects-for-2024/"><u>[New] How to Add Fonts to After Effects for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-vimeo-vs-youtube-which-is-better/"><u>[New] Vimeo vs YouTube Which Is Better?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-instagram-story-width-height-run-time/"><u>[Updated] In 2024, Instagram Story Width, Height, Run Time</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-ultimate-list-premium-voice-modifiers-for-virtual-creators/"><u>[Updated] In 2024, Ultimate List Premium Voice Modifiers for Virtual Creators</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/comical-creations-no-cost-memes-available-for-2024/"><u>Comical Creations No Cost Memes Available for 2024</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/convertissez-vos-fichiers-video-mkv-au-format-mp4-sans-pertes-de-qualite-avec-handbrake-guide-gratuit/"><u>Convertissez Vos Fichiers Vidéo MKV Au Format MP4 Sans Pertes De Qualité Avec HandBrake : Guide Gratuit</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-realme-gt-5-pro-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Realme GT 5 Pro to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6-plus-apples-new-iphone-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 6 Plus, Apples New iPhone | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-the-definitive-list-of-5-drone-racing-headsets/"><u>In 2024, The Definitive List of 5 Drone Racing Headsets</u></a></li>
+<li><a href="https://fox-info.techidaily.com/keeping-your-gopro-fogless-for-perfection/"><u>Keeping Your GoPro Fogless for Perfection</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-troubleshooting-for-openal32dll-not-detected-errors/"><u>Step-by-Step Troubleshooting for OpenAL32.dll Not Detected Errors</u></a></li>
+<li><a href="https://fox-info.techidaily.com/vlcs-secrets-for-efficient-remote-live-broadcasting-for-2024/"><u>VLC's Secrets for Efficient Remote Live Broadcasting for 2024</u></a></li>
 </ul></div>
 

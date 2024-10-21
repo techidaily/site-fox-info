@@ -1,7 +1,7 @@
 ---
 title: "\"Exploring Hues  From Textbooks to Canvas\""
-date: 2024-10-10T18:14:26.145Z
-updated: 2024-10-15T17:24:47.783Z
+date: 2024-10-18T04:19:49.976Z
+updated: 2024-10-20T17:46:23.741Z
 tags: 
   - screen-recording
   - ai video
@@ -33,19 +33,33 @@ Color theory consists of many elements that could fill a library on its own but 
 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Color Wheel
 
 Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this
 
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Color Harmony
@@ -68,33 +82,25 @@ You may still be unsure as to how to implement color theory into your videos. Le
 
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
 
 As you can see from this example the base color for the scene is a dark blue/purple and using the analogous color of pink they created a point of interest within the scene that doesn't look out of place. This is a very good way to pull the viewers eyes towards something you want them to take in above all else.
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -131,20 +137,20 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-step-by-step-mastering-ppros-full-screen-preview/"><u>[New] 2024 Approved Step-by-Step Mastering PPro's Full Screen Preview</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-where-to-download-your-own-personalized-tyrion-lannister-ringtone/"><u>[New] 2024 Approved Where to Download Your Own Personalized Tyrion Lannister Ringtone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-the-metaverses-funny-bone-generating-hitsome-online-jokes/"><u>[New] In 2024, The Metaverse's Funny Bone Generating Hitsome Online Jokes</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-mirthful-milestones-an-examination-of-goofy-odyssey/"><u>[Updated] 2024 Approved 'Mirthful Milestones' An Examination of 'Goofy Odyssey'</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-essential-guide-to-21-hdmi-monitors-comparative-analysis/"><u>[Updated] 2024 Approved Essential Guide to 2.1 HDMI Monitors - Comparative Analysis</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-from-amateur-to-artist-top-8-beginner-camera-selections/"><u>[Updated] From Amateur to Artist Top 8 Beginner Camera Selections</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-tiktok-bgs-exploring-affordable-eye-catching-visuals/"><u>2024 Approved TikTok BGs Exploring Affordable, Eye-Catching Visuals</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/boosting-digital-marketing-with-cookiebot-technology/"><u>Boosting Digital Marketing with Cookiebot Technology</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/choosing-the-right-apple-pencil-pro-vs-2nd-gen-a-comprehensive-guide-for-ipad-users-zdnets-expert-review/"><u>Choosing the Right Apple Pencil: Pro Vs. 2Nd Gen – A Comprehensive Guide for iPad Users | ZDNet's Expert Review</u></a></li>
-<li><a href="https://win-able.techidaily.com/crusader-kings-ii-wont-start-troubleshooting-guide/"><u>Crusader Kings II Won't Start: Troubleshooting Guide</u></a></li>
-<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-vivo-y02t-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Vivo Y02T Location Settings | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/friendly-playgrounds-metaverses-favorites/"><u>Friendly Playgrounds Metaverse's Favorites</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/o-tailor-youtube-thumbnails-for-maximum-impact/"><u>How to Tailor YouTube Thumbnails for Maximum Impact</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-capture-the-crash-expert-surfer-cameras-review/"><u>In 2024, Capture the Crash - Expert Surfer Cameras Review</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-vivo-v29-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Vivo V29 Phone FRP Lock</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-golden-text-in-3d-selecting-quality-online-sites/"><u>[New] 2024 Approved Golden Text in 3D Selecting Quality Online Sites</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-graphic-design-journeys-from-passion-to-profession-for-2024/"><u>[New] Graphic Design Journeys From Passion to Profession for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-how-to-manage-and-disable-recommended-podcast-episodes-in-spotify/"><u>[New] In 2024, How to Manage and Disable Recommended Podcast Episodes in Spotify</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-skyrocket-your-storage-top-20-free-cloud-services-to-choose-from-1tbplus/"><u>[New] Skyrocket Your Storage - Top 20 Free Cloud Services to Choose From (1TB+)</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-step-into-profitability-on-youtube-beginners-guide/"><u>[New] Step Into Profitability on YouTube - Beginner's Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-acclaimed-encoder-technology-in-broadcast-systems/"><u>[Updated] Acclaimed Encoder Technology in Broadcast Systems</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-navigating-the-maze-of-multi-service-playlist-transfer-for-2024/"><u>[Updated] Navigating the Maze of Multi-Service Playlist Transfer for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/apples-ipad-air-with-m2-a-comprehensive-review-and-buyers-guide-to-the-ultimate-2023-tablet-selection-zdnet-analysis/"><u>Apple's iPad Air with M2: A Comprehensive Review and Buyer's Guide to the Ultimate 2023 Tablet Selection | ZDNet Analysis</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Oppo Reno 8T | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-essential-tweets-choosing-the-right-converter/"><u>In 2024, Essential Tweets Choosing the Right Converter</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-harnessing-viral-potential-the-20-best-tiktok-caption-insights/"><u>In 2024, Harnessing Viral Potential The 20 Best TikTok Caption Insights</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/sync-soundscapes-from-downloads-to-personalized-phone-alerts-for-2024/"><u>Sync Soundscapes From Downloads to Personalized Phone Alerts for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-expertise-on-innovative-tech-and-pc-components/"><u>Tom's Expertise on Innovative Tech and PC Components</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ate-guide-to-the-most-effective-16-youtube-intros/"><u>Ultimate Guide to the Most Effective 16 YouTube Intros</u></a></li>
+<li><a href="https://fox-info.techidaily.com/visionary-tech-showcase-the-finest-oculus-experiences-for-2024/"><u>Visionary Tech Showcase The Finest Oculus Experiences for 2024</u></a></li>
 </ul></div>
 

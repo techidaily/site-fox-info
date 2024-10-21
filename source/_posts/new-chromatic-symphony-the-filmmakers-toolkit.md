@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Chromatic Symphony  The Filmmaker's Toolkit\""
-date: 2024-09-16T00:59:00.113Z
-updated: 2024-09-17T06:38:29.334Z
+date: 2024-10-14T05:24:41.743Z
+updated: 2024-10-21T06:19:44.839Z
 tags: 
   - screen-recording
   - ai video
@@ -79,6 +79,13 @@ Color Panel Window - to perform color correction in Wondershare Filmora, switch 
 
 ![edit color grading video fx](https://images.wondershare.com/filmora/article-images/2022/08/edit-color-grading-video-fx.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Contrast**: is the variance in luminance or color that makes an object identifiable. By modifying this setting, control the dissimilarity in color and brightness in contrary parts of the video image.
 
 **Saturation:** This setting constitutes the amount of gray in proportion to the hue. You can adjust it to make the entire video image's colors look soaked or unnoticeable.
@@ -105,9 +112,23 @@ First, you need to select the specific video portion you want to change the colo
 
 ![split video into clips fx](https://images.wondershare.com/filmora/article-images/2022/08/split-video-into-clips-fx.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * And I selected the end portion of the video. After that, choose the part of the video.
 
 ![selected end portion video filmora](https://images.wondershare.com/filmora/article-images/2022/08/selected-end-portion-video-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step3Apply the color correction preset that you want then click ok
 
@@ -130,6 +151,13 @@ Once you've finished correcting the video color, press Play and go over the whol
 You can modify the temperature, tint, white balance, contrast, saturation, and brightness and apply 3D LUT directly and quickly in this editing panel.
 
 ![color panel windows filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-panel-windows-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step2Color grading with Wondershare Filmora
 
@@ -201,12 +229,23 @@ Overall, Color grading is the process of video editing to have an excellent look
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-alives-low-residue-sound-technique/"><u>[New] 2024 Approved Alive's Low-Residue Sound Technique</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-unleashing-creativity-making-photo-based-videos-using-pixiz/"><u>[New] 2024 Approved Unleashing Creativity Making Photo-Based Videos Using Pixiz</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-dissecting-a-day-in-the-life-hero5-edition-for-2024/"><u>[New] Dissecting a Day in the Life Hero5 Edition for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-improving-sound-speeds-a-guide-for-safe-spotify-use/"><u>[New] Improving Sound Speeds A Guide for Safe Spotify Use</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-nighttime-luminosity-on-iphone-photos/"><u>[New] In 2024, Nighttime Luminosity on iPhone Photos</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-insider-guide-to-making-and-perfecting-haul-vlogs/"><u>[New] The Insider Guide to Making and Perfecting Haul Vlogs</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-exploring-pc-video-editing-substitutes/"><u>[Updated] Exploring PC Video Editing Substitutes</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-step-by-step-finding-your-digital-filming-suite-on-youtube/"><u>[Updated] Step-by-Step Finding Your Digital Filming Suite on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-discover-the-top-30-free-intro-creators-on-youtube/"><u>2024 Approved Discover the Top 30 Free Intro Creators on YouTube</u></a></li>
+<li><a href="https://fox-info.techidaily.com/drones-uncovered-the-top-pre-purchase-checklist-for-buyers/"><u>Drones Uncovered The Top Pre-Purchase Checklist for Buyers</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-motorola-g54-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Motorola G54 5G Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/snap-up-on-details-with-videoleaps-advanced-zooming/"><u>Snap Up on Details with VideoLeap's Advanced Zooming</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-art-of-digital-cinema-a-detailed-analysis-of-lgs-31mu97-b-monitor/"><u>The Art of Digital Cinema - A Detailed Analysis of LG’s 31MU97-B Monitor</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/the-complete-screencast-cheat-sheet-must-knows-for-2024/"><u>The Complete Screencast Cheat Sheet Must-Knows for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Samsung Galaxy S21 FE 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/winxdvd-official-site-premium-dvd-ripper-and-converter-with-iphone-transfer-capabilities/"><u>WinXDVD Official Site: Premium DVD Ripper & Converter with iPhone Transfer Capabilities</u></a></li>
+</ul></div>
 

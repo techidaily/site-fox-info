@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Interweaving Art and Science in Colors"
-date: 2024-09-15T16:24:24.091Z
-updated: 2024-09-16T18:00:21.438Z
+date: 2024-10-14T22:51:38.225Z
+updated: 2024-10-20T21:06:03.070Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,13 @@ Color theory consists of many elements that could fill a library on its own but 
 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Color Wheel
 
 Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this
@@ -47,6 +54,19 @@ So now we know how the wheel is made and what it looks like. What does it do? We
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
 These colors always work as they create contrast and stability.
@@ -55,18 +75,18 @@ The blue lines represent what is known as split contrasting colors and these wil
 
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## But How Do I Use This
 
 You may still be unsure as to how to implement color theory into your videos. Let's look at some scenarios that color theory may help your creations.
 
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
 
@@ -74,14 +94,14 @@ As you can see from this example the base color for the scene is a dark blue/pur
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -115,5 +135,26 @@ By including this into your thought process when creating videos with [Filmora](
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-elevated-viewing-larger-youtube-images/"><u>[New] 2024 Approved Elevated Viewing Larger YouTube Images</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-visual-virtuosity-a-novices-journey-in-snapseed/"><u>[New] 2024 Approved Visual Virtuosity A Novice's Journey in Snapseed</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-boost-your-visual-impact-essential-tricks-for-pixlr-pros-for-2024/"><u>[New] Boost Your Visual Impact Essential Tricks for Pixlr Pros for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-silence-by-design-techniques-for-gradually-dimming-soundtracks-in-premiere-pro/"><u>[New] In 2024, Silence by Design Techniques for Gradually Dimming Soundtracks in Premiere Pro</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ichest-youtubers-for-2024/"><u>[New] Richest YouTubers for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-the-ultimate-checkpoint-a-2021-review-of-vegas-pros-latest-features-for-2024/"><u>[New] The Ultimate Checkpoint A 2021 Review of Vegas Pro's Latest Features for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-unlocking-creativity-top-5-expert-video-and-photography-plus-music-mixers-for-2024/"><u>[New] Unlocking Creativity Top 5 Expert Video & Photography + Music Mixers for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-grasping-the-fundamentals-of-animated-communication/"><u>[Updated] 2024 Approved Grasping the Fundamentals of Animated Communication</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-advanced-rendering-gpus-for-4k-experience/"><u>[Updated] Advanced Rendering GPUs for 4K Experience</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-proven-pathways-to-peeling-away-pesky-backdrops-with-affinity-photo-tools/"><u>[Updated] In 2024, Proven Pathways to Peeling Away Pesky Backdrops with Affinity Photo Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unlock-the-full-potential-of-your-h-videos-on-instagram-tv/"><u>[Updated] Unlock the Full Potential of Your H-Videos on Instagram TV</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-income-through-effective-video-marketing/"><u>2024 Approved Boosting Income Through Effective Video Marketing</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mediamerge-creating-slideshows-on-macsierra/"><u>2024 Approved MediaMerge Creating Slideshows on MacSierra</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-oppo-reno-10-proplus-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Oppo Reno 10 Pro+ 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-honor-100-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Honor 100 | Dr.fone</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/effizientes-ubertragen-von-wiederherstellungspartition-auf-einen-usb-speicherstick/"><u>Effizientes Übertragen Von Wiederherstellungspartition Auf Einen USB-Speicherstick</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-fixing-sound-discrepan-points-in-facebook-streams/"><u>In 2024, Fixing Sound Discrepan Points in Facebook Streams</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-perfect-picture-spotlights-how-to-zoom-in-and-out-on-insta-stories/"><u>In 2024, Perfect Picture Spotlights How to Zoom in & Out on Insta Stories</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/top-rated-17-inch-laptop-picks/"><u>Top Rated 17-Inch Laptop Picks</u></a></li>
+</ul></div>
 

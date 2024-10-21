@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Step-by-Step  Incorporating New Fonts Into After Effects\""
-date: 2024-10-08T19:52:49.923Z
-updated: 2024-10-15T16:52:40.712Z
+date: 2024-10-16T00:59:45.342Z
+updated: 2024-10-21T09:35:24.327Z
 tags: 
   - screen-recording
   - ai video
@@ -48,31 +48,11 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 * Now keep the Creative Cloud application up and running in your system and then open your After Effects application. There navigate to "Graphics" and then select "Add Fonts from Adobe Fonts".
 * You can also use the font dropdown menu as a shortcut to use the fonts instantly. In Adobe After Effects interface, you can then select the "Character" panel to add or change the fonts to your videos.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2\. Types of Fonts in After Effects
 
 Adobe After Effects provides a ton of families of fonts that can be added and used in video projects. These fonts are available on the Create Cloud application and also on the official website of adobe. Also, these fonts are categorized according to their height, weight, contrast as well as other attributes. And each of these fonts is shown with a preview saying "Typography" which can be selected instantly.
 
 Some of the most famous fonts such as "typewriter", "Cursive Handwriting" and many more are categorized under their family of fonts and are very easy to access. Along with this, you can also select fonts with different character strokes and can alter their features while adding to your videos.
-
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3\. How to use text effects in After Effects?
 
@@ -82,15 +62,22 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 
 ![effects and presets adobe](https://images.wondershare.com/filmora/article-images/2022/07/effects-and-presets-adobe.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Now, add that text effect to your video by clicking on it and dragging and dropping it on your video. Then select any animation preset for your text from "Adobe Bridge".
 * Then slide the keyframes to set the text effect on the section of the video where you want to add your text. You can also compose the text by clicking on it and editing it for adjusting its content, height, width, opacity, and color.
 * After you are done, save the project and your text effects will be added to the final video successfully.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4\. Alternative ways to edit text fonts
@@ -110,10 +97,10 @@ These features also include adding texts and changing the fonts of those texts o
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
@@ -143,6 +130,13 @@ These features also include adding texts and changing the fonts of those texts o
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -172,20 +166,18 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-leveraging-brand-partnerships-for-youtube-content-creators/"><u>[New] 2024 Approved Leveraging Brand Partnerships for YouTube Content Creators</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-unveiling-the-xs-100i-action-camera-revolutionized/"><u>[New] 2024 Approved Unveiling the XS 100I - Action Camera Revolutionized</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-audiblefromtwitvid-direct-audio-conversion/"><u>[New] AudibleFromTwitVid Direct Audio Conversion</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-decoding-canvas-best-kept-secrets-for-stunning-images/"><u>[New] Decoding Canva's Best-Kept Secrets for Stunning Images</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-dji-flying-tech-experiment-with-color-luts-at-no-extra-charge/"><u>[New] In 2024, DJI Flying Tech Experiment with Color LUTs at No Extra Charge</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-essential-vlogging-tools-for-beginners/"><u>[Updated] In 2024, Essential Vlogging Tools for Beginners</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-harmonious-hushes-softening-sounds-with-garageband/"><u>[Updated] In 2024, Harmonious Hushes Softening Sounds with Garageband</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/free-frame-flip-converting-tweets-into-tweenish-movies/"><u>Free Frame Flip Converting Tweets Into Tweenish Movies</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/how-does-vidma-stack-up-as-a-screen-recorder-in-2024/"><u>How Does Vidma Stack Up as a Screen Recorder, In 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Realme V30T? | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-huawei-nova-y71frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Huawei Nova Y71FRP Lock</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-mastering-file-shift-quick-and-easy-transfer-tactics-for-the-computer/"><u>In 2024, Mastering File Shift Quick and Easy Transfer Tactics for the Computer</u></a></li>
-<li><a href="https://howto.techidaily.com/nokia-c32-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Nokia C32 Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/pick-your-favorite-top-ios-apps-for-facebook-video-loading-for-2024/"><u>Pick Your Favorite Top iOS Apps for Facebook Video Loading for 2024</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-from-noise-to-masterpiece-10-glitch-art-video-editing-apps-for-mobile-devices/"><u>Updated In 2024, From Noise to Masterpiece 10 Glitch Art Video Editing Apps for Mobile Devices</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-quintessential-new-wave-of-facebook-updates/"><u>[Updated] The Quintessential New Wave of Facebook Updates</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-reverse-image-retrieval-in-social-media-fb-explained/"><u>2024 Approved Reverse-Image Retrieval in Social Media (FB) Explained</u></a></li>
+<li><a href="https://fox-info.techidaily.com/copyright-free-game-audio-repositories-for-2024/"><u>Copyright-Free Game Audio Repositories for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/creative-composition-ideal-apps-for-ios-and-android-for-2024/"><u>Creative Composition Ideal Apps for iOS and Android for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/discover-the-creme-de-la-creme-of-iphoneipad-videos/"><u>Discover the Crème De La Créme of iPhone/iPad Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/duel-of-the-titans-gopro-hero-5-vs-nikon-km-170-for-2024/"><u>Duel of the Titans GoPro Hero 5 VS Nikon KM-170 for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/essential-10-sport-streaming-tools-for-football-enthusiasts/"><u>Essential 10 Sport Streaming Tools for Football Enthusiasts</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-personal-configuration-errors-now-functional/"><u>Fixing Personal Configuration Errors (Now Functional)</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-is-greyed-out-from-apple-iphone-13-pro-how-to-bypass-by-drfone-ios/"><u>In 2024, Apple ID is Greyed Out From Apple iPhone 13 Pro How to Bypass?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Xiaomi Redmi K70? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-itel-p55-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Itel P55 | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-how-to-watch-facebook-live-on-your-apple-media-hub/"><u>In 2024, How to Watch Facebook Live on Your Apple Media Hub</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-shade-smarts-mastering-the-art-of-color-correction-with-speed/"><u>In 2024, Shade Smarts Mastering the Art of Color Correction with Speed</u></a></li>
 </ul></div>
 

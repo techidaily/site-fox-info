@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Breakneck Beats  Short Track Highlights\""
-date: 2024-10-08T21:18:29.166Z
-updated: 2024-10-15T19:35:49.919Z
+date: 2024-10-17T05:54:17.195Z
+updated: 2024-10-21T03:06:16.070Z
 tags: 
   - screen-recording
   - ai video
@@ -37,33 +37,25 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
@@ -79,25 +71,38 @@ Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
@@ -142,6 +147,13 @@ Step 5: Select individual slides and apply Transition, Effects or add Titles and
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 South Korean skater Hwang Dae-heon has won the gold medal in men’s short track speed skating 1500m. This has buried the controversy that cropped up due to South Korean disqualification in 1000m short track speed skating. If you want to make a video highlighting all the important scenes and moments of any sports event, we have illustrated how to make a professional-quality video with Wondershare Filmora.
@@ -165,18 +177,18 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-exploring-the-pro-3-the-latest-in-action-cameras-from-ion/"><u>[New] 2024 Approved Exploring the Pro 3 - The Latest in Action Cameras From ION</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-innovative-ai-tools-to-spark-your-podcast-written-name/"><u>[New] In 2024, Innovative AI Tools to Spark Your Podcast' Written Name</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-upload-and-share-your-visual-content-on-youtube/"><u>[New] In 2024, Upload & Share Your Visual Content on YouTube</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-upgrading-effortlessly-with-a-focus-on-key-lens-features-for-2024/"><u>[New] Upgrading Effortlessly with a Focus on Key Lens Features for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-timeless-1980s-filters-and-techniques-in-editing/"><u>[Updated] 2024 Approved Timeless 1980S Filters & Techniques in Editing</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-unlock-brand-potential-top-terminology-for-impactful-campaigns/"><u>[Updated] Unlock Brand Potential Top Terminology for Impactful Campaigns</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/configuring-startstop-of-windows-installer-service/"><u>Configuring Start/Stop of Windows Installer Service</u></a></li>
-<li><a href="https://win-dash.techidaily.com/get-maximum-performance-upgrade-to-new-geforce-rtx-2080-ti-graphics-drivers/"><u>Get Maximum Performance: Upgrade to New GeForce RTX 2080 Ti Graphics Drivers</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/high-speed-window-pictorial-interface/"><u>High-Speed Window Pictorial Interface</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-network-locked-itel-p40-phone-by-drfone-android/"><u>How to Unlock a Network Locked Itel P40 Phone?</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/merging-melodies-the-art-of-crossfading-for-2024/"><u>Merging Melodies The Art of Crossfading for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/quiz-creation-simplified-expert-tips-and-strategies-for-crafting-interactive-assessments/"><u>Quiz Creation Simplified: Expert Tips & Strategies for Crafting Interactive Assessments</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-when-honor-x50iplus-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Honor X50i+ Has Black Screen of Death? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-complete-activity-inspection-guide/"><u>[Updated] Complete Activity Inspection Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-capturing-the-cloudline-in-your-backyard-the-revolutionary-dji-spark-unveiled/"><u>2024 Approved Capturing the Cloudline in Your Backyard The Revolutionary DJI Spark Unveiled</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-exploring-imovies-automated-size-control/"><u>2024 Approved Exploring iMovie's Automated Size Control</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-mastering-the-process-essential-techniques-and-strategies-for-green-screen-filmmaking/"><u>2024 Approved Mastering the Process Essential Techniques & Strategies for Green Screen Filmmaking</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-navigating-new-skies-with-syma-x5c-an-experts-take-for-novices/"><u>2024 Approved Navigating New Skies with Syma X5C – An Expert’s Take for Novices</u></a></li>
+<li><a href="https://fox-info.techidaily.com/best-8-free-4k-video-player-software-for-windows-pcandmac-for-2024/"><u>Best 8 Free 4K Video Player Software for Windows PC&Mac for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/beyond-illusion-vr-timeline-explored/"><u>Beyond Illusion VR Timeline Explored</u></a></li>
+<li><a href="https://techtrends.techidaily.com/gratuiti-ri-conversione-ogg-a-mp3-con-movavi-fatto-da-te/"><u>Gratuiti Ri-Conversione OGG a Mp3 Con Movavi - Fatto Da Te</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/kop-nu-top-choice-screen-capture-tool-for-efficient-digital-recordings/"><u>Köp Nu: Top-Choice Screen Capture Tool for Efficient Digital Recordings</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/streamlining-tasks-with-mspcm-toolbar-in-windows-11/"><u>Streamlining Tasks with MSPCM Toolbar in Windows 11</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-language-of-ai-key-jargon-for-the-curious-mind/"><u>The Language of AI: Key Jargon for the Curious Mind</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-google-pixel-3-unleashing-androids-full-potential/"><u>The Ultimate Guide to Google Pixel 3: Unleashing Android's Full Potential</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-your-samsung-galaxy-s24plus-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Samsung Galaxy S24+ Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
 </ul></div>
 

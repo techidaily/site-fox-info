@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, The Creative's Handbook  Obtaining Stock Visuals for Media\""
-date: 2024-10-11T17:42:00.220Z
-updated: 2024-10-15T21:25:53.690Z
+date: 2024-10-19T01:08:52.001Z
+updated: 2024-10-20T23:19:24.778Z
 tags: 
   - screen-recording
   - ai video
@@ -34,10 +34,10 @@ Where you get quality background stock images can be quite difficult with the hu
 Getting background stock images for your photos and video is easy. There are two powerful techniques to do that. Check them out below:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 1: Search for Background Stock Images in Royalty-Free Sites
@@ -51,10 +51,10 @@ In this section, we will share with you some top-rated royalty-free sites you ca
 ![unsplash](https://images.wondershare.com/filmora/article-images/2022/08/background-stock-images-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 When you talk about stunning stock images, Unsplash is definitely the right platform to visit. The platform houses several quality images that you can choose from to beautify your video or photo backgrounds.
@@ -94,6 +94,13 @@ Should you find images that suit your requirement but don't like the background,
 1. **Media.io**
 
 ![media.io](https://images.wondershare.com/filmora/article-images/2022/08/background-stock-images-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Media.io is an all-in-one media solution you can use to remove backgrounds from images without distorting the quality. This software program lets you transform your image background from solid color to a transparent one without stress.
 
@@ -135,29 +142,22 @@ Step2Next, drag and drop the video into the timeline just as shown in the image 
 
 ![drag and drop video into timeline](https://images.wondershare.com/filmora/article-images/2022/08/background-stock-images-7.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Now double-click the image in the timeline. A settings tab will pop up on your screen. Navigate around the settings option till you find **Chroma Key**. Kindly enable Chroma Key, and your photo background would become transparent automatically. Click on **OK** to confirm your actions then move to the next step.
 
 Step3Now that you've successfully transformed the background of your photo into a transparent one, locate and click on the **Export** button to save it to your local storage.
 
 ![click on the export button](https://images.wondershare.com/filmora/article-images/2022/08/background-stock-images-8.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. **iMovie**
 
 ![imovie](https://images.wondershare.com/filmora/article-images/2022/08/background-stock-images-9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 iMovie is a great video editing software that allows end-users to erase image backgrounds. It lets you transform an image background into a transparent one and vice versa. The software also supports several background templates that you can use to customize your image background.
 
@@ -167,16 +167,16 @@ You don't need to be a tech guru to use this software. Thanks to the clean user 
 
 ![canvas](https://images.wondershare.com/filmora/article-images/2022/08/background-stock-images-10.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 With Canva, you can also remove background from your images conveniently. This Windows operating system compatible software lets you delete an image background so it appears transparent. It's one of the most versatile software to own.
 
 In addition to the functionalities of Canva, it can also be used to create aesthetic designs like logos, presentations, posters, flyers, ads video, etc. The software supports several customized templates that you can use to decorate your images.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2\. How to Use a Background Media in your own Photos and Videos?
 
@@ -220,20 +220,20 @@ In addition, we shared with you some of the best background editing software tha
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-pioneering-the-pathway-personal-youtube-videos-in-google-accounts/"><u>[New] 2024 Approved Pioneering the Pathway Personal YouTube Videos in Google Accounts</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-finding-the-funny-10-best-meme-blueprints-unveiled/"><u>[New] Finding the Funny #10 Best Meme Blueprints Unveiled</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-hero5-vs-yi-4k-updated-battle-for-best-action-cam/"><u>[New] Hero5 Vs. Yi 4K Updated Battle for Best Action Cam</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-tomtoms-next-gen-adventure-cameras-the-bandit-review/"><u>[New] In 2024, TomTom’s Next-Gen Adventure Cameras The Bandit Review</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-unveiling-the-game-changer-samsung-ue590-4k-monitor/"><u>[Updated] 2024 Approved Unveiling the Game Changer - Samsung UE590 4K Monitor</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-proven-tactics-increasing-your-instagram-video-traffic/"><u>[Updated] In 2024, Proven Tactics Increasing Your Instagram Video Traffic</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-streamlining-your-media-mastering-mp4-and-other-formats-in-vlc/"><u>[Updated] In 2024, Streamlining Your Media Mastering MP4 & Other Formats in VLC</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-innovative-android-for-ultimate-3d-playback-for-2024/"><u>[Updated] Innovative Android for Ultimate 3D Playback for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-uploading-subtitles-a-compreenas-guide-for-all-social-media-users/"><u>2024 Approved Uploading Subtitles A Compreenas Guide for All Social Media Users</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-oppo-f23-5g-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Oppo F23 5G Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/discords-broadcasting-features-unveiled-a-step-by-step-guide-for-2024/"><u>Discord's Broadcasting Features Unveiled A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://fox-zero.techidaily.com/effortless-guide-to-a-flawless-tunein-radio-installation/"><u>Effortless Guide to a Flawless TuneIn Radio Installation</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/solidify-zoom-sounds-avoid-amplified-annoyances-for-2024/"><u>Solidify Zoom Sounds Avoid Amplified Annoyances for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/steam-disk-write-error-troubleshooting-guide/"><u>Steam Disk Write Error Troubleshooting Guide</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unveiling-ai-shortcomings-why-plagiarism-software-isnt-always-accurate/"><u>Unveiling AI Shortcomings: Why Plagiarism Software Isn't Always Accurate</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-decoding-editing-excellence-can-pickup-outshine-the-competition-on-android/"><u>[New] 2024 Approved Decoding Editing Excellence Can PickUp Outshine the Competition on Android?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-embarking-on-the-online-world-starting-a-facebook-life-for-2024/"><u>[New] Embarking on the Online World Starting a Facebook Life for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-mobile-panorama-tips-for-skyward-shots/"><u>[New] In 2024, Mobile Panorama Tips for Skyward Shots</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-mastering-the-fading-technique-on-soundtracks-in-audacity/"><u>[New] Mastering the Fading Technique on Soundtracks in Audacity</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-engaging-visuals-for-maximum-impact-with-these-ideas/"><u>[Updated] 2024 Approved Engaging Visuals for Maximum Impact with These Ideas</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-quick-start-guide-to-editing-with-snapseed-for-2024/"><u>[Updated] Quick Start Guide to Editing with Snapseed for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-ultimate-guide-the-leading-7-nft-conversion-services/"><u>[Updated] Ultimate Guide The Leading 7 NFT Conversion Services</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-speed-up-photobooks-instructions-for-faster-google-collage-creation/"><u>2024 Approved Speed Up Photobooks Instructions for Faster Google Collage Creation</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1725289189910-ai/"><u>AIを活用した高解像度アップコンバート - 小さな画像も美しく巨大化可能！</u></a></li>
+<li><a href="https://some-skills.techidaily.com/expert-review-of-moto-g-play-impressive-battery-life-meets-solid-performance/"><u>Expert Review of Moto G Play: Impressive Battery Life Meets Solid Performance</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-solve-your-obs-game-capture-display-error-black-screen-guide/"><u>How to Solve Your OBS Game Capture Display Error - Black Screen Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-elevating-windows-10-photos-visuals-through-personalized-filtersmusic/"><u>In 2024, Elevating Windows 10 Photos Visuals Through Personalized Filters/Music</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/install-logitech-g35-headset-on-windows-computers-os-7810-driver-downloads/"><u>Install Logitech G35 Headset on Windows Computers (OS 7/8/10 Driver Downloads)</u></a></li>
+<li><a href="https://games-able.techidaily.com/multitasking-on-xbox-series-xs-laptop-screen-co-option-strategies/"><u>Multitasking on Xbox Series X|S: Laptop Screen Co-Option Strategies</u></a></li>
+<li><a href="https://driver-install.techidaily.com/synchronize-package-with-hardware/"><u>Synchronize Package with Hardware</u></a></li>
 </ul></div>
 

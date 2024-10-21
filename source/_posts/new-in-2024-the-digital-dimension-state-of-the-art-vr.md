@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, The Digital Dimension  State-of-the-Art VR\""
-date: 2024-10-13T21:01:37.102Z
-updated: 2024-10-15T17:12:06.962Z
+date: 2024-10-17T01:49:19.963Z
+updated: 2024-10-21T08:18:08.227Z
 tags: 
   - screen-recording
   - ai video
@@ -41,16 +41,10 @@ thumbnail: https://thmb.techidaily.com/3fa43d6f71cce068e0819f69e55936ad32ff4ea72
  )
 
 <!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The VR gaming development is truly rising then
@@ -60,34 +54,28 @@ thumbnail: https://thmb.techidaily.com/3fa43d6f71cce068e0819f69e55936ad32ff4ea72
 ![vr-gaming ](https://images.wondershare.com/filmora/resource/vr-gaming1.jpg )
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  This clears the air that VR is turning to be an emerging platform for the European game developers but, which one is preferred more by the professional game developers – is it the Oculus Rift or HTC Vive or something else for that matter? The survey also includes a detailed report on that as well. Asking about which VR platform they are using – 23.1 percent developers said they are using Rift, Vive is slightly behind with 22 percent developers’ preferences. There is PlayStation VR headset as well with 11.8 percent preferences.
 
  However, despite having such acceptance by the professional game developers, the confidence for the VR games market seems to have dropped a bit – at least the recent survey is showing something like that. Last year, 71.7 percent of the game developers considered VR to be a sustainable long-term market while in this year, it slipped a little with 68.8 percent developers are thinking VR could be a long sustaining gaming market.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## About the European VR game makers and their funding
 
  Funding for the games has always remained one of the prime concerns for the game developers and publishers. You know that it takes large amounts to be invested for the games. When it comes to the funding policies for the European game developers, most of them are covering the entire expenses using their own funds. Take a look at what the survey report has to say about that. Asking about the sources of the fund for the games 57.8 percent said that their funds come from the company’s existing fund while contrary to this, 32.9 percent game developers said that they manage their own fund from their personal accounts.
 
 ![ vr-developer](https://images.wondershare.com/filmora/resource/vr-developer.jpg )
-
-<!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  We know that crowdsourced funding is also a preferable way to manage funds but, this seems not very convenient for the VR game developers since a very poor percentage (5.2) of the developers replied that they are working on games the fund of which is crowdsourced. While some developers consider this as an awful idea, some mentioned this to be a tricky process.
 
@@ -96,10 +84,10 @@ thumbnail: https://thmb.techidaily.com/3fa43d6f71cce068e0819f69e55936ad32ff4ea72
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -127,15 +115,14 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-8-elite-applications-to-extract-mp3-audio/"><u>[New] 2024 Approved 8 Elite Applications to Extract MP3 Audio</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-foundational-approach-to-gradual-volume-adjustment/"><u>[New] 2024 Approved Foundational Approach to Gradual Volume Adjustment</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-marvelous-mac-display-selection-the-best-4k-offerings-for-2024/"><u>[New] Marvelous Mac Display Selection - The Best 4K Offerings for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-mastery-in-muting-facebook-videos-mobilelaptop-for-2024/"><u>[New] Mastery in Muting Facebook Videos (Mobile/Laptop) for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-thorough-investigation-hero4-black-features-for-2024/"><u>[New] Thorough Investigation Hero4 Black Features for 2024</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/come-clonare-la-lettera-di-unita-su-un-disco-diverso-in-windows-1011-guida-pratica/"><u>Come Clonare La Lettera Di Unità Su Un Disco Diverso in Windows 10/11 - Guida Pratica</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-does-the-acer-predator-triton-300-se-stack-up-insider-gaming-laptop-reviews-on-portability-value-and-performance/"><u>How Does the Acer Predator Triton 300 SE Stack Up? – Insider Gaming Laptop Reviews on Portability, Value, and Performance</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-best-vlog-editor-apps-ios-and-android/"><u>New 2024 Approved Best Vlog Editor Apps iOS & Android</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolve-your-windows-10-bluetooth-problems-instantly-simple-solutions-inside/"><u>Resolve Your Windows 10 Bluetooth Problems Instantly – Simple Solutions Inside</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/simple-repair-dealing-with-persistent-outriders-game-crashes/"><u>Simple Repair: Dealing with Persistent Outriders Game Crashes</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-mastering-podcast-beginnings-eye-catching-strategies/"><u>[New] Mastering Podcast Beginnings Eye-Catching Strategies</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-sensory-storytelling-crafting-engaging-food-videos/"><u>[New] Sensory Storytelling Crafting Engaging Food Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-explore-the-10-most-powerful-drawing-tools-on-chrome-os-for-2024/"><u>[Updated] Explore the 10 Most Powerful Drawing Tools on Chrome OS for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-comprehensive-handbook-for-recording-calls/"><u>[Updated] In 2024, The Comprehensive Handbook for Recording Calls</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-professional-tiktok-videos-with-strategic-zoom-use/"><u>[Updated] Professional TikTok Videos with Strategic Zoom Use</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/comparative-guide-dvd-blu-ray-and-digital-files-which-is-worth-buying/"><u>Comparative Guide: DVD, Blu-Ray, and Digital Files - Which Is Worth Buying?</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/essential-tips-for-itunes-video-recording-for-2024/"><u>Essential Tips for iTunes Video Recording for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exclusive-prime-day-offers-get-the-latest-benq-monitor-and-projector-deals/"><u>Exclusive Prime Day Offers: Get the Latest BenQ Monitor & Projector Deals</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-you-when-your-oneplus-ace-2-pro-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your OnePlus Ace 2 Pro is off? | Dr.fone</u></a></li>
 </ul></div>
 
