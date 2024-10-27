@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  How to Remove a Background in Affinity Photo\""
-date: 2024-10-19T09:23:43.167Z
-updated: 2024-10-21T07:31:47.226Z
+date: 2024-10-24T06:19:01.757Z
+updated: 2024-10-27T05:42:26.757Z
 tags: 
   - screen-recording
   - ai video
@@ -42,10 +42,10 @@ Now access the **Pixel Persona** section in the left corner of the software scre
 ![accessing the pixel persona in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-pixel-persona-in-affinity-designer.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and disable **"Lock."** Now right-click on your layer again, and select **"Rasterize"** to enable editing of specific parts of the image.
@@ -57,10 +57,10 @@ Step3 To make a selection around your subject, first enable the **"Snap To Edges
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
@@ -72,16 +72,10 @@ Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** 
 ![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
@@ -115,21 +109,7 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## The Best Alternative of Affinity Photo
 
@@ -138,6 +118,13 @@ Since Affinity Photo is a desktop software available for a one-time purchase of 
 Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
@@ -164,6 +151,13 @@ With advancing technology, you can find different image editing tools online. Ho
 And if you have any interests in finding free images to expand your resource, you can watch this video:
 
 Hopefully, this article and video can help you create ideal images!
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Best Alternative of Affinity Photo
 
@@ -223,17 +217,19 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-ace-the-art-of-game-recordings-in-windows-11/"><u>[New] 2024 Approved Ace the Art of Game Recordings in Windows 11</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-digital-video-conquerors-ultimate-toolkit-list/"><u>[New] 2024 Approved Digital Video Conquerors' Ultimate Toolkit List</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-cured-non-appearance-of-tiny-vid-content-for-2024/"><u>[New] Cured Non-Appearance of Tiny Vid Content for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-top-8-effective-sub-to-srt-converters-for-online-windows-and-mac-for-2024/"><u>[New] Top 8 Effective SUB to SRT Converters for Online, Windows & Mac for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-simplified-srt-transformation-from-ttml-xml-and-ssa/"><u>[Updated] In 2024, Simplified SRT Transformation From TTML, XML & SSA</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-depth-guide-best-audio-techniques-on-windows/"><u>[Updated] In-Depth Guide Best Audio Techniques on Windows</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-turbo-speed-for-snapchat-newcomers-video-edition-for-2024/"><u>[Updated] Turbo Speed for Snapchat Newcomers Video Edition for 2024</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/best-ios-17-compatible-iphone-data-recovery-tools-top-picks-of-2024/"><u>Best iOS 17 Compatible iPhone Data Recovery Tools: Top Picks of 2024</u></a></li>
-<li><a href="https://solve-howtos.techidaily.com/bypassing-windows-11-startup-glitches-a-guide-to-fixing-the-stuck-ready-for-activation-page-with-ease/"><u>Bypassing Windows 11 Startup Glitches: A Guide to Fixing the Stuck 'Ready for Activation' Page with Ease</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-outage-alert-how-to-stay-informed-and-prepared/"><u>FB Outage Alert: How to Stay Informed and Prepared</u></a></li>
-<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Honor 90 Pro | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-weaving-individual-snaps-into-a-cohesive-tapestry/"><u>In 2024, Weaving Individual Snaps Into a Cohesive Tapestry</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-multi-image-instagram-stories-a-step-by-step-tutorial-for-2024/"><u>[New] Mastering Multi-Image Instagram Stories A Step-by-Step Tutorial for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-ultimate-fcp-tutorial-for-new-users/"><u>[New] Ultimate FCP Tutorial for New Users</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-unlocking-premiere-pros-lut-potential/"><u>[Updated] In 2024, Unlocking Premiere Pro's LUT Potential</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-step-by-step-building-time-lapse-shots-on-samsung-gear/"><u>[Updated] Step-by-Step Building Time Lapse Shots on Samsung Gear</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-video-quality-clash-hero-black-vs-nikkor-km-170-for-2024/"><u>[Updated] Video Quality Clash HERO Black vs Nikkor KM-170 for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-mastering-tunes-with-mac-studios/"><u>2024 Approved Mastering Tunes with Mac Studios</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/converting-iso-files-to-dvd-format-on-windows-1087-a-step-by-step-guide/"><u>Converting ISO Files to DVD Format on Windows 10/8/7 - A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-quizzes-a-gateway-for-data-breaches/"><u>Facebook Quizzes: A Gateway for Data Breaches?</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/hard-drive-heroics-customer-success-story-with-stellar/"><u>Hard Drive Heroics: Customer Success Story with Stellar</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-fix-stuck-or-unresponsive-function-fn-keys-on-an-asus-device/"><u>How to Fix Stuck or Unresponsive Function (Fn) Keys on an ASUS Device</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-best-5-pcs-and-monitors-for-ps5-games/"><u>In 2024, Best 5 PCs & Monitors for PS5 Games</u></a></li>
+<li><a href="https://techidaily.com/repair-corrupt-pdf-v20-file-using-pdf-repair-tool-stellar-by-stellar-guide/"><u>Repair Corrupt PDF v2.0 File using PDF Repair Tool | Stellar</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ricohs-theta-sc2-camera-a-360-degree-game-changer/"><u>Ricoh's Theta SC2 Camera – A 360-Degree Game Changer</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-guide-resolving-the-rainbow-six-siege-black-screen-issue-on-your-pc/"><u>Troubleshooting Guide: Resolving the Rainbow Six Siege Black Screen Issue on Your PC</u></a></li>
 </ul></div>
 

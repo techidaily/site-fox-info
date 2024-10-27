@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Elite Selection of Text Motion Packages"
-date: 2024-10-13T21:35:41.113Z
-updated: 2024-10-21T04:40:43.738Z
+date: 2024-10-24T05:20:31.630Z
+updated: 2024-10-27T00:56:15.469Z
 tags: 
   - screen-recording
   - ai video
@@ -39,25 +39,11 @@ You get 110 animated elements that you can apply to the text in your video. The 
 
 ![liquid text animation effect ae](https://images.wondershare.com/filmora/article-images/2022/07/liquid-text-animation-effect-ae.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Dynamic Text Animations
 
 There is always a high demand for dynamic text animations in After Effects. This pack focuses on three types of animations namely bounce, kinetic and overshoot. You get 50 presets, 20 title scenes as well as 10 different typography scenes. You can animate texts, titles, as well as characters. You can even adjust the properties to match your video content as per your requirements. In fact, there are advanced controls available for further customization.
 
 ![dynamic text animations ae](https://images.wondershare.com/filmora/article-images/2022/07/dynamic-text-animations-ae.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Squash & Stretch Preset
 
@@ -66,10 +52,10 @@ If you want to add texts and titles in your video that looks like the games mean
 ![squash stretch preset ae](https://images.wondershare.com/filmora/article-images/2022/07/squash-stretch-preset-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. CounterPro Preset
@@ -79,10 +65,10 @@ In this pack, you will find unique text effects, and you can animate text with k
 ![counterpro preset ae](https://images.wondershare.com/filmora/article-images/2022/07/counterpro-preset-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Text Library
@@ -91,24 +77,38 @@ If there is a must-have preset you should manage to have in After Effects is Tex
 
 ![text library effect ae](https://images.wondershare.com/filmora/article-images/2022/07/text-library-effect-ae.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 7\. Kinetic Text Animation
 
 Kinetic text effect is a part of dynamic text effects and there is a high demand for kinetic text animation. In this pack, you get 56 text animations and all the effects have full HD resolution. The effect will literally transform your video content and help you to get a proper branding on the video. There are different types of animations available and you videos will not look boring by any chance.
 
 ![kinetic text aniamtion ae](https://images.wondershare.com/filmora/article-images/2022/07/kinetic-text-aniamtion-ae.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 8\. Text Animation Lower Third
 
 You get eleven styles of elements in the pack, and you can customize the designs to get into any size as per your requirements. You get the elements in HD and Full HD resolution, and you can use them in the intro or outro of the video to show text and title credits. You can also use them to show quotes or keywords. Most of them have highlighted background, and technically, they are referred to as lower thirds.
 
 ![text animation lower thirds ae](https://images.wondershare.com/filmora/article-images/2022/07/text-animation-lower-thirds-ae.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -144,24 +144,19 @@ As the saying goes, the more the merrier and the more presets you have, the more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-20plus-artistic-assembly-ideas-for-a-brighter-yard-for-2024/"><u>[New] 20+ Artistic Assembly Ideas for a Brighter Yard for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-speech-transcription-made-simple-utilizing-text-conversion-functionality-of-ms-word/"><u>[New] 2024 Approved Speech Transcription Made Simple Utilizing Text Conversion Functionality of MS Word</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-capture-chatter-the-new-iphone-2024-feature/"><u>[New] Capture Chatter The New iPhone 2024 Feature</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-escaping-reality-top-10-games-like-gta-v-but-not/"><u>[New] Escaping Reality - Top 10 Games Like GTA V (But Not)</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-from-drafts-to-masterpieces-top-10-essential-graphic-design-tools-for-2024/"><u>[New] From Drafts to Masterpieces Top 10 Essential Graphic Design Tools for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-in-depth-minecraft-gameplay-recording-strategies/"><u>[New] In 2024, In-Depth Minecraft Gameplay Recording Strategies</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-mastering-podcast-title-craft-the-essential-handbook/"><u>[New] Mastering Podcast Title Craft The Essential Handbook</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-transformative-visual-experiences-with-tiktok-enhancements/"><u>[New] Transformative Visual Experiences with TikTok Enhancements</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-chord-and-frame-producing-video-tracks-with-iphones/"><u>[Updated] Chord and Frame Producing Video Tracks with iPhones</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-transform-your-content-expert-techniques-for-facebook-lives/"><u>[Updated] In 2024, Transform Your Content Expert Techniques for Facebook Lives</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-utilizing-no-cost-countdown-efficient-time-management/"><u>[Updated] In 2024, Utilizing No-Cost Countdown Efficient Time Management</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-intelligent-digital-diary-with-mematic-services-for-2024/"><u>[Updated] Intelligent Digital Diary with Mematic Services for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/become-a-9gag-meme-connoisseur-with-these-simple-steps/"><u>Become a 9GAG Meme Connoisseur with These Simple Steps</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/busting-the-biggest-misconceptions-the-true-story-of-top-9-artificial-intelligence-chatbots/"><u>Busting the Biggest Misconceptions: The True Story of Top 9 Artificial Intelligence Chatbots</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on OnePlus 11 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-era-for-sony-blu-ray-player-s6700/"><u>New Era for Sony Blu-Ray Player S6700</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-pictures-from-infinix-gt-10-pro-by-fonelab-android-recover-pictures/"><u>Possible solutions to restore deleted pictures from Infinix GT 10 Pro.</u></a></li>
-<li><a href="https://fox-where.techidaily.com/understanding-flipbuilders-share-buttons-a-comprehensive-guide/"><u>Understanding FlipBuilder's Share Buttons – A Comprehensive Guide</u></a></li>
-<li><a href="https://fox-info.techidaily.com/win11s-zenith-achieved-with-advanced-zoom-usage/"><u>Win11's Zenith Achieved with Advanced Zoom Usage</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-best-8-free-4k-uhd-video-player-software-for-windows-pcandmac/"><u>[New] Best 8 Free 4K UHD Video Player Software for Windows PC&Mac</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-achieving-sharper-screen-focus-zooming-tips-for-google-meet/"><u>[New] In 2024, Achieving Sharper Screen Focus Zooming Tips for Google Meet</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-the-digital-dimension-state-of-the-art-vr/"><u>[New] In 2024, The Digital Dimension State-of-the-Art VR</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-maximize-space-with-iphone-images-scaling/"><u>[New] Maximize Space with iPhone Images Scaling</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-unveiling-the-simplest-tone-adjustments-in-pubg-for-2024/"><u>[Updated] Unveiling the Simplest Tone Adjustments in PUBG for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-top-11-brain-boosting-trivia-shows-for-24/"><u>2024 Approved Top 11 Brain-Boosting Trivia Shows for '24</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/recording-equipment-for-creating-youtube-masterpieces-for-2024/"><u>Best Recording Equipment For Creating YouTube Masterpieces for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-honor-90-lite-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Honor 90 Lite Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Motorola Moto E13 | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-binge-worthy-banquet-these-15-unmissable-tiktok-cooking-and-baking-challenges/"><u>In 2024, Binge-Worthy Banquet These 15 Unmissable TikTok Cooking and Baking Challenges</u></a></li>
+<li><a href="https://win-able.techidaily.com/step-by-step-guide-to-fixing-adobe-startup-error-0xc0000022/"><u>Step-by-Step Guide to Fixing Adobe Startup Error: 0Xc0000022</u></a></li>
+<li><a href="https://fox-info.techidaily.com/transforming-images-with-complete-understanding-of-facetune/"><u>Transforming Images with Complete Understanding of Facetune</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-shaping-your-sound-strategies-for-modifying-your-speaking-voice-for-2024/"><u>Updated Shaping Your Sound Strategies for Modifying Your Speaking Voice for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/visionary-chip-uninterrupted-editing-on-the-newest-tech-for-2024/"><u>Visionary Chip Uninterrupted Editing on the Newest Tech for 2024</u></a></li>
 </ul></div>
 

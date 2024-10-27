@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Revamping Your Windows 11 Photo Viewer  Add Filters and Background Music for 2024\""
-date: 2024-09-12T23:34:40.664Z
-updated: 2024-09-16T22:08:08.383Z
+date: 2024-10-23T06:45:00.252Z
+updated: 2024-10-26T20:44:56.518Z
 tags: 
   - screen-recording
   - ai video
@@ -58,6 +58,13 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 **Step 5**: Just select one you like. Preview it and then click Done.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to add music on Windows 10 Photos App
 
 Now that you have learnt how to **_add filters using Windows 10 Photos app._** Do you think there is any possibility regarding adding music over it? Adding music to your video would make it more enjoyable. The artificial intelligence feature on Windows 10 Photos app helps it add music to videos with a single click. It’s easy to do, but meanwhile there will be some twitches to the way artificial intelligence videos show up as you try to match the volume and tempo of the music. But, you can do it with the help of default Microsoft tools.
@@ -70,11 +77,32 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 5**: Hit the ‘Done’ button.
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -105,12 +133,21 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-excellent-record-maker-chromebook-edition/"><u>[New] Excellent Record Maker Chromebook Edition</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-inside-the-action-camera-revolution-a-yi-4k-journey/"><u>[New] In 2024, Inside the Action Camera Revolution A Yi 4K Journey</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-podcast-promotion-unlocked-the-seo-guide-to-top-spotings/"><u>[New] In 2024, Podcast Promotion Unlocked The SEO Guide to Top Spotings</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-unleash-your-photo-potential-with-instagram-filters/"><u>[New] Unleash Your Photo Potential with Instagram Filters</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-optimizing-media-experience-best-windows-phone-videos/"><u>[Updated] 2024 Approved Optimizing Media Experience Best Windows Phone Videos</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chrome-upgrade-easier-and-faster-prompting-for-chatgpt-made-possible/"><u>Chrome Upgrade: Easier and Faster Prompting for ChatGPT Made Possible</u></a></li>
+<li><a href="https://blog-min.techidaily.com/converti-file-wma-in-formato-flac-online-e-gratuito-con-movavi/"><u>Converti File WMA in Formato FLAC Online E Gratuito Con Movavi</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/does-chatgpt-offer-tutorials-for-creating-delicious-and-health-conscious-meals-at-home/"><u>Does ChatGPT Offer Tutorials for Creating Delicious and Health-Conscious Meals at Home?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/essential-strategies-for-successful-zoom-meetings-using-win10/"><u>Essential Strategies for Successful Zoom Meetings Using WIN10</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/in-2024-transform-your-job-search-with-these-4-top-video-resume-makers-free/"><u>In 2024, Transform Your Job Search with These 4 Top Video Resume Makers Free</u></a></li>
+<li><a href="https://fox-info.techidaily.com/securing-a-spotlight-with-zoom-and-fb-live-integration-for-2024/"><u>Securing a Spotlight with ZOOM & FB Live Integration for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-and-solving-pc-malfunctions-during-resident-evil-village-gameplay/"><u>Troubleshooting and Solving PC Malfunctions During Resident Evil Village Gameplay</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/ultimate-motivation-playlist-compilation/"><u>Ultimate Motivation Playlist Compilation</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-unleash-your-creativity-3-simple-video-game-recording-tools-for-2024/"><u>Updated Unleash Your Creativity 3 Simple Video Game Recording Tools for 2024</u></a></li>
+</ul></div>
 

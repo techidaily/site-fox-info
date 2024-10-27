@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Spectral Synergy  Using Color Theories Effectively\""
-date: 2024-10-15T02:31:25.783Z
-updated: 2024-10-21T08:58:55.326Z
+date: 2024-10-26T06:28:55.970Z
+updated: 2024-10-27T07:12:16.972Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,13 @@ Color theory consists of many elements that could fill a library on its own but 
 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Color Wheel
 
 Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this
@@ -47,13 +54,6 @@ So now we know how the wheel is made and what it looks like. What does it do? We
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
 These colors always work as they create contrast and stability.
@@ -62,13 +62,6 @@ The blue lines represent what is known as split contrasting colors and these wil
 
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## But How Do I Use This
 
 You may still be unsure as to how to implement color theory into your videos. Let's look at some scenarios that color theory may help your creations.
@@ -76,10 +69,10 @@ You may still be unsure as to how to implement color theory into your videos. Le
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
@@ -88,13 +81,20 @@ As you can see from this example the base color for the scene is a dark blue/pur
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -131,24 +131,19 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-breakthrough-tactics-for-capturing-virtual-conferences/"><u>[New] 2024 Approved Breakthrough Tactics for Capturing Virtual Conferences</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-draft-distinctive-visual-identities-from-templates-for-free/"><u>[New] 2024 Approved Draft Distinctive Visual Identities From Templates for Free</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-ultimate-tutorial-on-permanently-removing-your-instagram-profile/"><u>[New] 2024 Approved The Ultimate Tutorial on Permanently Removing Your Instagram Profile</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-top-10-christian-melodies-download-and-personalize-guide/"><u>[New] In 2024, Top 10 Christian Melodies Download & Personalize Guide</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-boost-your-meeting-management-syncing-zoom-with-gmail-emails/"><u>[Updated] 2024 Approved Boost Your Meeting Management Syncing Zoom with Gmail Emails</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-three-budget-friendly-solutions-incorporating-sound-into-your-iphone-videos/"><u>[Updated] 2024 Approved Three Budget-Friendly Solutions Incorporating Sound Into Your iPhone Videos</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-deciphering-disguised-dialogues-with-youtube-viewers/"><u>[Updated] Deciphering Disguised Dialogues with YouTube Viewers</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-become-a-design-pro-expertise-in-bypassing-backgrounds-with-canva/"><u>[Updated] In 2024, Become a Design Pro Expertise in Bypassing Backgrounds with Canva</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-quick-and-easy-steps-for-photos-in-your-instagram-gallery/"><u>[Updated] Quick and Easy Steps for Photos in Your Instagram Gallery</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-android-trick-changing-media-order-sequence/"><u>2024 Approved Android Trick Changing Media Order Sequence</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-efficiently-conducting-virtual-meetings-via-zoom-in-win10/"><u>2024 Approved Efficiently Conducting Virtual Meetings via Zoom in Win10</u></a></li>
-<li><a href="https://win-dash.techidaily.com/compatible-sm-bus-controller-software-upgrades-for-all-windows-users-11-10-8-and-7/"><u>Compatible SM Bus Controller Software Upgrades for All Windows Users: 11, 10, 8 & 7</u></a></li>
-<li><a href="https://fox-info.techidaily.com/essential-fps-for-pristine-slow-motion-film-quality/"><u>Essential FPS for Pristine Slow-Motion Film Quality</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-becoming-an-illustration-maestro-best-mac-free-tools/"><u>In 2024, Becoming an Illustration Maestro - Best Mac Free Tools</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-essential-list-for-game-sharing-and-streaming/"><u>In 2024, Essential List for Game Sharing and Streaming</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-xiaomi-redmi-12-5g-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Xiaomi Redmi 12 5G without Him Knowing | Dr.fone</u></a></li>
-<li><a href="https://win-comparisons.techidaily.com/step-by-step-guide-moving-windows-installation-from-pc-to-virtualization-software/"><u>Step-by-Step Guide: Moving Windows Installation From PC to Virtualization Software</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-10-microsoft-enterprise-solutions-for-ios-2022-best-picks/"><u>Top 10 Microsoft Enterprise Solutions for iOS - 2022 Best Picks</u></a></li>
-<li><a href="https://win-studio.techidaily.com/ultimate-pdf-text-marker-effortlessly-annotate-and-emphasize-words-within-your-pdfs/"><u>Ultimate PDF Text Marker: Effortlessly Annotate and Emphasize Words Within Your PDFs</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-most-compelling-5-ios-podcast-solutions/"><u>[New] In 2024, Most Compelling 5 iOS Podcast Solutions</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-photopea-guide-to-clean-image-canvases/"><u>[New] In 2024, Photopea Guide to Clean Image Canvases</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-master-the-sphere-ultimate-guide-to-live-broadcast-cameras/"><u>[New] Master the Sphere Ultimate Guide to Live Broadcast Cameras</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-exclusive-deals-on-superior-quality-economical-asmr-mics/"><u>[Updated] Exclusive Deals on Superior-Quality, Economical ASMR Mics</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-spotlight-on-snapchat-a-step-by-step-guide/"><u>[Updated] In 2024, Spotlight on Snapchat A Step-by-Step Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-going-from-end-to-start-the-instagram-video-technique/"><u>2024 Approved Going From End to Start The Instagram Video Technique</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-nolimitcapture-professional-win11-screen-recorders/"><u>2024 Approved NoLimitCapture - Professional Win11 Screen Recorders</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/comprehensive-guide-accessing-downloads-of-user-guides-for-all-iphone-models/"><u>Comprehensive Guide: Accessing Downloads of User Guides for All iPhone Models</u></a></li>
+<li><a href="https://fox-info.techidaily.com/guide-maximizing-apple-podcast-listing-chances-for-2024/"><u>Guide Maximizing Apple Podcast Listing Chances for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-evaluating-virtual-realms-pros-and-cons/"><u>In 2024, Evaluating Virtual Realms Pros and Cons</u></a></li>
+<li><a href="https://win-blog.techidaily.com/nvidia-overlay-malfunction-heres-how-you-can-get-it-running-again/"><u>Nvidia Overlay Malfunction? Here's How You Can Get It Running Again</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/personalized-visuals-a-complete-user-imagery-guide-on-discord-for-2024/"><u>Personalized Visuals A Complete User Imagery Guide on Discord for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ltimate-gif-making-software-showdown-for-2024/"><u>The Ultimate GIF Making Software Showdown for 2024</u></a></li>
 </ul></div>
 

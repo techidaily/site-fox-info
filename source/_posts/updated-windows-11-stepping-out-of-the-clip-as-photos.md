@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Windows 11  Stepping Out of the Clip as Photos\""
-date: 2024-10-15T08:48:17.089Z
-updated: 2024-10-20T20:43:26.899Z
+date: 2024-10-23T03:51:38.808Z
+updated: 2024-10-26T19:01:38.586Z
 tags: 
   - screen-recording
   - ai video
@@ -63,39 +63,46 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Why I can’t save photo from video
 
 In case, you are not able to save photos from video on Windows 10 Photos App. There might be issues with an outdated [Microsoft OS patch update](https://support.microsoft.com/en-us/help/311047/how-to-keep-your-windows-computer-up-to-date) or the Microsoft account is having any problem. But, you don’t have to worry about the same.
 
 We are explaining the solutions here –
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
 
@@ -110,21 +117,14 @@ Here comes the guide –
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -157,20 +157,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-detailed-breakdown-of-camstudio-screencapture-pro/"><u>[New] Detailed Breakdown of CamStudio ScreenCapture Pro</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-glow-innovations-outshining-videos-through-design-for-2024/"><u>[New] Glow Innovations Outshining Videos Through Design for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-zipping-to-captions-direct-method-for-srt-file-creation/"><u>[New] In 2024, Zipping to Captions Direct Method for .Srt File Creation</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-premier-ai-for-stunning-photo-creation/"><u>[New] Premier AI for Stunning Photo Creation</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-effective-sales-strategies-uncovered/"><u>[Updated] 2024 Approved Effective Sales Strategies Uncovered</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-boost-creativity-and-engagement-10-best-sources-of-free-slide-show-patterns/"><u>[Updated] Boost Creativity and Engagement - 10 Best Sources of Free Slide Show Patterns</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-see-your-subscribers-on-youtube-in-2024/"><u>[Updated] How to See Your Subscribers on YouTube, In 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-deep-dive-into-acid-pro-functionality-and-alternatives/"><u>[Updated] In 2024, Deep Dive Into ACID Pro Functionality & Alternatives</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-the-3-essential-voice-logging-tactics-for-ipad/"><u>2024 Approved The 3 Essential Voice Logging Tactics for iPad</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/balancing-act-reducing-excessive-background-load/"><u>Balancing Act: Reducing Excessive Background Load</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-expert-techniques-for-smooth-screen-casting/"><u>In 2024, Expert Techniques for Smooth Screen Casting</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-apple-iphone-se-for-mobile-legends-drfone-by-drfone-virtual-ios/"><u>In 2024, How To Fake GPS On Apple iPhone SE For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-navigate-the-sea-of-stunning-pexels-imagery-with-ease/"><u>In 2024, Navigate the Sea of Stunning Pexels Imagery with Ease</u></a></li>
-<li><a href="https://fox-info.techidaily.com/samsung-ue590-masterclass-cutting-edge-gaming-display/"><u>Samsung UE590 Masterclass Cutting-Edge Gaming Display</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-from-pro-to-max-the-transformative-journey-of-apples-macbook-chips/"><u>[New] 2024 Approved From Pro to Max The Transformative Journey of Apple’s MacBook Chips</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-insights-into-instagram-an-in-depth-analysis-guide-for-professionals/"><u>[New] 2024 Approved Insights Into Instagram An In-Depth Analysis Guide for Professionals</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-recollection-runway-your-easy-path-to-story-archives/"><u>[New] 2024 Approved Recollection Runway Your Easy Path to Story Archives</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-bridging-the-gap-how-to-successfully-export-srt-from-premiere-for-2024/"><u>[New] Bridging the Gap How to Successfully Export SRT From Premiere for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-comparing-vlc-and-mx-player-for-2024/"><u>[New] Comparing VLC and MX Player for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-livemedia-app-assessment-guide/"><u>[New] LiveMedia App Assessment Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-the-path-to-effective-marketing-best-practices-for-health-promos/"><u>[New] The Path to Effective Marketing Best Practices for Health Promos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-a-deep-dive-into-top-10-streaming-platforms-compared/"><u>[Updated] A Deep Dive Into Top 10 Streaming Platforms Compared</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-mastering-video-recording-and-editing-with-adobe-connect/"><u>[Updated] Mastering Video Recording & Editing with Adobe Connect</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-videos-from-x6-pro-by-fonelab-android-recover-video/"><u>Easy steps to recover deleted videos from X6 Pro</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Vivo X Fold 2 | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/innovative-tools-to-craft-top-titles-for-2024/"><u>Innovative Tools to Craft Top Titles for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/seamless-streaming-smarter-storing-top-51-exclusive-android-mobile-video-trimming-software/"><u>Seamless Streaming, Smarter Storing Top 51 Exclusive Android Mobile Video Trimming Software</u></a></li>
+<li><a href="https://fox-info.techidaily.com/swift-windows-checkup-guide-explanatory-for-2024/"><u>Swift Windows Checkup Guide Explanatory for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unveiling-the-reality-essential-elements-to-assess-before-becoming-a-prompt-engineer/"><u>Unveiling the Reality: Essential Elements to Assess Before Becoming a Prompt Engineer</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-realme-c55-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Realme C55 | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Capture and Save Video Images on Windows 11"
-date: 2024-10-19T09:59:08.079Z
-updated: 2024-10-21T10:47:48.945Z
+date: 2024-10-22T17:37:37.581Z
+updated: 2024-10-27T02:43:40.269Z
 tags: 
   - screen-recording
   - ai video
@@ -73,16 +73,16 @@ We are explaining the solutions here –
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
 
@@ -97,26 +97,26 @@ Here comes the guide –
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
 <!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -126,16 +126,16 @@ We provided you some knowledge on how to save a photo from video Windows 10 Phot
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -163,16 +163,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-fast-track-to-zooming-proficiency/"><u>[New] 2024 Approved The Fast Track to Zooming Proficiency</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-guardians-of-the-most-watched-youtube-edition-for-2024/"><u>[Updated] Guardians of the Most Watched YouTube Edition for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-the-ultimate-checklist-for-smooth-transitions/"><u>[Updated] The Ultimate Checklist for Smooth Transitions</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-transformative-podcast-branding-through-logo-artistry-for-2024/"><u>[Updated] Transformative Podcast Branding Through Logo Artistry for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/comprehensive-3d-lut-development-course/"><u>Comprehensive 3D LUT Development Course</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-elevating-effects-a-tiktok-guide/"><u>In 2024, Elevating Effects A TikTok Guide</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-xiaomi-redmi-note-13-pro-5g-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Xiaomi Redmi Note 13 Pro 5G to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Vivo Y78t? | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/must-have-exercise-record-keeping-apps-for-trainers-and-athletes/"><u>Must-Have Exercise Record Keeping Apps for Trainers & Athletes</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/restoring-sound-linkage-in-obs-broadcasts/"><u>Restoring Sound Linkage in OBS Broadcasts</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/the-filmmakers-handbook-for-uav-operations/"><u>The Filmmaker's Handbook for UAV Operations</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-pivotal-video-moments-secrets-to-stellar-text-enhancements/"><u>[New] 2024 Approved Pivotal Video Moments Secrets to Stellar Text Enhancements</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-advanced-techniques-in-zoom-sessions-capture/"><u>[New] Advanced Techniques in Zoom Sessions Capture</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-leveraging-video-production-microsofts-movie-maker-for-windows-11/"><u>[New] Leveraging Video Production Microsoft's Movie Maker for Windows 11</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-slide-show-must-haves-for-iphone-models-787-pro-max/"><u>[New] Slide Show Must-Haves for iPhone Models 7/8/7 Pro Max</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-essential-insights-best-instagram-editors-for-mobile-and-pc/"><u>[Updated] 2024 Approved Essential Insights Best Instagram Editors for Mobile and PC</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-streamlining-your-watch-time-on-instagram-mobiledesktop/"><u>[Updated] 2024 Approved Streamlining Your Watch Time on Instagram (Mobile/Desktop)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-the-roadmap-for-visual-impact-professionals/"><u>[Updated] 2024 Approved The Roadmap for Visual Impact Professionals</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-crafting-professional-images-using-photoshops-powerful-luts-for-2024/"><u>[Updated] Crafting Professional Images Using Photoshop's Powerful LUTs for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-laughter-and-tears-on-insta-the-ultimate-meme-page-list-for-2024/"><u>[Updated] Laughter & Tears on Insta The Ultimate Meme Page List for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-smooth-insertion-of-videos-into-your-custom-youtube-shelves/"><u>2024 Approved Smooth Insertion of Videos Into Your Custom YouTube Shelves</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-voice-record-hacks-3-ways-to-get-it-right-on-ipad/"><u>2024 Approved Voice Record Hacks 3 Ways to Get It Right on iPad</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-m54-5g-phone-without-pin-by-drfone-android/"><u>How to Unlock Samsung Galaxy M54 5G Phone without PIN</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-asus-proart-pa32u-review-4k-hdr-professional-monitor-review/"><u>In 2024, ASUS ProArt PA32U Review 4K HDR Professional Monitor Review</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Infinix Smart 8 HD? | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-time-saving-strategies-for-srt-to-text-file-changes/"><u>In 2024, Time-Saving Strategies for SRT to Text File Changes</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-guide-recording-high-quality-wav-audio-on-windows-11/"><u>Step-by-Step Guide: Recording High-Quality WAV Audio on Windows 11</u></a></li>
+<li><a href="https://fox-info.techidaily.com/transforming-your-single-picture-into-video-magic-with-pixiz-for-2024/"><u>Transforming Your Single Picture Into Video Magic with Pixiz for 2024</u></a></li>
 </ul></div>
 
