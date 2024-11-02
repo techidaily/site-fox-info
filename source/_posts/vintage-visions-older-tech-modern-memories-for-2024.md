@@ -1,7 +1,7 @@
 ---
 title: "\"Vintage Visions  Older Tech, Modern Memories for 2024\""
-date: 2024-10-19T19:27:14.774Z
-updated: 2024-10-27T01:15:53.549Z
+date: 2024-11-01T02:56:00.678Z
+updated: 2024-11-01T17:40:00.905Z
 tags: 
   - screen-recording
   - ai video
@@ -51,10 +51,10 @@ However, the Portrait Mode is only featured on iOS 10.1 or some more recent vers
 ![portrait-mode-iphone](https://images.wondershare.com/filmora/article-images/portrait-mode-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Image resource: 9to5mac
@@ -67,6 +67,19 @@ The iPhone X can also take Portrait selfies thanks to the TrueDepth front camera
 
 ![portrait-mode-selfie-iphone-x](https://images.wondershare.com/filmora/article-images/portrait-mode-selfie-iphone-x.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Image resource: imore
 
 Launch the Camera app, and swipe to the Portrait option, and then tap on the Camera Swap feature to start using the front camera on your iPhone. Find the Portrait Lightning feature in the camera's Portrait mode, then select one of the options provided by the Portrait Lightning such as Studio Light or Natural light, and proceed to snap a selfie by tapping on the shutter button.
@@ -74,16 +87,10 @@ Launch the Camera app, and swipe to the Portrait option, and then tap on the Cam
 If there is not enough light or if you are too far away from the camera, the app will show messages that remind you to add more light to your shot or hold the camera closer to the subject of the photo. It is worth noting that the app will not let you take a photo until you do everything that messages on the screen demand from you. However, the Portrait Mode doesn't allow you to take several photos at once, but it still produces amazing pictures that can be easily shared on social media.
 
 <!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### For iPhone 8, 7 or older iPhones users
@@ -106,6 +113,13 @@ Older iPhone models may not have a twin-lens system, but with the aid of a camer
 
 ![iwatermark-watermark-photos](https://images.wondershare.com/filmora/article-images/iwatermark-watermark-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Advertised as the best depth-of-field app for iPhones on the market today, Tadaa SLR sets high photography standards. To make things even better, the app is so easy to use that you just need to set the focal point of the photo and tap on the shutter button to snap a photo. However, Tadaa SLR is only a camera app that doesn't offer a lot of photo editing options.
 
 #### [Bokeh Lens](https://itunes.apple.com/us/app/bokeh-lens/id587849880?mt=8)
@@ -115,13 +129,6 @@ Advertised as the best depth-of-field app for iPhones on the market today, Tadaa
 **Compatible with:** iOS 8.0 or later
 
 ![signature-photo-annotator](https://images.wondershare.com/filmora/article-images/signature-photo-annotator.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The term Bokeh comes from the Japanese language and it represents the aesthetic quality of the out of focus parts of photos. The Bokeh Lens app is designed to make the process of creating a shallow depth of field as fast and fun as it can be. The app lets you fine-tune the level of bokeh you are creating a photo, while it also allows you to select the areas you want to keep in focus.
 
@@ -136,13 +143,6 @@ The term Bokeh comes from the Japanese language and it represents the aesthetic 
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -169,21 +169,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-ecstatic-clip-loader-rating/"><u>[New] 2024 Approved Ecstatic Clip Loader Rating</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-best-action-gear-selecting-the-top-15-cameras-for-2024/"><u>[New] Best Action Gear Selecting the Top 15 Cameras for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-ultimate-vr-showdown-scoring-the-best-oculus-models/"><u>[New] In 2024, Ultimate VR Showdown Scoring the Best Oculus Models</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-unleashing-audio-pleasure-your-iphones-podcast-potential/"><u>[New] In 2024, Unleashing Audio Pleasure - Your iPhone’s Podcast Potential</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-understanding-du-recorder-through-this-guide/"><u>[New] Understanding Du Recorder Through This Guide</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-masterful-asmr-methods-by-leading-talents/"><u>[Updated] 2024 Approved Masterful ASMR Methods by Leading Talents</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-sizzling-tweetstorms-americas-favorites/"><u>[Updated] In 2024, Sizzling Tweetstorms America's Favorites</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-haunting-hilarity-hub/"><u>2024 Approved Haunting Hilarity Hub</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-videos-that-vibe-a-novices-roadmap-on-a-mac-and-youtube/"><u>2024 Approved Videos That Vibe A Novice's Roadmap on a Mac and YouTube</u></a></li>
-<li><a href="https://win-alternatives.techidaily.com/comprehensive-full-system-backup-tutorial-for-various-windows-versions/"><u>Comprehensive Full System Backup Tutorial for Various Windows Versions</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/effective-strategies-for-twitter-marketing-for-2024/"><u>Effective Strategies for Twitter Marketing for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/fabricating-temporal-anomaly-illusions/"><u>Fabricating Temporal Anomaly Illusions</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-mastering-media-marketing-essential-ig-video-editors/"><u>In 2024, Mastering Media Marketing Essential IG Video Editors</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-revolutionizing-education-through-vr/"><u>In 2024, Revolutionizing Education Through VR</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-unparalleled-harmony-collector-android-based/"><u>In 2024, Unparalleled Harmony Collector, Android-Based</u></a></li>
-<li><a href="https://fox-that.techidaily.com/mastering-iphone-troubleshooting-with-help-from-apples-dedicated-support-app/"><u>Mastering iPhone Troubleshooting with Help From Apple's Dedicated Support App</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-essential-list-premier-online-church-service-sites/"><u>[New] 2024 Approved Essential List Premier Online Church Service Sites</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-acquiring-fcp-for-zip-legal-strategies-explained/"><u>[New] Acquiring FCP for Zip Legal Strategies Explained</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-elevate-your-videography-with-top-instagram-techniques-for-2024/"><u>[New] Elevate Your Videography with Top Instagram Techniques for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-best-5-rapid-setup-techniques-for-home-cinematography/"><u>[New] In 2024, Best 5 Rapid Setup Techniques for Home Cinematography</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-free-fire-techniques-for-shifting-your-characters-voice-effectively/"><u>[New] In 2024, Free Fire Techniques for Shifting Your Character's Voice Effectively</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-speedy-methods-for-shuffling-youtube-lists-on-devices/"><u>[New] Speedy Methods for Shuffling YouTube Lists on Devices</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-channel-creation-chronicles-the-ultimate-beauty-blogging-start-up/"><u>[Updated] 2024 Approved Channel Creation Chronicles The Ultimate Beauty Blogging Start-Up</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-streamline-your-twitter-videos-with-pro-convertors/"><u>[Updated] 2024 Approved Streamline Your Twitter Videos with Pro Convertors</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-revised-question-series-to-connect-with-podcast-audience-for-2024/"><u>[Updated] Revised Question Series to Connect with Podcast Audience for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-visionaries-at-work-a-detailed-review-of-top-3d-modeling-programs/"><u>[Updated] Visionaries at Work A Detailed Review of Top 3D Modeling Programs</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-peculiar-pratfalls-memes-tailored-for-the-perfect-moment/"><u>2024 Approved Peculiar Pratfalls Memes Tailored for the Perfect Moment</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-activation-lock-on-apple-iphone-12-mini-or-ipad-by-drfone-ios/"><u>How to Bypass Activation Lock on Apple iPhone 12 mini or iPad?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-nokia-c12-plus-phone-forgot-password-by-drfone-android-unlock-android-unlock/"><u>How to Unlock Nokia C12 Plus Phone Forgot Password</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-effortless-gif-to-video-conversion-best-5-top-online-services/"><u>In 2024, Effortless GIF-to-Video Conversion Best 5 Top Online Services</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-precise-age-settings-the-essential-guide-for-tiktok-profiles/"><u>In 2024, Precise Age Settings The Essential Guide for TikTok Profiles</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-sonys-vision-for-immersive-video-exploring-xperia-xz-premium/"><u>In 2024, Sony's Vision for Immersive Video Exploring Xperia XZ Premium</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-the-compact-powerhouse-in-flight-dji-sparks-guide-to-aerial-selfies/"><u>In 2024, The Compact Powerhouse in Flight DJI Spark's Guide to Aerial Selfies</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/metaverse-advertising-insights-and-tactics/"><u>Metaverse Advertising Insights & Tactics</u></a></li>
+<li><a href="https://fox-info.techidaily.com/tempo-treasure-hunters-dive-into-free-online-scanners/"><u>Tempo Treasure Hunters Dive Into FREE Online Scanners</u></a></li>
 </ul></div>
 

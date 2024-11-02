@@ -1,7 +1,7 @@
 ---
 title: "\"Snapshot Sharpening - Affinity's Bg Exclusion for 2024\""
-date: 2024-10-19T18:58:29.036Z
-updated: 2024-10-26T23:49:04.634Z
+date: 2024-10-30T02:30:12.353Z
+updated: 2024-11-01T16:35:19.442Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,13 @@ Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and 
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
@@ -57,16 +64,16 @@ Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** 
 
 ![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
 
 Now, hit **"Control+D"** to deselect the selection. Alternatively, you can click **"Select"** in the top toolbar and choose the **"Deselect"** option. Finally, you can export your file using the **"File" > "Export"** option.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Remove a Busy Background in Affinity Designer
 
@@ -95,27 +102,7 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## The Best Alternative of Affinity Photo
 
@@ -126,10 +113,10 @@ Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.co
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
@@ -166,6 +153,13 @@ Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.co
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
 * Offline and online image editing tools.
@@ -183,16 +177,10 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -229,17 +217,24 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-skills.techidaily.com/new-mastering-video-broadcasts-wirecast-and-its-allies/"><u>[New] Mastering Video Broadcasts Wirecast and Its Allies</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-ultimate-guide-to-slomo-videography-app-review-update-for-2024/"><u>[New] Ultimate Guide to SloMo Videography App Review Update for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-leading-5-drones-the-ultimate-professional-buy-guide/"><u>[Updated] 2024 Approved Leading 5 Drones - The Ultimate Professional Buy Guide</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-digital-draw-dance-windows-and-mac-cartoony-creators-guide/"><u>[Updated] In 2024, Digital Draw-Dance Windows & Mac Cartoony Creator's Guide</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-the-ultimate-blueprint-for-tiktok-media-transfer/"><u>2024 Approved The Ultimate Blueprint for TikTok Media Transfer</u></a></li>
-<li><a href="https://fox-info.techidaily.com/edit-like-a-pro-with-top-android-apps/"><u>Edit Like a Pro with Top Android Apps</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/effortless-conversion-guide-changing-mkv-files-into-mov-to-play-on-apple-products-and-itunes-easily/"><u>Effortless Conversion Guide: Changing MKV Files Into MOV to Play on Apple Products & iTunes Easily</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/expand-your-workspace-connecting-two-displays-to-your-m3-macbook-pro-the-new-equalizer-with-the-macbook-air/"><u>Expand Your Workspace: Connecting Two Displays to Your M3 MacBook Pro - The New Equalizer with the MacBook Air!</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Infinix Smart 8 Plus? | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-preservation-in-audio-how-ffmpeg-handles-originality/"><u>In 2024, Preservation in Audio How FFmpeg Handles Originality</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/keeping-intel-gpus-updated-on-windows-platform/"><u>Keeping Intel GPUs Updated on Windows Platform</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/winning-the-battle-against-windows-10-bluetooth-driver-troubles-final-solution/"><u>Winning the Battle Against Windows 10 Bluetooth Driver Troubles [FINAL SOLUTION]</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-easily-share-your-camera-roll-in-a-snap-tips-and-tricks-for-2024/"><u>[Updated] Easily Share Your Camera Roll in a Snap - Tips & Tricks for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2022s-speed-demon-olympic-crossers-greatest-hits-for-2024/"><u>2022'S Speed Demon Olympic Crossers' Greatest Hits for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-basics-of-kinetic-illustration-mastery/"><u>2024 Approved Basics of Kinetic Illustration Mastery</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-closing-the-distance-zoom-in-for-a-clearer-picture/"><u>2024 Approved Closing the Distance Zoom in for a Clearer Picture</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-explore-visionary-typography-the-ultimate-list-of-9-websites-offering-intricate-3d-letters/"><u>2024 Approved Explore Visionary Typography The Ultimate List of 9 Websites Offering Intricate 3D Letters</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-from-amateurs-to-artists-the-complete-polarr-editor-journey/"><u>2024 Approved From Amateurs to Artists The Complete Polarr Editor Journey</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-number-1-in-the-8th-digital-image-blend-platform/"><u>2024 Approved Number 1 in the 8Th Digital Image Blend Platform</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-the-breakthrough-of-intova-x-in-action-camera-tech/"><u>2024 Approved The Breakthrough of Intova X in Action Camera Tech</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-vivavideo-unpacked-a-comprehensive-overview/"><u>2024 Approved VivaVideo Unpacked A Comprehensive Overview</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-tecno-pop-7-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Tecno Pop 7 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/affordable-aaa-gaming-websites-and-streaming-services-for-2024/"><u>Affordable AAA Gaming Websites and Streaming Services for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/ai-assisted-the-ultimate-list-of-podcast-title-makers-for-2024/"><u>AI-Assisted The Ultimate List of Podcast Title Makers for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-and-install-latest-iphone-drivers-on-windows-10-step-by-step-guide/"><u>Download & Install Latest iPhone Drivers on Windows 10 - Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-seamless-integration-of-links-into-tiktok-profiles/"><u>In 2024, Seamless Integration of Links Into TikTok Profiles</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-trouble-with-apple-iphone-6s-swipe-up-try-these-11-solutions-drfone-by-drfone-ios/"><u>In 2024, Trouble with Apple iPhone 6s Swipe-Up? Try These 11 Solutions | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-unlocking-the-secrets-of-firefoxs-pip-mode/"><u>In 2024, Unlocking the Secrets of Firefox's PIP Mode</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Oppo Reno 10 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/maximize-your-gaming-experience-in-windows-11-with-these-key-optimization-techniques/"><u>Maximize Your Gaming Experience in Windows 11 with These Key Optimization Techniques</u></a></li>
+<li><a href="https://article-tips.techidaily.com/vertigo-ventures-with-gopro-karma-technology-for-2024/"><u>Vertigo Ventures with GoPro Karma Technology for 2024</u></a></li>
 </ul></div>
 

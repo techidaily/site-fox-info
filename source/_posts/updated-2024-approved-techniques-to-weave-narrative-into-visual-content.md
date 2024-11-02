@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Techniques to Weave Narrative Into Visual Content\""
-date: 2024-10-23T02:28:53.809Z
-updated: 2024-10-26T18:18:28.628Z
+date: 2024-10-29T00:50:20.637Z
+updated: 2024-11-01T20:11:56.127Z
 tags: 
   - screen-recording
   - ai video
@@ -49,6 +49,13 @@ But here's the good news: the way you add either option is the same in Filmora.
 
 ![add either option](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to add narration
 
 So the easiest way to add narration is directly to a project. The benefit of this is that you can record your narration inside Filmora while you watch the preview of your edited video.
@@ -62,10 +69,10 @@ You put the playhead where you want to start recording and hit the microphone ic
 ![hit microphone icon](https://images.wondershare.com/filmora/guide/stt-tts-srt-08.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 A 3-second countdown will pop up and start recording immediately after this countdown.
@@ -73,13 +80,6 @@ A 3-second countdown will pop up and start recording immediately after this coun
 You can record your narration and click stop.
 
 After recording, you can trim and edit your narration, you can delete it and record it again, and can move it and edit it like any other feature.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Some Tips for Recording Narration
 
@@ -90,13 +90,6 @@ Know what you want to tell your viewer rather than speak aimlessly. What can you
 You can edit pauses or weak parts out of the voiceover to trim it up. But if it is still too long, you can easily add another video clip, or even still images to help boost the length to match your narration.
 
 Fortunately, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) comes equipped with video b-roll which is another great option. When using b-roll, it's better to use multiple shorter clips than one longer clip in most cases. But adding the same b-roll clip near the beginning and another section of the same b-roll clip, later on, should help you match the length of your narration to the video timeline.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Narration is a great storytelling device
 
@@ -113,13 +106,26 @@ When adding voiceover or narration to your project, be sure to use a good USB mi
 ![use good microphone](https://images.wondershare.com/filmora/article-images/2022/11/use-good-microphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Should you use narration in your next project?
 
@@ -159,20 +165,21 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-capture-life-in-all-directions-11-excellence-in-multi-angle-cameras/"><u>[New] 2024 Approved Capture Life in All Directions #11 Excellence in Multi-Angle Cameras</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-expertly-crafted-drama-hub/"><u>[New] 2024 Approved Expertly Crafted Drama Hub</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-essential-mobiles-for-cutting-and-tuning-dji-videos-for-2024/"><u>[Updated] Essential Mobiles for Cutting and Tuning DJi Videos for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-capturing-crisp-sound-a-guide-to-superior-audio-recording/"><u>[Updated] In 2024, Capturing Crisp Sound A Guide to Superior Audio Recording</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-step-beyond-boundaries-with-innovative-wins11-titles/"><u>[Updated] In 2024, Step Beyond Boundaries with Innovative Wins11 Titles</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-telegrams-launchpad-for-aspiring-advertisers-a-starters-handbook-for-2024/"><u>[Updated] Telegram's Launchpad for Aspiring Advertisers A Starter's Handbook for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-unleash-your-inner-artist-the-ultimate-gif-toolkit-for-memes-for-2024/"><u>[Updated] Unleash Your Inner Artist The Ultimate GIF Toolkit for Memes for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-virtual-world-laughter-excavating-the-best-metaverse-jokes/"><u>2024 Approved Virtual World Laughter Excavating the Best Metaverse Jokes</u></a></li>
-<li><a href="https://win-blog.techidaily.com/a-comprehensive-guide-to-setting-up-hyper-v-virtualization-on-windows-10/"><u>A Comprehensive Guide to Setting Up Hyper-V Virtualization on Windows 10</u></a></li>
-<li><a href="https://extra-information.techidaily.com/complete-guide-to-cleaning-up-figma-canvases/"><u>Complete Guide to Cleaning Up Figma Canvases</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/complete-picture-guide-to-vsco-app-for-2024/"><u>Complete Picture Guide to VSCO App for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-fix-oem-unlock-missing-on-vivo-y27s-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Vivo Y27s?</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-from-start-to-end-mastering-the-art-of-fading-in-pro/"><u>In 2024, From Start to End Mastering the Art of Fading in Pro</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-steps-to-avoid-automatic-podcast-suggestions-on-spotify/"><u>In 2024, Steps to Avoid Automatic Podcast Suggestions on Spotify</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-honor-90-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Honor 90 | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-direct-upload-photos-and-videos-from-pc-to-iphone-for-2024/"><u>[New] Direct Upload Photos & Videos From PC to iPhone for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-streamlining-google-meets-with-efficient-snap-photography-tips-for-2024/"><u>[Updated] Streamlining Google Meets with Efficient Snap Photography Tips for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-the-comprehensive-guide-to-editing-hauls-for-online-audiences/"><u>[Updated] The Comprehensive Guide to Editing Hauls for Online Audiences</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-social-media-sensation-kit-building-memes-on-9gag/"><u>[Updated] The Social Media Sensation Kit Building Memes on 9GAG</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-complete-guide-icloud-drives-desktop-anddocuments-access-in-sierra/"><u>2024 Approved [Complete Guide] iCloud Drive’s Desktop &Documents Access in Sierra</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-attenuating-audio-gradually-in-fl-projects/"><u>2024 Approved Attenuating Audio Gradually in FL Projects</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-expertise-in-transition-techniques-adobe-edition/"><u>2024 Approved Expertise in Transition Techniques, Adobe Edition</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-explore-the-best-photo-enhancement-apps-for-android-and-iphone/"><u>2024 Approved Explore the Best Photo Enhancement Apps for Android and iPhone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-quick-and-fun-make-a-meme-with-kinemaster/"><u>2024 Approved Quick & Fun Make a Meme with KineMaster</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-the-insiders-guide-to-ultimate-audio-equipment/"><u>2024 Approved The Insider's Guide to Ultimate Audio Equipment</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-unparalleled-access-8-leading-fb-movie-downloader-list/"><u>2024 Approved Unparalleled Access #8 Leading FB Movie Downloader List</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-vivo-v27-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Vivo V27 to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ai-showdown-determining-if-gemini-surpasses-chatgpt-in-code-development/"><u>AI Showdown: Determining If Gemini Surpasses ChatGPT in Code Development</u></a></li>
+<li><a href="https://fox-info.techidaily.com/audience-peak-hours-crafting-release-dates-for-2024/"><u>Audience Peak Hours Crafting Release Dates for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/eliminating-common-windows-installer-problems/"><u>Eliminating Common Windows Installer Problems</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On OnePlus 11 5G? | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Complete Instruction Manual for Telegram Desktop"
-date: 2024-09-13T00:04:49.488Z
-updated: 2024-09-17T02:35:27.548Z
+date: 2024-10-30T22:01:56.440Z
+updated: 2024-11-01T21:55:06.480Z
 tags: 
   - screen-recording
   - ai video
@@ -46,12 +46,26 @@ However, if you don't want to install Telegram Desktop on your PC, you can use t
 
 As to the Chrome extension, it is easy for you to install it in the browser by clicking the official link given above. In this article, we will focus on how to use Telegram in browser-based PC version conveniently.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2\. Two Methods: How To Use the Telegram in a Browser?
 
 You can use Telegram web by verifying your account using two different methods:
 
 * By scanning the web version's QR code using the mobile app.
 * By using the phone number
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 1: By Scanning the QR Code
 
@@ -63,15 +77,28 @@ Step2 Open the **Telegram** app on your phone and tap the **"Settings"** option 
 
 ![accessing the settings on the telegram mobile app](https://images.wondershare.com/filmora/article-images/2022/11/accessing-the-settings-on-the-telegram-mobile-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Now, select **"Devices"** and tap **"Link Desktop Devices."** Finally, scan the **QR code** on your PC screen, and you will be signed into your account.
 
 ![linking telegram mobile account with telegram web](https://images.wondershare.com/filmora/article-images/2022/11/linking-telegram-mobile-account-with-telegram-web.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 2: Using the Phone Number
@@ -85,10 +112,10 @@ Step2 Select the **"Login by Phone Number"** option at the bottom of the screen.
 ![log in using the phone number on telegram web](https://images.wondershare.com/filmora/article-images/2022/11/log-in-using-the-phone-number-on-telegram-web.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3 On the pop-up confirmation message, check your phone number and click **"OK"** if the number is correct.
@@ -97,22 +124,23 @@ Step4 Telegram will send you a registration code on your number, enter the code 
 
 ![confirming the code on telegram web](https://images.wondershare.com/filmora/article-images/2022/11/confirming-the-code-on-telegram-web.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-**Note:** The browser-based Telegram has two different versions: Telegram WebK and Telegram WebZ. Both versions share slight changes in features and interface.
-
 <!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+**Note:** The browser-based Telegram has two different versions: Telegram WebK and Telegram WebZ. Both versions share slight changes in features and interface.
 
 ### Video Tutorial - How to Access Telegram on Web?
 
@@ -135,10 +163,10 @@ Now that you've learned how to use Telegram online, do you wonder how to make th
 This feature can be useful if you want to save a video for later viewing or share it with someone who does not have the Telegram app. We have prepared a complete solution for you the to learn [how to download Telegram videos from mobile and PC](https://tools.techidaily.com/wondershare/filmora/download/), and we sincerely hope you can have more pleasant memories using Telegram.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs
@@ -194,19 +222,6 @@ Yes, you can use Telegram on a laptop without a phone. However, you will still n
 ### Can Someone Track You on Telegram?
 
 Unlike other messaging apps, Telegram offers end-to-end encryption, which means that your conversations are private and can only be seen by the people you're talking to. This makes it very difficult (if not impossible) for someone to track your messages or conversations.
-
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Do People on Telegram See Your Phone Number?
 
@@ -244,5 +259,20 @@ In the end, we discussed some frequently asked questions and tried to answer the
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-estimating-elapsed-seconds-in-a-20mb-videoclip/"><u>[New] 2024 Approved Estimating Elapsed Seconds in a 20MB Videoclip</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-environmentally-friendly-film-tools-download/"><u>[New] Environmentally Friendly Film Tools Download</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-photoshops-stabilization-capabilities-real-advantage-in-2024/"><u>[New] Photoshop's Stabilization Capabilities Real Advantage, In 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-strategies-for-enthralling-vlog-content-flow/"><u>[New] Strategies for Enthralling Vlog Content Flow</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-unveiling-the-hidden-recovering-exclusive-snap-content/"><u>[New] Unveiling the Hidden Recovering Exclusive Snap Content</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-optimize-gmail-for-video-calls-with-effective-zoom-use/"><u>[Updated] Optimize Gmail for Video Calls with Effective Zoom Use</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-past-perspectives-unencumbered-visual-splendors/"><u>[Updated] Past Perspectives Unencumbered Visual Splendors</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-revamped-look-at-sonys-s6500-bdp/"><u>2024 Approved Revamped Look at Sony's S6500 BDP</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/easy-fixes-for-connecting-a-microsoft-wireless-adapter-in-windows-10-systems/"><u>Easy Fixes for Connecting a Microsoft Wireless Adapter in Windows 10 Systems</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/expert-choice-unveiling-the-ultimate-2024-mp3-player-selection/"><u>Expert Choice: Unveiling the Ultimate 2024 MP3 Player Selection</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-mastering-tunes-in-fb-video-posts-your-step-by-step-manual/"><u>In 2024, Mastering Tunes in FB Video Posts Your Step-by-Step Manual</u></a></li>
+<li><a href="https://fox-info.techidaily.com/iphonedesktops-top-8-video-transformation-tools-for-2024/"><u>IPhone/Desktop's Top 8 Video Transformation Tools for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/nixplays-x15d-elevates-photos-to-the-ultimate-viewing-standards/"><u>Nixplay’s X15D Elevates Photos to the Ultimate Viewing Standards</u></a></li>
+</ul></div>
 

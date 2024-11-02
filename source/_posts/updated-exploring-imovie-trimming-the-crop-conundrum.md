@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Exploring iMovie Trimming  The Crop Conundrum\""
-date: 2024-09-09T23:02:57.685Z
-updated: 2024-09-17T05:54:33.839Z
+date: 2024-10-26T18:17:10.894Z
+updated: 2024-11-01T19:31:31.991Z
 tags: 
   - screen-recording
   - ai video
@@ -39,19 +39,6 @@ Are you seeking for a video editor that won't automatically crop your clips? The
 
 Follow the steps below to begin making your video with Filmora:
 
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **Step #1: Begin by Going to Filmora and Selecting Your Desired Aspect Ratio.**
 
 Double-click Filmora's desktop icon once you're ready to start working on a new video. The welcome screen of the application will encourage you to create a new project or open an existing one. You can also choose the aspect ratio here to save time when editing.
@@ -64,19 +51,6 @@ After choosing New Project on the software's welcome screen, wait for the editor
 
 ![imoive-crop-video-](https://images.wondershare.com/filmora/article-images/2022/05/imoive-crop-video-2.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Go to the File menu and click Project Settings to choose the aspect ratio for your final film output. You'll be able to select from various aspect ratios, including the standard 16:9 or 4:3, the less common 9:16 aspect ratio for vertically oriented flicks, and the 1:1 aspect ratio for square-shaped films. You can also adjust the aspect ratio to fit your needs.
 
 ### **Step #3: Import Your Files**
@@ -93,13 +67,83 @@ The documents you import into Filmora will be stored under the Media tab, which 
 
 ![imoive-crop-video-](https://images.wondershare.com/filmora/article-images/2022/05/imoive-crop-video-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+In the window's top right corner, click the Add a New Folder icon at the bottom of the "My Project" section. You can organize the footage numerically or in another method to increase your productivity and save time looking through files.
+
+### **Step #5: Organize the Files on The Timeline**
+
+Because raw footage frequently has incorrect orbits that you don't need in your video, simply drag them from the Media tab and set them on the timeline if you want to delete or edit your videos. You can load as much clips as you want, but you can only add them one at a time, and you'll have to drag the files to the right place on the timeline to reorder them.
+
+![imoive-crop-video-](https://images.wondershare.com/filmora/article-images/2022/05/imoive-crop-video-5.jpg)
+
+Press Play or use the Spacebar to examine the video clips you've added to the timeline. You may use the playhead to jump to a certain point in the movie. Place the playhead at the exact beginning of the video segment you wish to trim, then repeat the operation on the other end.
+
+### **Step #6: Insert Effects**
+
+After eliminating all the unwanted bits from your video clips, you may now separate the audio and video files, add music, make transitions between the segments, or apply one of Filmora's many graphic effects.
+
+![imoive-crop-video-](https://images.wondershare.com/filmora/article-images/2022/05/imoive-crop-video-6.jpg)
+
+Click the Text /Credit icon to add opening titles, end credits, or subtitles to your video. The software comes with several text templates that you can use for various purposes. Drag and drop the theme you want to use to the appropriate location on the timeline, then add the relevant text using the software's preview box.
+
+# BBD0E0 »
+
+**Step #2: Create a New Project**
+
+After choosing New Project on the software's welcome screen, wait for the editor to load. After gaining access to Fillmora's video editor, click the Register button to activate it.
+
+![imoive-crop-video-](https://images.wondershare.com/filmora/article-images/2022/05/imoive-crop-video-2.jpg)
+
+Go to the File menu and click Project Settings to choose the aspect ratio for your final film output. You'll be able to select from various aspect ratios, including the standard 16:9 or 4:3, the less common 9:16 aspect ratio for vertically oriented flicks, and the 1:1 aspect ratio for square-shaped films. You can also adjust the aspect ratio to fit your needs.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### **Step #3: Import Your Files**
+
+You can find the Import button in the upper left corner of the film editor; click it and select Import Media Files. Next, go to the hard drive folder containing the item you want to modify. After choosing the video, audio, or photo files, you want to use in your project, click the Import option.
+
+![imoive-crop-video-](https://images.wondershare.com/filmora/article-images/2022/05/imoive-crop-video-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+The Import menu now includes Import with Instant Cutter Tool. The Instant Cutter Tool made trimming 4K and other large video files quick and easy. Filmora can also edit footage shot with action cameras swiftly. You can simply improve your films with the lens correction tools and the Fish Eye Distortion function.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### **Step #4: Arrange Your Clips**
+
+The documents you import into Filmora will be stored under the Media tab, which you can find beneath the Load button. Working with multiple files in a single project becomes significantly more difficult when searching for the films and photographs you want to add to the timeline. To eliminate clutter and annoyance, use the My Album tool to create folders and organize your files.
+
+![imoive-crop-video-](https://images.wondershare.com/filmora/article-images/2022/05/imoive-crop-video-4.jpg)
+
 In the window's top right corner, click the Add a New Folder icon at the bottom of the "My Project" section. You can organize the footage numerically or in another method to increase your productivity and save time looking through files.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Step #5: Organize the Files on The Timeline**
@@ -136,6 +180,13 @@ You can find the Import button in the upper left corner of the film editor; clic
 
 The Import menu now includes Import with Instant Cutter Tool. The Instant Cutter Tool made trimming 4K and other large video files quick and easy. Filmora can also edit footage shot with action cameras swiftly. You can simply improve your films with the lens correction tools and the Fish Eye Distortion function.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Step #4: Arrange Your Clips**
 
 The documents you import into Filmora will be stored under the Media tab, which you can find beneath the Load button. Working with multiple files in a single project becomes significantly more difficult when searching for the films and photographs you want to add to the timeline. To eliminate clutter and annoyance, use the My Album tool to create folders and organize your files.
@@ -143,10 +194,10 @@ The documents you import into Filmora will be stored under the Media tab, which 
 ![imoive-crop-video-](https://images.wondershare.com/filmora/article-images/2022/05/imoive-crop-video-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In the window's top right corner, click the Add a New Folder icon at the bottom of the "My Project" section. You can organize the footage numerically or in another method to increase your productivity and save time looking through files.
@@ -175,62 +226,20 @@ After choosing New Project on the software's welcome screen, wait for the editor
 
 ![imoive-crop-video-](https://images.wondershare.com/filmora/article-images/2022/05/imoive-crop-video-2.jpg)
 
-Go to the File menu and click Project Settings to choose the aspect ratio for your final film output. You'll be able to select from various aspect ratios, including the standard 16:9 or 4:3, the less common 9:16 aspect ratio for vertically oriented flicks, and the 1:1 aspect ratio for square-shaped films. You can also adjust the aspect ratio to fit your needs.
-
-### **Step #3: Import Your Files**
-
-You can find the Import button in the upper left corner of the film editor; click it and select Import Media Files. Next, go to the hard drive folder containing the item you want to modify. After choosing the video, audio, or photo files, you want to use in your project, click the Import option.
-
-![imoive-crop-video-](https://images.wondershare.com/filmora/article-images/2022/05/imoive-crop-video-3.jpg)
-
-The Import menu now includes Import with Instant Cutter Tool. The Instant Cutter Tool made trimming 4K and other large video files quick and easy. Filmora can also edit footage shot with action cameras swiftly. You can simply improve your films with the lens correction tools and the Fish Eye Distortion function.
-
-### **Step #4: Arrange Your Clips**
-
-The documents you import into Filmora will be stored under the Media tab, which you can find beneath the Load button. Working with multiple files in a single project becomes significantly more difficult when searching for the films and photographs you want to add to the timeline. To eliminate clutter and annoyance, use the My Album tool to create folders and organize your files.
-
-![imoive-crop-video-](https://images.wondershare.com/filmora/article-images/2022/05/imoive-crop-video-4.jpg)
-
-In the window's top right corner, click the Add a New Folder icon at the bottom of the "My Project" section. You can organize the footage numerically or in another method to increase your productivity and save time looking through files.
-
-### **Step #5: Organize the Files on The Timeline**
-
-Because raw footage frequently has incorrect orbits that you don't need in your video, simply drag them from the Media tab and set them on the timeline if you want to delete or edit your videos. You can load as much clips as you want, but you can only add them one at a time, and you'll have to drag the files to the right place on the timeline to reorder them.
-
-![imoive-crop-video-](https://images.wondershare.com/filmora/article-images/2022/05/imoive-crop-video-5.jpg)
-
-Press Play or use the Spacebar to examine the video clips you've added to the timeline. You may use the playhead to jump to a certain point in the movie. Place the playhead at the exact beginning of the video segment you wish to trim, then repeat the operation on the other end.
-
-### **Step #6: Insert Effects**
-
-After eliminating all the unwanted bits from your video clips, you may now separate the audio and video files, add music, make transitions between the segments, or apply one of Filmora's many graphic effects.
-
-![imoive-crop-video-](https://images.wondershare.com/filmora/article-images/2022/05/imoive-crop-video-6.jpg)
-
-Click the Text /Credit icon to add opening titles, end credits, or subtitles to your video. The software comes with several text templates that you can use for various purposes. Drag and drop the theme you want to use to the appropriate location on the timeline, then add the relevant text using the software's preview box.
-
-# BBD0E0 »
-
-**Step #2: Create a New Project**
-
-After choosing New Project on the software's welcome screen, wait for the editor to load. After gaining access to Fillmora's video editor, click the Register button to activate it.
-
-![imoive-crop-video-](https://images.wondershare.com/filmora/article-images/2022/05/imoive-crop-video-2.jpg)
-
-Go to the File menu and click Project Settings to choose the aspect ratio for your final film output. You'll be able to select from various aspect ratios, including the standard 16:9 or 4:3, the less common 9:16 aspect ratio for vertically oriented flicks, and the 1:1 aspect ratio for square-shaped films. You can also adjust the aspect ratio to fit your needs.
-
-### **Step #3: Import Your Files**
-
-You can find the Import button in the upper left corner of the film editor; click it and select Import Media Files. Next, go to the hard drive folder containing the item you want to modify. After choosing the video, audio, or photo files, you want to use in your project, click the Import option.
-
-![imoive-crop-video-](https://images.wondershare.com/filmora/article-images/2022/05/imoive-crop-video-3.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Go to the File menu and click Project Settings to choose the aspect ratio for your final film output. You'll be able to select from various aspect ratios, including the standard 16:9 or 4:3, the less common 9:16 aspect ratio for vertically oriented flicks, and the 1:1 aspect ratio for square-shaped films. You can also adjust the aspect ratio to fit your needs.
+
+### **Step #3: Import Your Files**
+
+You can find the Import button in the upper left corner of the film editor; click it and select Import Media Files. Next, go to the hard drive folder containing the item you want to modify. After choosing the video, audio, or photo files, you want to use in your project, click the Import option.
+
+![imoive-crop-video-](https://images.wondershare.com/filmora/article-images/2022/05/imoive-crop-video-3.jpg)
 
 The Import menu now includes Import with Instant Cutter Tool. The Instant Cutter Tool made trimming 4K and other large video files quick and easy. Filmora can also edit footage shot with action cameras swiftly. You can simply improve your films with the lens correction tools and the Fish Eye Distortion function.
 
@@ -282,5 +291,24 @@ Click the Text /Credit icon to add opening titles, end credits, or subtitles to 
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-a-comprehensive-approach-to-adding-text-overlays-vimeo-for-2024/"><u>[New] A Comprehensive Approach to Adding Text Overlays (Vimeo) for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-audio-integration-into-visual-screens-via-apple/"><u>[New] In 2024, Audio Integration Into Visual Screens via Apple</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-prophoto-fusion-online-masterpiece-suite/"><u>[New] ProPhoto Fusion Online Masterpiece Suite</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-reel-mastery-made-simple-with-these-free-apps-to-manage-instagram-videos-for-2024/"><u>[New] Reel Mastery Made Simple with These Free Apps to Manage Instagram Videos for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-instructors-resource-for-enhancing-learning-via-video/"><u>[Updated] In 2024, Instructor's Resource for Enhancing Learning via Video</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-quickscreen-recorder-plus-guided-soundtrack-companion/"><u>[Updated] In 2024, QuickScreen Recorder + Guided Soundtrack Companion</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-samsung-tips-easy-time-lapse-photography/"><u>[Updated] Samsung Tips Easy Time-Lapse Photography</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-motorola-moto-g13-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Motorola Moto G13 to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-the-ultimate-guide-to-android-video-calls/"><u>2024 Approved The Ultimate Guide to Android Video Calls</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/automatische-loschung-von-exe-dateien-auf-windows-10-erklart/"><u>Automatische Löschung Von EXE-Dateien Auf Windows 10 Erklärt</u></a></li>
+<li><a href="https://fox-info.techidaily.com/full-evaluation-what-makes-theta-s-special-for-2024/"><u>Full Evaluation What Makes Theta S Special for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-hp-pagewide-pro-n477dw-drivers-up-to-date-support-for-win11-10-and-earlier-versions/"><u>Get HP PageWide Pro N477DW Drivers: Up-to-Date Support for Win11, 10 & Earlier Versions</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-embracing-change-adaptability-as-the-new-normal-in-business/"><u>In 2024, Embracing Change Adaptability as the New Normal in Business</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-unlocking-the-secrets-of-effective-job-interview-techniques/"><u>In 2024, Unlocking the Secrets of Effective Job Interview Techniques</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/master-the-art-of-preserving-your-musical-journey-for-2024/"><u>Master the Art of Preserving Your Musical Journey for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-premier-list-all-time-great-general-knowledge-shows-24/"><u>The Premier List All-Time Great General Knowledge Shows '24</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/viral-visionaries-the-10-highest-viewed-twitters-today-for-2024/"><u>Viral Visionaries The 10 Highest-Viewed Twitters Today for 2024</u></a></li>
+</ul></div>
 

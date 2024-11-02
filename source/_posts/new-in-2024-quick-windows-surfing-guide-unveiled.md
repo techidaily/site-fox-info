@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Quick Windows Surfing Guide Unveiled"
-date: 2024-09-16T06:05:46.594Z
-updated: 2024-09-17T01:40:46.396Z
+date: 2024-10-31T20:50:02.098Z
+updated: 2024-11-01T22:24:01.501Z
 tags: 
   - screen-recording
   - ai video
@@ -55,9 +55,23 @@ Step1 Visit the [QuickLook GitHub](https://github.com/QL-Win/QuickLook) page and
 
 ![click the latest quicklook for windows version](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Scroll down and download the .msi file. After downloading the installation file successfully, install it on your computer.
 
 ![install the quicklook for windows msi](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://github.com/QL-Win/QuickLook/wiki/Available-Plugins). Then, download the plugins to add additional preview capabilities to Microsoft QuickLook. For example, install the FontViewer, FFmpeg, and OfficeViewer plugins by clicking the respective “Link” buttons.
 
@@ -66,6 +80,13 @@ Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://g
 Step4 After a successful installation, find the file you want to preview and select it. Then, tap the space bar to preview the files. And remember, browse ZIP files to view all content.
 
 **Pro tip**: We recommend installing the QuickLook OfficeViewer plugin to rip open your Office files and view the content inside. This method is recommended if you haven’t installed Microsoft Office on your PC. However, you might notice that the OfficeViewer plugin isn’t supported on your Windows PC. So to install OfficeViewer, select the file and click the space bar to preview it on QuickLook. Then, tap the “Click here to install this plugin” button. Now restart QuickLook and view all your office documents without opening them on their respective programs.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Should We Expect Built-in Quick Look on Windows in the Future?
 
@@ -76,10 +97,10 @@ Meanwhile, it’s expected that QuickLook will come with a small preview screen.
 In other related news, Microsoft will be answering the prayers of their loyal patrons to get tabbed browsing. This is another feature similar to what you currently have on macOS, where you can open new tabs for numerous file locations. In return, this makes moving and copying files more straightforward. This easy-to-navigate addition will definitely make Microsoft Windows users more productive than before.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: Frequently Asked Questions
@@ -95,13 +116,6 @@ Unfortunately, Microsoft QuickLook doesn’t offer native support for E-books. B
 #### 3\. Can QuickLook for Mac edit files?
 
 Now this is one of the primary advantages of using the Mac QuickLook. You can trim video and audio clips, rotate photos, and use markups directly on the program. We hope that the Windows version will add these convenient features as well.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -135,5 +149,19 @@ This guidepost is another testament that your PC has massive hidden abilities. W
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-enhancing-imagery-a-look-at-samsung-image-studio-tools/"><u>[New] 2024 Approved Enhancing Imagery A Look at Samsung Image Studio Tools</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-pinnacle-virtual-lecture-identifier/"><u>[New] 2024 Approved Pinnacle Virtual Lecture Identifier</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-a-look-at-the-future-of-windows-10s-evolution-for-2024/"><u>[New] A Look at the Future of Windows 10'S Evolution for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-elevate-your-social-media-presence-by-pining-on-snapchat/"><u>[Updated] In 2024, Elevate Your Social Media Presence by Pining on Snapchat</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-listeners-lexicon-selecting-solid-offline-recording-tools/"><u>[Updated] In 2024, Listeners' Lexicon Selecting Solid Offline Recording Tools</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-stealthy-surveillance-erasing-sensitive-elements-from-footage/"><u>[Updated] In 2024, Stealthy Surveillance Erasing Sensitive Elements From Footage</u></a></li>
+<li><a href="https://win-blog.techidaily.com/amazon-prime-video-error-fixes-top-strategies-to-restore-your-streams/"><u>Amazon Prime Video Error Fixes: Top Strategies to Restore Your Streams</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-you-play-hevc-h-265-files-on-civi-3-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>How do you play HEVC/H.265 files on Civi 3?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-capturing-attention-striking-shots-for-youtube-success/"><u>In 2024, Capturing Attention Striking Shots for YouTube Success</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/integrating-gpt-chat-a-practical-api-overview/"><u>Integrating GPT-Chat: A Practical API Overview</u></a></li>
+<li><a href="https://win11.techidaily.com/overcoming-failed-start-on-windows-speech-to-text-feature/"><u>Overcoming 'Failed' Start on Windows Speech-to-Text Feature</u></a></li>
+<li><a href="https://fox-info.techidaily.com/troubleshoot-flaky-airdrop-links-simple-steps-to-solutions-for-2024/"><u>Troubleshoot Flaky AirDrop Links Simple Steps to Solutions for 2024</u></a></li>
+</ul></div>
 

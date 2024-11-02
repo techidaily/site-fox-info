@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Uniting Sight & Sound  Perfecting Videography Voiceovers\""
-date: 2024-09-12T05:29:12.153Z
-updated: 2024-09-17T01:28:37.959Z
+date: 2024-10-26T17:48:24.488Z
+updated: 2024-11-01T20:11:34.696Z
 tags: 
   - screen-recording
   - ai video
@@ -61,11 +61,25 @@ You put the playhead where you want to start recording and hit the microphone ic
 
 ![hit microphone icon](https://images.wondershare.com/filmora/guide/stt-tts-srt-08.png)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 A 3-second countdown will pop up and start recording immediately after this countdown.
 
 You can record your narration and click stop.
 
 After recording, you can trim and edit your narration, you can delete it and record it again, and can move it and edit it like any other feature.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Some Tips for Recording Narration
 
@@ -77,6 +91,13 @@ You can edit pauses or weak parts out of the voiceover to trim it up. But if it 
 
 Fortunately, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) comes equipped with video b-roll which is another great option. When using b-roll, it's better to use multiple shorter clips than one longer clip in most cases. But adding the same b-roll clip near the beginning and another section of the same b-roll clip, later on, should help you match the length of your narration to the video timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Narration is a great storytelling device
 
 Narration is a fantastic tool to have in your arsenal as a young filmmaker. It allows you to quickly communicate feelings, backstory, and context quickly and effectively.
@@ -85,27 +106,20 @@ Practice adding it to your videos to see how it adds depth and dimension to your
 
 It can also help make a connection with your audience because you can be relating to the images on the screen as they watch them. This is effective in building your YouTube audience.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Always use a good mic
 
 When adding voiceover or narration to your project, be sure to use a good USB microphone. A good quality sound will elevate your entire project and just requires a little planning.
 
 ![use good microphone](https://images.wondershare.com/filmora/article-images/2022/11/use-good-microphone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Should you use narration in your next project?
 
@@ -143,5 +157,24 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://printer-issues.techidaily.com/network-problem-hp-printer-driver-issues-across-windows-versions/"><u>[Network Problem] HP Printer Driver Issues Across Windows Versions</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-creating-perfect-360-photos-on-iphone-for-2024/"><u>[New] Creating Perfect 360 Photos on iPhone for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-exploring-and-harnessing-twitter-archive-insights/"><u>[New] Exploring and Harnessing Twitter Archive Insights</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-metaphysical-realms-of-the-metaverse-quotations-style-for-2024/"><u>[New] Metaphysical Realms of the Metaverse, Quotations Style for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-navigating-the-world-of-filmmaking-best-cameras-for-novices-for-2024/"><u>[New] Navigating the World of Filmmaking Best Cameras for Novices for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-steps-to-manage-video-watcher-restrictions-on-youtube/"><u>[New] Steps to Manage Video Watcher Restrictions on Youtube</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-the-apple-m1-breakdown-a-glimpse-into-the-future/"><u>[Updated] 2024 Approved The Apple M1 Breakdown A Glimpse Into the Future</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-embedding-youtube-playlists-step-by-step-guide/"><u>[Updated] Embedding YouTube Playlists Step-by-Step Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-instagram-reels-slow-motion-techniques-unveiled/"><u>[Updated] In 2024, Instagram Reels Slow-Motion Techniques Unveiled</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-quicklooker-windows-11s-speedy-photo-viewer/"><u>[Updated] In 2024, QuickLooker Windows 11'S Speedy Photo Viewer</u></a></li>
+<li><a href="https://techtrends.techidaily.com/best-offline-auto-race-game-applications-your-guide-to-the-classics/"><u>Best Offline Auto Race Game Applications – Your Guide to the Classics</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722972081308-download-latest-driver-for-your-asus-vg248qe-seamless-installation-steps/"><u>Download Latest Driver for Your Asus VG248QE - Seamless Installation Steps</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-a-buyers-guide-to-exceptional-hdr-photography-equipment/"><u>In 2024, A Buyer's Guide to Exceptional HDR Photography Equipment</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-simplifying-connection-combining-linkedin-profile-with-your-tiktok-bio/"><u>In 2024, Simplifying Connection Combining LinkedIn Profile with Your TikTok Bio</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-yuneec-typhoon-h-insights-drone-review-highlights/"><u>In 2024, Yuneec Typhoon H Insights Drone Review Highlights</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/retrieving-shadows-your-mac-data-restoration-companion/"><u>Retrieving Shadows: Your Mac Data Restoration Companion</u></a></li>
+<li><a href="https://android-frp.techidaily.com/top-5-motorola-moto-g73-5g-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Motorola Moto G73 5G Bypass FRP Tools for PC That Actually Work</u></a></li>
+</ul></div>
 
