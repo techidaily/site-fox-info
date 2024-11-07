@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Maximize Your Workflow with Efficient Use of Mac's Preview Tool"
-date: 2024-10-31T16:54:04.973Z
-updated: 2024-11-01T23:46:20.696Z
+date: 2024-11-06T19:01:53.379Z
+updated: 2024-11-07T17:48:25.543Z
 tags: 
   - screen-recording
   - ai video
@@ -55,13 +55,6 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -77,10 +70,10 @@ Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Crop in Preview
@@ -98,6 +91,13 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 **Step 3: Crop the Photo**
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Rotate Image in Preview
 
@@ -128,10 +128,10 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Remove Background in Preview
@@ -166,6 +166,13 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Save Images in Different Formats
 
 The **Preview app** has a built-in image converter as well. To convert an image to a different format with Preview, you must:
@@ -177,19 +184,6 @@ After opening an image, click **File** from the menu bar at the top, and click *
 **Step 2: Choose Output Format and Export**
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
-
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
 
@@ -250,14 +244,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-simplicity-in-capturing-your-lenovo-pics/"><u>[New] Simplicity in Capturing Your Lenovo Pics</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-augmented-reality-aesthetics-tapping-into-free-lut-resources-for-ar/"><u>[Updated] Augmented Reality Aesthetics Tapping Into Free LUT Resources for AR</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-elevate-video-production-excellence-with-kinemasters-green-screen-guide/"><u>[Updated] Elevate Video Production Excellence with Kinemaster's Green Screen Guide</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-navigating-the-world-of-mac-screenshot-with-confidence/"><u>[Updated] In 2024, Navigating the World of Mac Screenshot with Confidence</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-venturing-virtuality-a-review-of-lgs-360-headset-for-2024/"><u>[Updated] Venturing Virtuality A Review of LG's 360 Headset for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/from-novices-to-pros-the-journey-of-learning-magix-maker-for-2024/"><u>From Novices to Pros The Journey of Learning Magix Maker for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Infinix Hot 40 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-easy-peasy-animation-8-best-tools-for-animated-photos/"><u>New In 2024, Easy Peasy Animation 8 Best Tools for Animated Photos</u></a></li>
-<li><a href="https://win-tips.techidaily.com/passaggio-rapido-trasferisci-i-tuoi-file-in-modalita-prova-windows-versioni-10-8-e-7/"><u>Passaggio Rapido: Trasferisci I Tuoi File in Modalità Prova Windows (Versioni 10, 8 E 7)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-25-top-rated-gratis-online-photography-tools-for-2024/"><u>[New] 25 Top-Rated, Gratis Online Photography Tools for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-aural-tapestry-weaving-sounds-into-cinematic-threads-for-2024/"><u>[New] Aural Tapestry Weaving Sounds Into Cinematic Threads for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-convert-with-precision-10-leading-tools-from-flv-to-youtube-platforms-for-2024/"><u>[New] Convert with Precision 10 Leading Tools From Flv to YouTube Platforms for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-compelling-macos-sierra-coders-for-vids/"><u>[New] In 2024, Compelling MacOS Sierra Coders for Vids</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-digital-display-delights-top-plugins-and-apps-for-photo-frames/"><u>[New] In 2024, Digital Display Delights Top Plugins & Apps for Photo Frames</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-srt-from-basics-to-cutting-edge-techniques/"><u>[New] In 2024, SRT From Basics to Cutting-Edge Techniques</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-how-to-create-a-unique-cellphone-alert-from-favorite-tiktok-songs/"><u>[Updated] How to Create a Unique Cellphone Alert From Favorite TikTok Songs</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-affordable-android-calls-10-best-selection/"><u>[Updated] In 2024, Affordable Android Calls, 10 Best Selection</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-pictorial-synthesis-pro-online-blender-deluxe/"><u>[Updated] Pictorial Synthesis Pro Online Blender Deluxe</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-prime-prospects-the-hottest-google-cardboard-vr-gaming-titles/"><u>[Updated] Prime Prospects The Hottest Google Cardboard VR Gaming Titles</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-leveraging-zoom-for-superior-skype-interactions-and-communication/"><u>2024 Approved Leveraging Zoom for Superior Skype Interactions & Communication</u></a></li>
+<li><a href="https://fox-info.techidaily.com/essential-skills-for-proficient-use-of-gdoc-transcription-service/"><u>Essential Skills for Proficient Use of GDoc Transcription Service</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/harmonizing-office-efficiency-with-quick-fixes-for-printerpluslaptop-linkage/"><u>Harmonizing Office Efficiency with Quick Fixes for Printer+Laptop Linkage</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-your-tecno-spark-20c-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Tecno Spark 20C Lock Screen Password</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/learning-to-let-go-of-hurtful-comments-for-2024/"><u>Learning to Let Go of Hurtful Comments for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/revive-the-soundscape-effortless-solutions-to-fixed-pc-audio-glitches/"><u>Revive the Soundscape: Effortless Solutions to Fixed PC Audio Glitches!</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/screen-savvy-starting-point-deciphering-display-standards/"><u>Screen-Savvy Starting Point Deciphering Display Standards</u></a></li>
 </ul></div>
 

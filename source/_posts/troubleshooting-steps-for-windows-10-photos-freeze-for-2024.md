@@ -1,7 +1,7 @@
 ---
 title: "Troubleshooting Steps for Windows 10 Photos Freeze for 2024"
-date: 2024-10-26T00:19:17.304Z
-updated: 2024-11-01T17:31:33.470Z
+date: 2024-11-04T16:05:52.260Z
+updated: 2024-11-07T16:47:03.150Z
 tags: 
   - screen-recording
   - ai video
@@ -58,8 +58,22 @@ Here is how to troubleshoot –
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Solution 2: Restore Default Libraries
 
@@ -72,21 +86,7 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
-  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Solution 3: Reset it
 
@@ -99,10 +99,10 @@ Here is how can you reset it –
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
@@ -117,10 +117,10 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 4. Now, the Windows 10 Photos App won’t crash.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Solution 5: Reinstall Windows 10 Photos app
@@ -167,21 +167,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-unleashing-creativity-time-lapse-on-samsung/"><u>[New] 2024 Approved Unleashing Creativity Time-Lapse on Samsung</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-essential-picks-websites-where-you-can-grab-got-ringtones/"><u>[New] Essential Picks Websites Where You Can Grab GoT Ringtones</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-strategies-for-perfect-screenshots-at-your-fingertips/"><u>[New] In 2024, Strategies for Perfect Screenshots at Your Fingertips</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-the-cold-weather-spectacle-of-beijing-2022-for-2024/"><u>[New] The Cold-Weather Spectacle of Beijing 2022 for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-redefine-video-communication-with-your-webcam/"><u>[Updated] In 2024, Redefine Video Communication with Your Webcam</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-race-for-excellence-av1-vs-vp9-codec/"><u>[Updated] In 2024, The Race for Excellence AV1 Vs. VP9 Codec</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-top-5-best-lightweight-action-cameras-for-2024/"><u>[Updated] Top 5 Best Lightweight Action Cameras for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-samsung-galaxy-a25-5g-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Samsung Galaxy A25 5G? | Dr.fone</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/enhancing-er-operations-with-abbyys-smart-analytics-and-ocr-technology/"><u>Enhancing ER Operations with ABBYY's Smart Analytics and OCR Technology</u></a></li>
-<li><a href="https://win-dash.techidaily.com/improve-performance-and-fix-bugs-dells-new-monochrome-laser-printer-driver-for-models-2330d-and-2330dn/"><u>Improve Performance and Fix Bugs: Dell's New Monochrome Laser Printer Driver for Models 2330D & 2330DN</u></a></li>
-<li><a href="https://extra-information.techidaily.com/maximizing-exposure-submitting-to-apple/"><u>Maximizing Exposure Submitting to Apple</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/navigating-the-best-hdr-cameras-for-2024/"><u>Navigating the Best HDR Cameras for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/reignite-your-gaming-experience-free-voice-transformation-for-valorant-lovers-for-2024/"><u>Reignite Your Gaming Experience Free Voice Transformation for Valorant Lovers for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/step-by-step-guide-for-seamless-sending-of-large-videos-from-iphones-for-2024/"><u>Step by Step Guide for Seamless Sending of Large Videos From iPhones for 2024</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-call-logs-from-infinix-smart-7-hd-by-fonelab-android-recover-call-logs/"><u>Undelete lost call logs from Infinix Smart 7 HD</u></a></li>
-<li><a href="https://fox-info.techidaily.com/unleashing-clarity-with-eizos-coloredge-cg318-4k/"><u>Unleashing Clarity with EIZO's ColorEdge CG318-4K</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-blueprint-for-successful-individual-podcasts/"><u>[New] 2024 Approved The Blueprint for Successful Individual Podcasts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-easier-than-ever-top-9-uncomplicated-no-cost-video-tools-for-you-for-2024/"><u>[Updated] Easier Than Ever Top 9 Uncomplicated, No-Cost Video Tools for You for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-decoding-earnings-for-content-producers-on-short-form-platform/"><u>[Updated] In 2024, Decoding Earnings for Content Producers on Short-Form Platform</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-market-dominance-keyphrases-for-successful-advertising/"><u>[Updated] Market Dominance Keyphrases for Successful Advertising</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-vuephoto-ai-enhancement-showcase-for-2024/"><u>[Updated] VuePhoto AI Enhancement Showcase for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/8-best-video-call-app-for-android-more-than-4-participants-for-2024/"><u>8 Best Video Call App for Android (More than 4 Participants) for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/banishing-curved-visuals-correcting-gopros-fish-eye-for-2024/"><u>Banishing Curved Visuals Correcting GoPro's Fish Eye for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-top-5-podcast-apps-for-listening-to-podcasts-on-an-iphone/"><u>In 2024, Top 5 Podcast Apps for Listening to Podcasts on an iPhone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-typhoon-h-by-yuneec-an-in-depth-analysis/"><u>In 2024, Typhoon H by Yuneec An In-Depth Analysis</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/pasos-sencillos-para-cambiar-video-mkv-por-avi-usando-tu-pc-con-sistema-operativo-windows/"><u>Pasos Sencillos Para Cambiar Vídeo MKV Por AVI Usando Tu PC Con Sistema Operativo Windows</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-the-driverpowerstatefailure-step-by-step-troubleshooting/"><u>Resolving the DRIVER_POWER_STATE_FAILURE: Step-by-Step Troubleshooting</u></a></li>
+<li><a href="https://fox-info.techidaily.com/streaming-royalty-ranking-the-top-10-platforms-for-real-time-content-for-2024/"><u>Streaming Royalty Ranking the Top 10 Platforms for Real-Time Content for 2024</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/1721267950434-uncover-how-to-salvage-images-in-windows-using-the-powerful-stellar-fixer-app/"><u>Uncover How to Salvage Images in Windows Using the Powerful Stellar Fixer App</u></a></li>
 </ul></div>
 

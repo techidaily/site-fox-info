@@ -1,7 +1,7 @@
 ---
 title: "Mastering Light & Shadow with iPhone X's New Lens Technology"
-date: 2024-10-27T18:36:50.845Z
-updated: 2024-11-02T03:22:47.858Z
+date: 2024-11-01T17:14:01.621Z
+updated: 2024-11-07T18:20:59.614Z
 tags: 
   - screen-recording
   - ai video
@@ -42,18 +42,18 @@ thumbnail: https://thmb.techidaily.com/c9e9de36eb357f7db5b739ff1ada424f8276ace68
 
  The phone has a brand new rear [camera with two lenses](https://tools.techidaily.com/wondershare/filmora/download/) in a vertical orientation. This new orientation has been chosen to provide more space for the front-facing TrueDepth camera. This camera is tasked with powering the Face ID feature. The TrueDepth system also has a f/2.2 7-megapixel camera for selfies. The feature means Portrait Mode and Portrait Lighting are supported in front-facing mode. With Portrait Lighting, you can dynamically adjust your photo’s lighting with ease. TrueDepth uses an infrared emitter to project more than 30,000 in a recognised pattern onto users’ faces, before photographing the dots for analysis. The function is strengthened with a proximity sensor as well as an ambient light sensor which allows output light levels to be set.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: The importance of depth
 
  With previous versions of the iPhone Plus, the depth maps were only used to blur backgrounds and make subjects pop against them. However, the iPhone X takes the depth information from the two lenses as well as the efficiency of the A11 Bionic chip to offer outstanding new special effects.
 
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to use portrait mode
 
@@ -74,17 +74,10 @@ thumbnail: https://thmb.techidaily.com/c9e9de36eb357f7db5b739ff1ada424f8276ace68
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: Video improvement
@@ -93,14 +86,20 @@ thumbnail: https://thmb.techidaily.com/c9e9de36eb357f7db5b739ff1ada424f8276ace68
 
 ![video improvement](https://images.wondershare.com/filmora/article-images/video-improvement.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -109,6 +108,13 @@ thumbnail: https://thmb.techidaily.com/c9e9de36eb357f7db5b739ff1ada424f8276ace68
  The phone has also been praised for its wide range between light and dark colours. The Face ID function has proved to be incredibly secure, unlike earlier facial recognition systems which could easily be tricked by with the use of photographs or videos. It’s now possible to be more creative than ever with your iPhone’s camera whilst benefiting from a wealth of robust security features.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -135,20 +141,17 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-experience-voice-transformation-list-of-the-best-android-recording-change-apps-for-2024/"><u>[New] Experience Voice Transformation List of the Best Android Recording Change Apps for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-expertly-mastering-file-imports-in-the-realm-of-windows-10/"><u>[New] Expertly Mastering File Imports in the Realm of Windows 10</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-flawless-photo-management-on-iphone-size-adjustment-basics/"><u>[New] Flawless Photo Management on iPhone Size Adjustment Basics</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-pinnacle-article-hook-maker/"><u>[Updated] 2024 Approved Pinnacle Article Hook Maker</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-virtuality-unveiled-evolution-of-escapism/"><u>[Updated] 2024 Approved Virtuality Unveiled Evolution of Escapism</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-essential-5k-screens-the-finest-eight-for-2024/"><u>[Updated] Essential 5K Screens The Finest Eight for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-ultimate-list-best-7-camcorders-for-waterproof-use/"><u>[Updated] In 2024, The Ultimate List Best 7 Camcorders for Waterproof Use</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-spin-stitch-and-swirl-videos-on-your-android-tabletphone-for-2024/"><u>[Updated] Spin, Stitch & Swirl Videos on Your Android Tablet/Phone for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-t-view-mkv-movies-content-on-xiaomi-redmi-k70e-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Can’t view MKV movies content on Xiaomi Redmi K70E</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-oneplus-eight-t-evaluation-a-quick-device-hindered-by-flawed-photography-features/"><u>Comprehensive OnePlus Eight T Evaluation: A Quick Device Hindered by Flawed Photography Features</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Oppo K11x | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/internet-extension-fb-stories-grabber-for-2024/"><u>Internet Extension Fb Stories Grabber for 2024</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-how-to-run-windows-and-mac-os-video-editing-apps-on-your-chromebook/"><u>New In 2024, How to Run Windows and Mac OS Video Editing Apps on Your Chromebook</u></a></li>
-<li><a href="https://extra-information.techidaily.com/transforming-ideas-into-impactful-scenes-through-dialogue/"><u>Transforming Ideas Into Impactful Scenes Through Dialogue</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/1725290114002-windows-10/"><u>Windows 10向け最適化の無料動画ダウンローダーランキング - 高速・高解像度対応</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-unlocking-student-potential-with-instructional-videos/"><u>[New] 2024 Approved Unlocking Student Potential with Instructional Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-leading-edge-photography-the-best-4k-mirrorless-cameras/"><u>[New] In 2024, Leading Edge Photography The Best 4K Mirrorless Cameras</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-top-10-secrets-for-recording-sports-events-live-online-for-2024/"><u>[New] Top 10 Secrets for Recording Sports Events Live Online for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-newest-list-of-engaging-podcast-dialogues/"><u>[Updated] 2024 Approved Newest List of Engaging Podcast Dialogues</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-maximize-efficiency-with-wmp-for-audio-conversion/"><u>[Updated] In 2024, Maximize Efficiency with WMP for Audio Conversion</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-shifting-screenshots-from-tif-to-common-formats-mac-for-2024/"><u>[Updated] Shifting Screenshots From .tif to Common Formats (Mac) for 2024</u></a></li>
+<li><a href="https://discover-community.techidaily.com/windows-11-10-8-7nas/"><u>自動バックアップ機能の活用:Windows 11, 10, 8, 7でNASを利用する</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-lava-yuva-3-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Lava Yuva 3</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-honor-magic-6-lite-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Honor Magic 6 Lite via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-zte-nubia-flip-5g-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do ZTE Nubia Flip 5G Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-mycams-evolution-a-new-era-of-home-video-capture/"><u>In 2024, MyCam's Evolution A New Era of Home Video Capture</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-realme-11x-5g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Realme 11X 5G Device Top 5 Picks to Remove Android Locks</u></a></li>
 </ul></div>
 
