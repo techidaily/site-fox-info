@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Nostalgia Frame  Portraits on the X Phone\""
-date: 2024-11-02T18:46:07.643Z
-updated: 2024-11-07T19:47:29.811Z
+date: 2024-11-13T16:58:38.159Z
+updated: 2024-11-17T16:05:29.930Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,13 @@ In this article, we are going to show you how to take photos in Portrait Mode, o
 * [Part 1: For iPhone 7 Plus/8 Plus/X users](#part1)
 * [Part 1: For iPhone 8, 7 or older iPhones users](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### For iPhone 7 Plus/8 Plus/X users
 
  **Using the Portrait Mode on an iPhone**
@@ -50,19 +57,6 @@ However, the Portrait Mode is only featured on iOS 10.1 or some more recent vers
 
 ![portrait-mode-iphone](https://images.wondershare.com/filmora/article-images/portrait-mode-iphone.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Image resource: 9to5mac
 
 Portrait mode enables you to set the timer, turn off the flash or apply photo filters, but it doesn't allow its users to create live photos. When using this mode you only have to apply basic photography rules, like don't point your camera in the direction from which the light is coming from and do your best to get within a reasonable distance from the subject of your photos. If you decide to take photos in this mode indoors, you may get slightly underwhelming results because it still doesn't perform great in low-light conditions.
@@ -72,13 +66,6 @@ Portrait mode enables you to set the timer, turn off the flash or apply photo fi
 The iPhone X can also take Portrait selfies thanks to the TrueDepth front camera system. Unlike the rear camera system, the front-facing camera doesn't have multiple physical camera lenses; instead, it uses sensors from the TrueDepth system to measure a precise depth map.
 
 ![portrait-mode-selfie-iphone-x](https://images.wondershare.com/filmora/article-images/portrait-mode-selfie-iphone-x.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Image resource: imore
 
@@ -95,6 +82,19 @@ If there is not enough light or if you are too far away from the camera, the app
 **Compatible with:** iOS 8.0 or later
 
 ![ezy-watermark-lite-photo](https://images.wondershare.com/filmora/article-images/ezy-watermark-lite-photo.jpg)
+
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Older iPhone models may not have a twin-lens system, but with the aid of a camera app such as FabFocus, iPhone photographers can easily take photos with smooth blurry backgrounds. The Automatic Depth of Field and Bokeh options enable you to add as much blur as you want to your photos and create DSLR-like images. The app also contains basic photo editing tools that can be used to touch-up the photo before you share it with your friends.
 
@@ -117,10 +117,10 @@ Advertised as the best depth-of-field app for iPhones on the market today, Tadaa
 ![signature-photo-annotator](https://images.wondershare.com/filmora/article-images/signature-photo-annotator.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The term Bokeh comes from the Japanese language and it represents the aesthetic quality of the out of focus parts of photos. The Bokeh Lens app is designed to make the process of creating a shallow depth of field as fast and fun as it can be. The app lets you fine-tune the level of bokeh you are creating a photo, while it also allows you to select the areas you want to keep in focus.
@@ -138,10 +138,10 @@ The plethora of blur options provided by the Defocus camera app is impressive. D
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -169,19 +169,16 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-diy-360-videos-using-your-smartphone-for-2024/"><u>[New] DIY 360 Videos Using Your Smartphone for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-frame-perfect-our-top-10-photo-lenses-list-for-2024/"><u>[New] Frame Perfect Our Top 10 Photo Lenses List for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-framing-brilliance-nikon-d500s-high-definition-journey-for-2024/"><u>[New] Framing Brilliance Nikon D500's High-Definition Journey for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-all-you-need-to-know-about-adding-apple-music-to-video/"><u>[New] In 2024, All You Need to Know About Adding Apple Music to Video</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-pixel-perfect-free-mobile-photography-booster/"><u>[Updated] 2024 Approved Pixel Perfect Free Mobile Photography Booster</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-undo-motion-recapturing-video-from-mobile-devices/"><u>2024 Approved Undo Motion Recapturing Video From Mobile Devices</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/efficiently-change-your-facebook-videos-into-mp3-songs/"><u>Efficiently Change Your Facebook Videos Into MP3 Songs</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/gdpr-compliant-data-handling-clause-secure-your-information-with-abbyys-cloud-services/"><u>GDPR Compliant Data Handling Clause – Secure Your Information with ABBYY's Cloud Services</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-watch-the-x-men-movies-in-order/"><u>How to Watch the X-Men Movies in Order</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-bite-sized-biographical-look/"><u>In 2024, Bite-Sized Biographical Look</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-riding-the-wave-of-solitary-podcast-popularity/"><u>In 2024, Riding the Wave of Solitary Podcast Popularity</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ating-the-seo-maze-5-tactics-for-top-tier-views-for-2024/"><u>Navigating the SEO Maze 5 Tactics for Top-Tier Views for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96190510-9781507209479-the-house-witch/"><u>The House Witch | Free Book</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Realme Narzo N53? | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-moving-data-quick-techniques-to-send-files-to-your-computer/"><u>[New] In 2024, Moving Data Quick Techniques to Send Files to Your Computer</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-open-source-fb-songs-downloader/"><u>[New] In 2024, Open Source FB Songs Downloader</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-ultimate-screen-recorder-guide-apeak-vs-others/"><u>[New] In 2024, Ultimate Screen Recorder Guide – Apeak vs Others</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1-best-live-streaming-apps-discover-manycam-and-other-virtual-webcams-for-seamless-broadcasts/"><u>1. Best Live Streaming Apps: Discover ManyCam and Other Virtual Webcams for Seamless Broadcasts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-refine-visuals-effortlessly-editing-videos-using-storyremix-in-windows-11/"><u>2024 Approved Refine Visuals Effortlessly Editing Videos Using StoryRemix in Windows 11</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-exploring-the-world-of-digital-color-grading/"><u>In 2024, Exploring the World of Digital Color Grading</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-frameful-fun-essential-tools-and-sites-for-photoframe-artistry/"><u>In 2024, Frameful Fun Essential Tools and Sites for Photoframe Artistry</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-from-novice-to-nirvana-transform-your-instagram-edits/"><u>In 2024, From Novice to Nirvana Transform Your Instagram Edits</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mohu-leaf-30-reviewed-striking-price-performance-harmony-in-tv-antennas/"><u>Mohu Leaf 30 Reviewed: Striking Price-Performance Harmony in TV Antennas</u></a></li>
+<li><a href="https://fox-info.techidaily.com/parable-pedagogues-group-ultimate-eight-for-2024/"><u>Parable Pedagogues Group - Ultimate Eight for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/restoring-windows-photo-viewer-in-windows-10-step-by-step-guide/"><u>Restoring Windows Photo Viewer in Windows 10 Step-by-Step Guide</u></a></li>
 </ul></div>
 

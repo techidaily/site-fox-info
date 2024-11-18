@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Radiant Realities  Setting Up for Standout Videos\""
-date: 2024-09-11T05:02:53.538Z
-updated: 2024-09-12T05:02:53.538Z
+date: 2024-11-16T05:49:06.809Z
+updated: 2024-11-18T03:59:11.532Z
 tags: 
   - screen-recording
   - ai video
@@ -48,45 +48,11 @@ For this tutorial, we will use the Three-Point Lighting technique:
 
 ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
 ##### Step2 Set the Fill Light
 
 ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
 
@@ -106,57 +72,15 @@ Then, we also have a LED ring light that shines toward the camera. The light add
 
 ![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
 
 ![other small led lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-6.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 After setting up all the lighting above, you can take a look at the comparison below:
 
 **Using Key Light only**
 
 ![using key light only](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-7.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 **Using Key Light + Fill + Backlight**
 
@@ -168,19 +92,18 @@ We usually set the lights around 50% brightness and a color temperature of 5600K
 
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Summary
 
@@ -214,4 +137,24 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-how-to-make-a-gif-meme/"><u>[New] How to Make A GIF Meme</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-premier-imagery-unboxing-analysis/"><u>[New] In 2024, Premier Imagery Unboxing Analysis</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-masterclass-unboxing-and-testing-lgs-usb-c-hdr-display/"><u>[New] Masterclass Unboxing and Testing LG's USB-C HDR Display</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-the-elite-circle-of-digital-titling-top-5-revealed/"><u>[New] The Elite Circle of Digital Titling Top 5 Revealed</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-get-ready-to-save-space-with-these-38-exceptional-android-compressor-apps/"><u>[Updated] 2024 Approved Get Ready to Save Space with These 38 Exceptional Android Compressor Apps</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-focusfulness-selecting-online-video-augmenters-for-2024/"><u>[Updated] Focusfulness Selecting Online Video Augmenters for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-foremost-zooid-beginnings-guide/"><u>[Updated] Foremost Zooid Beginnings Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-3dr-a-solo-traverse-into-future-tech-world/"><u>[Updated] In 2024, '3DR' A Solo Traverse Into Future Tech World</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-leading-edge-screen-snapshot-software/"><u>[Updated] In 2024, Leading Edge Screen Snapshot Software</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-procleanse-top-tier-background-removal-tool/"><u>[Updated] ProCleanse Top-Tier Background Removal Tool</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/fixed-device-init-on-win-os/"><u>Fixed Device Init on Win OS</u></a></li>
+<li><a href="https://fox-info.techidaily.com/inside-track-to-optimizing-adobe-and-selective-non-adobe-solutions-for-2024/"><u>Inside Track to Optimizing Adobe and Selective Non-Adobe Solutions for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/the-ultimate-checklist-for-saving-and-recovering-notes/"><u>The Ultimate Checklist for Saving and Recovering Notes</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-ultimate-vision-quest-samsung-galaxy-s8s-4k-prowess-for-2024/"><u>The Ultimate Vision Quest Samsung Galaxy S8's 4K Prowess for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshoot-and-fix-windows-10-bluetooth-connectivity-problems-fast/"><u>Troubleshoot and Fix Windows 10 Bluetooth Connectivity Problems Fast</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-elevating-your-show-top-podcast-hosting-services-unveiled/"><u>Updated In 2024, Elevating Your Show Top Podcast Hosting Services Unveiled</u></a></li>
+<li><a href="https://apple-account.techidaily.com/why-apple-account-disabled-on-your-apple-iphone-se-how-to-fix-by-drfone-ios/"><u>Why Apple Account Disabled On your Apple iPhone SE? How to Fix</u></a></li>
+</ul></div>
 

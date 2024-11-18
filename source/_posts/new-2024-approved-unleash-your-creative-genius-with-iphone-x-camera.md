@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Unleash Your Creative Genius with iPhone X Camera\""
-date: 2024-09-11T05:02:51.916Z
-updated: 2024-09-12T05:02:51.916Z
+date: 2024-11-14T02:20:21.051Z
+updated: 2024-11-18T03:18:35.559Z
 tags: 
   - screen-recording
   - ai video
@@ -37,53 +37,11 @@ thumbnail: https://thmb.techidaily.com/178e67f42d6ae355b4752027c9ad22197720cab14
 
  The phone has a brand new rear [camera with two lenses](https://tools.techidaily.com/wondershare/filmora/download/) in a vertical orientation. This new orientation has been chosen to provide more space for the front-facing TrueDepth camera. This camera is tasked with powering the Face ID feature. The TrueDepth system also has a f/2.2 7-megapixel camera for selfies. The feature means Portrait Mode and Portrait Lighting are supported in front-facing mode. With Portrait Lighting, you can dynamically adjust your photo’s lighting with ease. TrueDepth uses an infrared emitter to project more than 30,000 in a recognised pattern onto users’ faces, before photographing the dots for analysis. The function is strengthened with a proximity sensor as well as an ambient light sensor which allows output light levels to be set.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Part 2: The importance of depth
 
  With previous versions of the iPhone Plus, the depth maps were only used to blur backgrounds and make subjects pop against them. However, the iPhone X takes the depth information from the two lenses as well as the efficiency of the A11 Bionic chip to offer outstanding new special effects.
 
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Part 3: How to use portrait mode
 
@@ -103,19 +61,19 @@ thumbnail: https://thmb.techidaily.com/178e67f42d6ae355b4752027c9ad22197720cab14
 
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-
-
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: Video improvement
 
@@ -123,19 +81,12 @@ thumbnail: https://thmb.techidaily.com/178e67f42d6ae355b4752027c9ad22197720cab14
 
 ![video improvement](https://images.wondershare.com/filmora/article-images/video-improvement.JPG)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 **You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -147,19 +98,12 @@ thumbnail: https://thmb.techidaily.com/178e67f42d6ae355b4752027c9ad22197720cab14
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Ollie Mattison
 
@@ -184,4 +128,22 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-quick-red-eye-photo-fixes-on-your-iphone-no-money-needed-for-2024/"><u>[New] Quick Red-Eye Photo Fixes on Your iPhone, No Money Needed for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-10-passport-photo-generator-download-print-for-free-for-2024/"><u>[Updated] 10 Passport Photo Generator Download, Print for Free for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-engaging-entrances-crafting-captivating-conversations/"><u>[Updated] 2024 Approved Engaging Entrances Crafting Captivating Conversations</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-action-camera-buying-for-the-absolute-novice-2023-guide-for-2024/"><u>[Updated] Action Camera Buying for the Absolute Novice - 2023 Guide for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-hdr-video-power-windows-edition-explained-for-2024/"><u>[Updated] HDR Video Power Windows Edition Explained for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-minecraft-shapes-magic-creating-perfect-circles-spheres/"><u>[Updated] In 2024, Minecraft Shapes Magic Creating Perfect Circles, Spheres</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-initiate-insight-an-entryway-guide-to-online-product-critique-channels/"><u>[Updated] Initiate Insight An Entryway Guide to Online Product Critique Channels</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-prime-selection-best-10-free-online-subtitle-editors/"><u>[Updated] Prime Selection Best 10 Free Online Subtitle Editors</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-quick-and-quirky-meme-mastery-generator-junction/"><u>[Updated] Quick & Quirky Meme Mastery Generator Junction</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/cutting-edge-tools-for-targeted-photo-blurring/"><u>Cutting-Edge Tools for Targeted Photo Blurring</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/free-masterpieces-in-premiere-pro-templates-2023/"><u>Free Masterpieces in Premiere Pro Templates, 2023</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-itel-a60s-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Itel A60s? | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-evaluating-available-vs-desired-vr-content-today/"><u>In 2024, Evaluating Available Vs. Desired VR Content Today</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-the-swift-solution-for-effortless-srt-to-text-txt-transform/"><u>In 2024, The Swift Solution for Effortless SRT to Text (TXT) Transform</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-shrink-your-files-9-best-free-video-compression-tools-for-windows-10-for-2024/"><u>Updated Shrink Your Files 9 Best Free Video Compression Tools for Windows 10 for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Short Track Olympics - Highlights From '22\""
-date: 2024-11-02T19:25:10.986Z
-updated: 2024-11-07T16:02:07.227Z
+date: 2024-11-16T03:53:40.012Z
+updated: 2024-11-17T17:08:47.200Z
 tags: 
   - screen-recording
   - ai video
@@ -41,57 +41,57 @@ Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
 
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
 
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -126,10 +126,10 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
@@ -165,19 +165,15 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-the-insiders-look-at-capturing-roblox-games-for-macos-users/"><u>[New] 2024 Approved The Insider's Look at Capturing Roblox Games for macOS Users</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-unlock-your-devices-full-potential-with-io-screener/"><u>[New] In 2024, Unlock Your Device's Full Potential with IO Screener</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-culinary-cinematography-step-by-step-recipe-tutorials/"><u>[Updated] 2024 Approved Culinary Cinematography Step-by-Step Recipe Tutorials</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-character-choreography-compendiums-for-2024/"><u>[Updated] Character Choreography Compendiums for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-premier-audio-picks-exceptional-episode-selections/"><u>[Updated] Premier Audio Picks - Exceptional Episode Selections</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-quick-guide-to-capturing-timelapses-with-gopro-hero5/"><u>[Updated] Quick Guide to Capturing Timelapses with GoPro Hero5</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-best-script-innovation-place/"><u>2024 Approved Best Script Innovation Place</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-secrets-to-more-likes-on-your-tiktok-unpacks/"><u>2024 Approved Secrets to More Likes on Your TikTok Unpacks</u></a></li>
-<li><a href="https://win-deluxe.techidaily.com/conversion-gratuite-de-fichiers-aac-en-format-aiff-sur-internet-tutomovavi/"><u>Conversion Gratuite De Fichiers AAC en Format AIFF Sur Internet - TutoMovavi</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-best-mobile-app-dev-editing-systems/"><u>In 2024, Best Mobile App Dev Editing Systems</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-scheduling-virtual-gatherings-with-zoom-an-android-users-handbook/"><u>In 2024, Scheduling Virtual Gatherings with Zoom An Android User's Handbook</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-top-notch-solutions-for-disabled-apple-id-from-apple-iphone-13-pro-making-it-possible-by-drfone-ios/"><u>In 2024, Top-Notch Solutions for Disabled Apple ID From Apple iPhone 13 Pro Making It Possible</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/tech-reviews-decoded-a-journey-through-toms-hardware/"><u>Tech Reviews Decoded: A Journey Through Tom's Hardware</u></a></li>
-<li><a href="https://fox-that.techidaily.com/top-10-solutions-to-stop-your-iphone-applications-from-frequent-crashes/"><u>Top 10 Solutions to Stop Your iPhone Applications From Frequent Crashes</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-art-of-assembly-crafting-your-personalized-4k-video-editor-pc/"><u>[New] 2024 Approved The Art of Assembly Crafting Your Personalized 4K Video Editor PC</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-enhancing-audio-visual-experience-with-youtube-music-insertion/"><u>[Updated] Enhancing Audio-Visual Experience with YouTube Music Insertion</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-lava-storm-5g-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Lava Storm 5G Activity | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/best-value-for-money-8-ace-free-srt-apps-reviewed/"><u>Best Value for Money 8 Ace Free SRT Apps Reviewed</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/can-computers-develop-a-sense-of-humour-a-deep-dive-into-the-origins-of-laptop-pcs-and-the-progress-of-vpn-solutions/"><u>Can Computers Develop a Sense of Humour? A Deep Dive Into the Origins of Laptop PCs & The Progress of VPN Solutions</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-beginners-guide-to-inconspicuous-image-tinkering/"><u>In 2024, Beginner's Guide to Inconspicuous Image Tinkering</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-boosting-your-youtube-views-a-strategy-guide/"><u>In 2024, Boosting Your YouTube Views A Strategy Guide</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-oppo-reno-10-pro-5g-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Oppo Reno 10 Pro 5G Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-step-into-fantasy-with-these-samsung-gear-vr-titles/"><u>In 2024, Step Into Fantasy with These Samsung Gear VR Titles</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/microsoft-driver-download-and-update-in-windows-1187-easily/"><u>Microsoft Driver Download & Update in Windows 11/8/7 Easily</u></a></li>
 </ul></div>
 

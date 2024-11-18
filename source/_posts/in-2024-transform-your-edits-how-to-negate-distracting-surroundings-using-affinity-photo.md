@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Transform Your Edits  How to Negate Distracting Surroundings Using Affinity Photo\""
-date: 2024-11-06T17:46:17.998Z
-updated: 2024-11-07T19:11:22.655Z
+date: 2024-11-12T03:02:09.319Z
+updated: 2024-11-18T04:58:06.399Z
 tags: 
   - screen-recording
   - ai video
@@ -46,21 +46,22 @@ Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
 
@@ -75,10 +76,16 @@ Step5 In the last step, press the **"Delete"** key on your keyboard to remove th
 Now, hit **"Control+D"** to deselect the selection. Alternatively, you can click **"Select"** in the top toolbar and choose the **"Deselect"** option. Finally, you can export your file using the **"File" > "Export"** option.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Remove a Busy Background in Affinity Designer
@@ -110,13 +117,6 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The Best Alternative of Affinity Photo
 
 Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
@@ -124,6 +124,13 @@ Since Affinity Photo is a desktop software available for a one-time purchase of 
 Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
@@ -160,10 +167,10 @@ Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.co
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
@@ -181,19 +188,6 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Create a free account for easier future access.
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
-
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -229,22 +223,24 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-essential-guide-for-prime-webcams-in-youtube-live-broadcasts-for-2024/"><u>[New] Essential Guide for Prime Webcams in YouTube Live Broadcasts for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-optimizing-story-video-playback-rate-on-instagram-app/"><u>[New] In 2024, Optimizing Story Video Playback Rate on Instagram App</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-resolve-instagrams-video-problems-swiftly-for-2024/"><u>[New] Resolve Instagram's Video Problems Swiftly for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-full-facetune-review-the-pathway-to-picture-perfection/"><u>[Updated] 2024 Approved Full Facetune Review The Pathway to Picture Perfection</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-perfecting-altered-text-aesthetics-in-visual-media/"><u>[Updated] 2024 Approved Perfecting Altered Text Aesthetics in Visual Media</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-renewed-list-of-questions-to-inspire-podcast-attendees/"><u>[Updated] In 2024, Renewed List of Questions to Inspire Podcast Attendees</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-proven-techniques-for-captivating-online-audiences-via-zoom-and-youtube-live/"><u>[Updated] Proven Techniques for Captivating Online Audiences via Zoom & YouTube Live</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-the-apex-of-narrative-content-youtubes-finest-in-23/"><u>[Updated] The Apex of Narrative Content YouTube’s Finest in '23</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-iphone-video-tips-trim-to-size-with-precision-cutting/"><u>2024 Approved IPhone Video Tips Trim to Size with Precision Cutting</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-oppo-a78-5gwithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Oppo A78 5Gwith/without a PC</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-oppo-f25-pro-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Oppo F25 Pro 5G? Here Is the Answer | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/ink-your-imagination-a-critical-review-of-the-bestiarys-8-iphone-drawing-apps-for-2024/"><u>Ink Your Imagination A Critical Review of the Bestiary's 8 iPhone Drawing Apps for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-realme-v30t-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Realme V30T with and without jailbreak | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/solving-the-issue-steps-when-humans-cannot-launch-happens/"><u>Solving the Issue: Steps When 'Humans Cannot Launch' Happens</u></a></li>
-<li><a href="https://fox-info.techidaily.com/the-perfect-blur-techniques-for-smoother-photo-edits-for-2024/"><u>The Perfect Blur Techniques for Smoother Photo Edits for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/troubleshooting-guide-successfully-connecting-a-wd-ses-drive-using-updated-usb-devices-from-2011-forward/"><u>Troubleshooting Guide: Successfully Connecting a WD SES Drive Using Updated USB Devices From 2011 Forward</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/unveiling-the-differences-between-iphone-15-pro-max-and-samsungs-latest-galaxy-beast/"><u>Unveiling the Differences Between iPhone 15 Pro Max & Samsung's Latest Galaxy Beast</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-baleful-blackness-clashing-with-splendid-silverliness/"><u>[New] Baleful Blackness Clashing with Splendid Silverliness</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/inding-your-youtube-stored-melodies-easily/"><u>[New] Finding Your YouTube-Stored Melodies Easily</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-polarr-photo-editor-demystified-in-depth-analysis/"><u>[New] In 2024, Polarr Photo Editor Demystified In-Depth Analysis</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-unlocking-the-full-potential-of-zoom-and-fb-live-broadcasts/"><u>[New] Unlocking the Full Potential of ZOOM & FB Live Broadcasts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-obs-tutorial-broadcasting-on-youtube-from-home/"><u>[Updated] 2024 Approved OBS Tutorial Broadcasting on Youtube From Home</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-detailed-steps-to-using-azure-speech-recognition-for-2024/"><u>[Updated] Detailed Steps to Using Azure Speech Recognition for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-from-chaos-to-calm-quick-edits-for-your-overwhelming-tiktok-drafters-for-2024/"><u>[Updated] From Chaos to Calm Quick Edits for Your Overwhelming TikTok Drafters for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-syma-x8c-for-beginner-pilots/"><u>[Updated] In 2024, Syma X8C for Beginner Pilots</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-vintage-viewing-a-1992-goofy-film-retrospective/"><u>[Updated] In 2024, Vintage Viewing A 1992 Goofy Film Retrospective</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-seamless-video-creation-premiere-pro-free-2023/"><u>[Updated] Seamless Video Creation - Premiere Pro FREE 2023</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-secrets-behind-top-performers-in-online-forums-like-reddit/"><u>[Updated] The Secrets Behind Top Performers in Online Forums Like Reddit</u></a></li>
+<li><a href="https://fox-info.techidaily.com/bringing-life-to-slides-adding-audio-effectively-powerpoint-for-2024/"><u>Bringing Life to Slides Adding Audio Effectively (PowerPoint) for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/guide-to-prime-gopro-protectors-top-10-reviewed-for-2024/"><u>Guide to Prime GoPro Protectors - Top 10 Reviewed for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-optimizing-video-capture-with-mov-on-windows-10/"><u>In 2024, Optimizing Video Capture with MOV on Windows 10</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-tips-and-tricks-for-iphone-low-light-photography/"><u>In 2024, Tips and Tricks for iPhone Low Light Photography</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-from-infinix-note-30-5g-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Infinix Note 30 5G FRP Bypass</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mastering-cover-letters-a-step-by-step-guide-with-chatgpt/"><u>Mastering Cover Letters: A Step-by-Step Guide with ChatGPT</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-oneplus-12-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your OnePlus 12 Phone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ultimate-affordable-asmr-recording-setup-excellence-for-2024/"><u>Ultimate Affordable ASMR Recording Setup Excellence for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Photo Funnies  The Ultimate Guide to Chuckles & Tech for 2024\""
-date: 2024-11-04T16:12:07.917Z
-updated: 2024-11-07T18:32:01.141Z
+date: 2024-11-17T05:09:31.884Z
+updated: 2024-11-17T19:19:55.582Z
 tags: 
   - screen-recording
   - ai video
@@ -160,24 +160,18 @@ This interactive online editing tool will add more fun and adventure to your lif
 * [Top Funny Photo Apps for iPhone and iPad](#part2)
 * [Top Funny Photo Apps for Android](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Top 10 Funny Photo Editor Apps for iPhone and iPad
 
 #### 1. [InstaRage](https://itunes.apple.com/us/app/instarage-photo-editor-meme-rage-face-stickers/id592632102?mt=8)
 
 ![funny-instarage](https://images.wondershare.com/filmora/article-images/funny-instarage.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 It is time to use storage to make funny photos with popular memes. It will help you to troll your friends with lots of annoying faces.
 
@@ -185,11 +179,31 @@ It is time to use storage to make funny photos with popular memes. It will help 
 
 ![funny-epica2](https://images.wondershare.com/filmora/article-images/funny-epica2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 It is well known as second-generation for cameras because it makes everything cool with new scenes, new special effects, new poses, and many more.
 
 #### 3. [InstaMeme](https://itunes.apple.com/us/app/instameme-the-best-meme-creator-free/id578523295?mt=8)
 
 ![funny-instameme](https://images.wondershare.com/filmora/article-images/funny-instameme.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Instameme will make your photos spicier with interesting memes and you can also give a challenge to your grandma to see her new funny face.
 
@@ -202,13 +216,6 @@ It can easily combine a number of photos to generate something very funny quickl
 #### 5. [Camera Face Design](https://itunes.apple.com/us/app/camera-face-design-magic-fast/id892564958?mt=8&ign-mpt=uo%3D4)
 
 ![funny-camera-face-design](https://images.wondershare.com/filmora/article-images/funny-camera-face-design.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Simply add your face to this tool and it will soon make lots of fun about it. If you can bear that laughter then go ahead with all the silly things on this app.
 
@@ -234,18 +241,24 @@ Let this app grow a mustache on your face and soon you will be able to see a new
 
 ![funny-memeyou](https://images.wondershare.com/filmora/article-images/funny-memeyou.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you want to develop your own meme photos with tons of impressive faces then go to Meme You and start enjoy editing.
 
 #### 10. [Animal Face](https://itunes.apple.com/us/app/animal-face-editor-photo-booth-funny-animal-head-stickers/id816231635?mt=8)
 
 ![funny-animal-face](https://images.wondershare.com/filmora/article-images/funny-animal-face.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 It is really funny to replace your face with an animal faces but you can apply this trick to your friends in a group photo.
 
@@ -255,18 +268,24 @@ It is really funny to replace your face with an animal faces but you can apply t
       * [Top Funny Photo Apps for iPhone and iPad](#part2)
       * [Top Funny Photo Apps for Android](#part3)
 
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Top 9 Funny Photo Editor Apps for Android
 
 #### 1. [Funny Image Photo](https://play.google.com/store/apps/details?id=com.FunnyImagesPhotoEditor)
 
 ![funny-funny-image-photo](https://images.wondershare.com/filmora/article-images/funny-funny-image-photo.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Photography is all about fun and it is well proven by this android compatible app. So if you are searching for a free of cost photo editing platform to have real fun on your phone then simply go to Funny Image Photo and get started with real adventure.
 
@@ -280,6 +299,19 @@ Create instant fun in a serious class by simply editing your friend’s photo in
 
 ![funny-imagefaker](https://images.wondershare.com/filmora/article-images/funny-imagefaker.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You should definitely check the image faker at once because it has so many things to explore and will help you to choose photos easily from the gallery for editing. There is a wide collection of illusions, photomontages, backgrounds, and cool wallpapers. The final results of this editing application can be easily shared on Facebook or can be transferred via MMS.
 
 #### 4. [Funny Camera](https://play.google.com/store/apps/details?id=com.photo.funnycams)
@@ -291,6 +323,19 @@ The funny Camera app is quite simple but it can develop perfect funny frames on 
 #### 5. [Doodle Text](https://play.google.com/store/apps/details?id=com.DoodleText)
 
 ![funny-doodle-text](https://images.wondershare.com/filmora/article-images/funny-doodle-text.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Are you a crazy fan of Doodling? If yes then this android app can help you to do lots of fun with cool filters and effects. It will help users to draw their personal creative messages and they can be easily transferred to friends for fun.
 
@@ -304,25 +349,11 @@ If you need an android compatible app with quick fun facts then Camera Illusion 
 
 ![funny-photo-warp](https://images.wondershare.com/filmora/article-images/funny-photo-warp.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Let us start a challenge of laughter with long entertaining hours on Photo Warp. Update your own faces here or make a try with your friends. It will soon generate a classic but funny prank as an output. Photo Warp can make your face flatter, thinner, or distort and bend it with creative effects.
 
 #### 8. [Lightbox Photos](https://play.google.com/store/apps/details?id=com.lightbox.android.photos)
 
 ![funny-lightbox](https://images.wondershare.com/filmora/article-images/funny-lightbox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 If you are already tired of Instagram then it is time to step ahead into Lightbox Photos as it makes an impressive substitute for Instagram lovers. Photos created on Lightbox can be easily shared over the internet on popular social media applications like Facebook, Flicker, Twitter, and many more.
 
@@ -336,25 +367,18 @@ If you want to change your image background and make a photo that you have trave
 
 [![Download Win Version](https://photo.wondershare.com/vis-201709/images/fotobtn-win.png)](https://download.wondershare.com/fotophire%5Ffull3316.exe)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Wanna make an impressive photo slideshow with music, text, filters, overlays, funny elements, and effects in minutes? Click the free download button below and try Filmora for free and make your photo slideshows and videos into the next level.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -381,19 +405,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-pros-picks-5-best-low-frame-rate-recorders/"><u>[Updated] In 2024, Pros' Picks 5 Best Low Frame Rate Recorders</u></a></li>
-<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-honor-90-gt-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Honor 90 GT without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/capturing-motion-spectacle-with-polaroid-camplus-cube/"><u>Capturing Motion Spectacle with Polaroid Cam+ Cube</u></a></li>
-<li><a href="https://fox-info.techidaily.com/essential-tips-for-choosing-tiktok-screenshots-for-2024/"><u>Essential Tips for Choosing TikTok Screenshots for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-identify-some-outdated-hardware-drivers-with-windows-device-manager-on-windows-11107-by-drivereasy-guide/"><u>How to identify some outdated hardware drivers with Windows Device Manager on Windows 11/10/7</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-decoding-chroma-techniques-from-raw-footage-to-final-cut/"><u>In 2024, Decoding Chroma Techniques From Raw Footage to Final Cut</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Honor X50 GT | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-the-most-effective-ways-to-bypass-iphone-15-plus-activation-lock-by-drfone-ios/"><u>In 2024, The Most Effective Ways to Bypass iPhone 15 Plus Activation Lock</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/introducing-the-elite-of-smartwatches-the-all-new-luxurious-galaxy-watch-ultra-by-samsung/"><u>Introducing the Elite of Smartwatches: The All-New, Luxurious Galaxy Watch Ultra by Samsung</u></a></li>
-<li><a href="https://games-able.techidaily.com/refresh-play-joystick-upgrade-for-the-switch/"><u>Refresh Play: Joystick Upgrade for the Switch</u></a></li>
-<li><a href="https://techtrends.techidaily.com/resolve-your-pcs-d3dx924dll-error-a-step-by-step-solution/"><u>Resolve Your PC's d3dx9_24.dll Error – A Step-by-Step Solution</u></a></li>
-<li><a href="https://win11.techidaily.com/tackling-file-system-problems-in-windows-11-os/"><u>Tackling File System Problems in Windows 11 OS</u></a></li>
-<li><a href="https://fox-info.techidaily.com/thankful-discoveries-unlimited-outro-options/"><u>Thankful Discoveries Unlimited Outro Options</u></a></li>
-<li><a href="https://fox-info.techidaily.com/ultimate-20-pubg-photo-mashups-without-copyrights-for-2024/"><u>Ultimate 20 PUBG Photo Mashups, Without Copyrights for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-digital-creativity-unleashed-changing-numbers-in-tiktok-for-2024/"><u>[New] Digital Creativity Unleashed Changing Numbers in TikTok for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-crafting-color-convincingness-like-a-pro/"><u>[Updated] Crafting Color Convincingness Like a Pro</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-experts-choice-top-16-no-cost-viewers/"><u>[Updated] Expert's Choice Top 16 No-Cost Viewers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-enriching-storytelling-the-magic-of-adding-music-to-reels/"><u>[Updated] In 2024, Enriching Storytelling The Magic of Adding Music to Reels</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-innovative-strategies-for-image-collections-procurement/"><u>[Updated] In 2024, Innovative Strategies for Image Collections Procurement</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-the-essential-guide-to-live-broadcasts-optimizing-with-obs-for-youtube-and-twitch/"><u>[Updated] In 2024, The Essential Guide to Live Broadcasts Optimizing with OBS for YouTube & Twitch</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-comprehensive-guide-to-crafting-professional-haul-videos/"><u>2024 Approved Comprehensive Guide to Crafting Professional Haul Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-from-sluggish-to-speedy-select-android-tools/"><u>2024 Approved From Sluggish to Speedy Select Android Tools</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/5-star-wi-fi-repeaters-ranked-highest-for-extended-range-2024-edition/"><u>5 Star Wi-Fi Repeaters Ranked Highest for Extended Range - 2024 Edition</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/descarga-directa-nuevo-codificador-av1-para-hardware-y-software-disponible-ahora/"><u>Descarga Directa - Nuevo Codificador AV1 Para Hardware Y Software Disponible Ahora</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/distinguishing-features-between-amazons-echo-dot-and-apples-homepod-mini/"><u>Distinguishing Features Between Amazon's Echo Dot and Apple's HomePod Mini</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-create-an-apple-developer-account-on-apple-iphone-14-pro-max-by-drfone-ios/"><u>How To Create an Apple Developer Account On Apple iPhone 14 Pro Max</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-mastering-the-interface-key-win11-tricks/"><u>In 2024, Mastering the Interface Key Win11 Tricks</u></a></li>
+<li><a href="https://fox-info.techidaily.com/lifting-legends-top-10-super-strong-drones-for-2024/"><u>Lifting Legends Top 10 Super-Strong Drones for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-apple-iphone-se-and-browser-drfone-by-drfone-virtual-ios/"><u>Prevent Cross-Site Tracking on Apple iPhone SE and Browser | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/solve-discord-overlay-problems-instantly-effective-tips-and-tricks/"><u>Solve Discord Overlay Problems Instantly - Effective Tips and Tricks!</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-tips-resolving-latency-in-naraka-bladestorm/"><u>Troubleshooting Tips: Resolving Latency in Naraka Bladestorm</u></a></li>
 </ul></div>
 

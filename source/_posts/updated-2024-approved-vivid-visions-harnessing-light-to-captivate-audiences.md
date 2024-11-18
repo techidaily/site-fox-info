@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Vivid Visions  Harnessing Light to Captivate Audiences\""
-date: 2024-09-11T05:02:51.784Z
-updated: 2024-09-12T05:02:51.784Z
+date: 2024-11-16T01:30:06.082Z
+updated: 2024-11-18T04:30:33.193Z
 tags: 
   - screen-recording
   - ai video
@@ -48,20 +48,6 @@ For this tutorial, we will use the Three-Point Lighting technique:
 
 ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
 ##### Step2 Set the Fill Light
@@ -74,20 +60,6 @@ The fill light is used to fill in the shadows created by the key light. It is us
 
 ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
 
 ##### Step4 Use Practical Lights
@@ -99,26 +71,6 @@ Practical lights appear on the camera to add some visual flair. It can be any li
 Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
 
 ![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
 
@@ -134,59 +86,18 @@ After setting up all the lighting above, you can take a look at the comparison b
 
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 **_3) Pro Tips: The light setting_**
 
 We usually set the lights around 50% brightness and a color temperature of 5600K.
 
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Summary
 
@@ -220,4 +131,26 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-mastering-canvass-skin-removal-an-experts-handbook/"><u>[New] 2024 Approved Mastering Canvas's Skin Removal An Expert's Handbook</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-digitizing-memories-from-stillness-to-movement-for-2024/"><u>[New] Digitizing Memories From Stillness to Movement for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-designing-an-emotional-film-flashback-frenzy/"><u>[New] In 2024, Designing an Emotional Film Flashback Frenzy</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-top-10-traffic-cams-for-superior-vehicle-tracking-for-2024/"><u>[New] Top 10 Traffic Cams for Superior Vehicle Tracking for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-android-device-capture-free-simplify-your-tech-life-for-2024/"><u>[Updated] Android Device Capture - FREE! Simplify Your Tech Life for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-ar-merging-physical-and-fictional-worlds/"><u>[Updated] AR Merging Physical and Fictional Worlds</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-grab-and-store-the-quickest-tools-to-save-social-media-videos/"><u>[Updated] Grab & Store The Quickest Tools to Save Social Media Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-how-to-toggle-pip-mode-in-ios-a-step-by-step-approach-for-2024/"><u>[Updated] How to Toggle PIP Mode in iOS A Step-by-Step Approach for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-luts-guide-to-professional-movie-coloring/"><u>[Updated] Luts Guide to Professional Movie Coloring</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-master-list-of-premium-4k-yt-converters-ranked-by-usage-for-2024/"><u>[Updated] Master List of Premium 4K YT Converters Ranked by Usage for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-simplify-curating-create-a-flawless-youtube-playlist-today/"><u>[Updated] Simplify Curating Create a Flawless YouTube Playlist Today</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-elevate-video-production-mastering-obs-on-android/"><u>2024 Approved Elevate Video Production Mastering OBS on Android</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-infinix-smart-7-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Infinix Smart 7</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/dissecting-the-mastery-of-high-definition-with-benq-sw320-monitor-for-2024/"><u>Dissecting the Mastery of High Definition with BenQ SW320 Monitor for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/expert-mac-system-for-high-definition-screen-plus-audio-recording-for-2024/"><u>Expert Mac System for High Definition Screen + Audio Recording for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/huawei-explores-innovative-approaches-drawing-insights-from-apple-and-intels-processor-design-for-the-future-of-kirin-cpu/"><u>Huawei Explores Innovative Approaches: Drawing Insights From Apple & Intel's Processor Design for the Future of Kirin CPU</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-cutting-edge-practices-for-subtle-audio-reduction-on-lumafusion/"><u>In 2024, Cutting-Edge Practices for Subtle Audio Reduction on Lumafusion</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-the-ultimate-guide-to-chrome-os-snapshotting/"><u>In 2024, The Ultimate Guide to Chrome OS Snapshotting</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-poco-c51-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Poco C51? 7 Ways to Resolve | Dr.fone</u></a></li>
+</ul></div>
 

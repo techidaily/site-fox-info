@@ -1,7 +1,7 @@
 ---
 title: "\"The 3D Photography Duel  Samsung VS LG Edition\""
-date: 2024-09-11T05:02:52.366Z
-updated: 2024-09-12T05:02:52.366Z
+date: 2024-11-15T00:30:11.365Z
+updated: 2024-11-18T02:08:19.863Z
 tags: 
   - screen-recording
   - ai video
@@ -37,26 +37,6 @@ Samsung has launched its 360 gear with the release of Galaxy S7 and Samsung S7 E
 
 ![samsung gear 360 vs lg 360cam](https://images.wondershare.com/filmora/article-images/samsung-gear-360-vs-lg-360-cam.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Part 1 Basic specs comparison
 
 _Below you can find the difference between both devices at a glance:_
@@ -81,19 +61,18 @@ _Below you can find the difference between both devices at a glance:_
 
 All these specifications can help users to make decision about best cam as per their requirement and budget but at the same time you must know about real user reviews leading to some pros and cons of these devices. Below are complete details:
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Part 2 Pros and Cons
 
@@ -114,37 +93,23 @@ All these specifications can help users to make decision about best cam as per t
 | \-                                                           | Not water-resistant                                                                        |                                                                                      |
 | \-                                                           | Doesn’t serve with internal storage space                                                  |                                                                                      |
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Part 3 Image quality comparison
 
 When we watch 360 videos on tablet or smartphone then it leads to immersive experience; a facility of VR headset can add more features to your 360 video world. In case of Gear 360 you will be able to enjoy 4K resolution whereas LG 360 serves with 2K resolution only thus [Samsung Gear 360](https://tools.techidaily.com/wondershare/filmora/download/) will be better choice in this case. On the other side if we talk about audio abilities then LG360 has an edge over Samsung Gear 360 because of its ability to record 5.1 level surround sounds that is major requirement of a 360 degree video. The Gear 360 possess stereo record feature that can capture voice only in two directions thus resultant audio in scenes is not that much clear. Moving forward to more technical specifications, the bit rate – well known as quality of image with resolution is 60MB/second in case of Gear 360 whereas LG360 cam limits up to 19MB/second, this makes a big difference in quality. If we count features then Samsung gear 360 definitely have more features as like its waterproof body, highly stabilized video results and F2.0 dual lenses but LG360 lacks behind in these features.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Part 4 Editing software comparison comparison
 
@@ -152,39 +117,18 @@ It is possible to stitch videos as well as photographs taken from the 360 degree
 
 Check this side-by-side video review to know more about this two 360 degree cameras:
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121335/18498" target="_top" id="2121335">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121335/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Part 5 Conclusion
 
 Price difference of both devices is well reflected in the comparison table above and you got enough information about their features too. The gear 360 results better looking images along with better color distributions but in case of LG the image as well as video quality is comparatively degraded; Although, LG cam is much faster and discrete design but for professional photographers it will not result better output. The two additional shooting modes of Gear 360 also allows better quality of videos and its compatibility with Samsung smartphones allows easy editing and uploading. After getting real time users recommendations and their reviews, users are advised to prefer Samsung GEAR 360 for their Virtual Reality needs but those who cannot compromise for price range can go for LG360 device as its audio quality is much better than Samsung gear 360 along with ability to connect with Android as well as iOS devices.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Benjamin Arango
 
@@ -209,4 +153,26 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-macbook-webcam-filming-made-simple/"><u>[New] 2024 Approved MacBook Webcam Filming Made Simple</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-vegas-pros-21-landmark-release-a-complete-analysis/"><u>[New] 2024 Approved Vegas Pro's '21 Landmark Release - A Complete Analysis</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-a-guide-to-crafting-a-captivating-fb-memory-reel/"><u>[New] A Guide to Crafting a Captivating FB Memory Reel</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-ancient-images-modern-preservation-the-art-and-science-of-old-print-digitizing-for-2024/"><u>[New] Ancient Images, Modern Preservation The Art & Science of Old Print Digitizing for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-best-online-placements-for-youtube-video-popularity/"><u>[New] Best Online Placements for YouTube Video Popularity</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-ideal-matches-mac-and-pc-video-decoders-freepaid-for-2024/"><u>[New] Ideal Matches Mac & PC Video Decoders (FREE/PAID) for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-mastering-iphone-scaling-images-quickly/"><u>[New] Mastering iPhone Scaling Images Quickly</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-efficiently-capture-whatsapp-chat-a-step-by-step-tutorial-for-2024/"><u>[Updated] Efficiently Capture WhatsApp Chat A Step-by-Step Tutorial for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-top-10-heavy-lift-drones-you-should-know/"><u>[Updated] In 2024, Top 10 Heavy Lift Drones You Should Know</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-top-10-trends-in-effective-podcast-naming/"><u>[Updated] In 2024, Top 10 Trends in Effective Podcast Naming</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-unlocking-creative-photos-using-pexels-effectively/"><u>[Updated] Unlocking Creative Photos Using Pexels Effectively</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211389220-9798330244423-a-workbook-based-on-meg-jay-phds-1-bestseller-the-defining-decade/"><u>A Workbook based on Meg Jay, PhD's #1 bestseller "The Defining Decade | Free Book</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/accelerate-your-classic-gaming-top-choices-of-android-emulators-for-ps2-for-2024/"><u>Accelerate Your Classic Gaming - Top Choices of Android Emulators for PS2 for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/achieve-unparalleled-fps-and-seamless-gameplay-with-the-asus-rog-rapture-gt-ax11000-router/"><u>Achieve Unparalleled FPS and Seamless Gameplay with the Asus ROG Rapture GT-AX11000 Router</u></a></li>
+<li><a href="https://win11.techidaily.com/decreasing-excessive-cpu-consumption-by-dropbox-on-windows-pcs/"><u>Decreasing Excessive CPU Consumption by Dropbox on Windows PCs</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-color-correcting-made-simple-with-adobe-ps/"><u>In 2024, Color Correcting Made Simple with Adobe PS</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-youtube-guru-setup-opt-for-studio-or-beta-option/"><u>In 2024, YouTube Guru Setup Opt for Studio or Beta Option</u></a></li>
+<li><a href="https://fox-info.techidaily.com/optimal-steadicams-for-professional-grade-dslr-shoots/"><u>Optimal Steadicams for Professional-Grade DSLR Shoots</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Lava Yuva 2? | Dr.fone</u></a></li>
+</ul></div>
 
