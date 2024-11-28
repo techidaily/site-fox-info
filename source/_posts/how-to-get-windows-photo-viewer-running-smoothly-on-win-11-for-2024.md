@@ -1,7 +1,7 @@
 ---
 title: "How to Get Windows Photo Viewer Running Smoothly on Win 11 for 2024"
-date: 2024-09-06T01:55:24.091Z
-updated: 2024-09-07T01:55:24.091Z
+date: 2024-11-21T23:16:35.880Z
+updated: 2024-11-27T22:33:36.338Z
 tags: 
   - screen-recording
   - ai video
@@ -16,30 +16,12 @@ keywords: "WINDOWS Smooth Photo View,Win11 Photo Viewer Optimize,Enhance Photo V
 thumbnail: https://thmb.techidaily.com/e5791482249db05b2c83cd0dadb655c84a6fd60d498599c2c81d00c0991581e6.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Get Windows Photo Viewer Running Smoothly on Win 11
 
 # How to Restore Windows Photo Viewer in Windows 10
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
@@ -73,7 +55,15 @@ Here is why they want to restore Windows Photo Viewer –
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 1 to restore Windows Photo Viewer
 
@@ -83,28 +73,10 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
 
-<!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Method 2 to get Windows Photo Viewer back
 
 Here comes another way to restore Windows Photo Viewer on your computer. If your computer has been upgraded to Windows 10 from an older version, then Windows Photo Viewer might be lying around somewhere. You can retrieve it to view images.
@@ -124,22 +96,22 @@ Here is the detailed guide –
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Conclusion
 
 From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -166,4 +138,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-revolutionary-features-of-intova-x/"><u>[New] 2024 Approved The Revolutionary Features of Intova X</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-6-best-video-translators-to-translate-a-video/"><u>[New] 6 Best Video Translators to Translate a Video</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-tailoring-your-vtubers-tone-best-app-recommendations-unveiled/"><u>[New] In 2024, Tailoring Your Vtuber's Tone Best App Recommendations Unveiled</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-voice-adaptation-solutions-picks-for-video-makers/"><u>[New] In 2024, Voice Adaptation Solutions Picks for Video Makers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-mastering-avi-to-gif-conversion-windows-and-mac-edition-using-filmora-for-2024/"><u>[New] Mastering AVI-to-GIF Conversion Windows & Mac Edition Using Filmora for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-premium-timers-at-no-cost-to-you-for-2024/"><u>[New] Premium Timers at No Cost to You for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-streamline-your-instagram-top-8-planning-apps-for-iosandroid-devices-for-2024/"><u>[New] Streamline Your Instagram Top 8 Planning Apps for iOS/Android Devices for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-virtual-voyages-101-starting-your-journey-with-vr-tours/"><u>[Updated] 2024 Approved Virtual Voyages 101 Starting Your Journey with VR Tours</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-how-to-add-narration-to-your-videos-for-2024/"><u>[Updated] How to Add Narration to Your Videos for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-best-free-3d-text-psd-files/"><u>[Updated] In 2024, Best Free 3D Text PSD Files</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-innovative-free-chat-platforms-with-shared-screen-viewing/"><u>[Updated] Innovative Free Chat Platforms with Shared Screen Viewing</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-summit-of-virtual-reality-resolution-for-2024/"><u>[Updated] Summit of Virtual Reality Resolution for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-ultimate-compilation-of-leading-9-mobile-meeting-services-ios-android-for-2024/"><u>[Updated] Ultimate Compilation of Leading 9 Mobile Meeting Services (iOS, Android) for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-motorola-razr-40-ultra-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Motorola Razr 40 Ultra Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How To Teleport Your GPS Location On Apple iPhone 7 Plus? | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-ios-integration-listening-to-podcasts-made-easy/"><u>In 2024, IOS Integration Listening to Podcasts Made Easy</u></a></li>
+<li><a href="https://driver-download.techidaily.com/step-by-step-easy-driver-update-for-intels-iris-plus-640-graphics-card/"><u>Step-by-Step: Easy Driver Update for Intel's Iris Plus 640 Graphics Card</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210417208-9781098057435-the-enemy-will-try-to-steal-your-purpose/"><u>The Enemy Will Try to Steal Your Purpose | Free Book</u></a></li>
+</ul></div>
 

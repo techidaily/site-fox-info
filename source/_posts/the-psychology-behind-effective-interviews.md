@@ -1,7 +1,7 @@
 ---
 title: "The Psychology Behind Effective Interviews"
-date: 2024-11-13T22:32:42.620Z
-updated: 2024-11-18T03:12:54.596Z
+date: 2024-11-20T23:23:27.418Z
+updated: 2024-11-27T20:32:58.809Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ However, it might be difficult to distinguish out when there are so many talente
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Keep your intro brief
 
 The average human attention span has decreased over time. You risk losing viewers if you prolong the beginning of your YouTube video beyond what is essential given the abundance of free materials available today.
@@ -34,10 +38,7 @@ The average human attention span has decreased over time. You risk losing viewer
 Make sure that your introduction lasts no more than 10 seconds as a general rule of thumb. The shorter the better if you can manage it. Remember, you don't have to give away everything in your film. You only need to give them enough of a reason to continue watching.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Stay in the theme
@@ -45,6 +46,10 @@ Make sure that your introduction lasts no more than 10 seconds as a general rule
 While few rule-breakers have found success, the majority of well-liked YouTube channels have a distinct niche that attracts viewers and followers. Without it, you won't be able to draw in and satisfy your target market.
 
 Your opening should be consistent with your theme and branding across the entire YouTube channel. When you know the answers to those questions, you'll be more equipped to create an interesting YouTube channel introduction.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. Make the first 7 seconds count
 
@@ -54,6 +59,10 @@ Making a great first impression is a must when planning the opening sequence for
 
 Above all else, being genuine will help you make a good first impression. Others will see right through you and move on if you try to force a personality that isn't yours or if it's obvious that you're not interested in the subjects you raise.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Make a plan
 
 The quantity of tasks you have to complete before your YouTube channel takes off is one of the most difficult aspects of launching one. If you don't divide them up into manageable portions, you'll probably start to feel overwhelmed very quickly.
@@ -62,13 +71,6 @@ One of the best things you can do is plan ahead when making an introduction for 
 
 It's important to keep in mind that while you should have a plan, you don't necessarily need a very detailed one at this time. Have enough to launch you and allow you to make adjustments as you gain velocity.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Include a Call-To-Action
 
 Now is the time to deal with any concerns you may have with asking people for things. You won't get as a content creator if you don't ask, and this also applies to YouTube.
@@ -76,13 +78,6 @@ Now is the time to deal with any concerns you may have with asking people for th
 After you've written your introduction, you might want to think about inserting a call to action (CTA). Users will be prompted to take the action you want them to, such as follow you on social media or subscribe to your channel, if you do this.
 
 Your CTA needs to be brief and concise. If you make it sound too airy, your audience will miss the point and you'll come out as uncertain of your goal.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Keep it simple
 
@@ -93,10 +88,7 @@ Make a thorough inventory of everything you could include before putting togethe
 You'll save a lot of time by making your YouTube intro simpler. Additionally, it will make your channel feel more cohesive.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. Create a stunning intro
@@ -135,19 +127,16 @@ Make a YouTube opening that's decent enough to get you started rather than aimin
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-highlights-of-short-track-speed-skating-olympics-2022/"><u>[New] 2024 Approved Highlights of Short Track Speed Skating Olympics 2022</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-securing-your-discord-sessions-with-ease/"><u>[New] 2024 Approved Securing Your Discord Sessions with Ease</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-premiere-pros-shadowy-showdown/"><u>[New] In 2024, Premiere Pro's Shadowy Showdown</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-instaloops-create-content-that-circulates-and-captivates-for-2024/"><u>[New] InstaLoops Create Content That Circulates & Captivates for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-market-victory-through-unwrapped-strategy-for-2024/"><u>[New] Market Victory Through Unwrapped Strategy for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-10-must-know-tips-for-nba-stream-quality/"><u>[Updated] 2024 Approved 10 Must-Know Tips for NBA Stream Quality</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-increasing-ram-to-achieve-peak-performance-in-minecraft/"><u>[Updated] In 2024, Increasing RAM to Achieve Peak Performance in Minecraft</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-masterpiece-collaborations-a-list-of-top-photo-and-video-making-maestros-with-music/"><u>[Updated] Masterpiece Collaborations A List of Top Photo & Video Making Maestros with Music</u></a></li>
-<li><a href="https://fox-info.techidaily.com/entering-the-metaverse-discovering-6-rich-examples-for-2024/"><u>Entering the Metaverse Discovering 6 Rich Examples for 2024</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-data-from-apple-iphone-6s-to-new-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How To Transfer Data from Apple iPhone 6s to New iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/kensuns-compact-tire-pump-a-durable-dependable-and-easy-to-carry-solution/"><u>Kensun's Compact Tire Pump: A Durable, Dependable & Easy-to-Carry Solution!</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/reliable-connection-speeds-with-nordvpn-a-comprehensive-evaluation-by-zdnet/"><u>Reliable Connection Speeds with NordVPN - A Comprehensive Evaluation by ZDNet</u></a></li>
-<li><a href="https://fox-info.techidaily.com/tips-for-accurate-age-input-in-tiktok-profiles-for-2024/"><u>Tips for Accurate Age Input in TikTok Profiles for 2024</u></a></li>
-<li><a href="https://discover-help.techidaily.com/top-twelve-techniques-to-extract-sound-from-youtube-videos-using-a-mac/"><u>Top Twelve Techniques to Extract Sound From YouTube Videos Using a Mac</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-discovering-the-premier-6-microphones-for-streaming-professionals/"><u>[New] 2024 Approved Discovering the Premier 6 Microphones for Streaming Professionals</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-ideal-timer-solutions-for-your-special-day-on-androidios/"><u>[New] Ideal Timer Solutions for Your Special Day on Android/iOS</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-how-to-snip-and-save-from-youtube-the-ultimate-guide/"><u>[New] In 2024, How to Snip and Save From YouTube The Ultimate Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-unveiling-the-ultimate-top-10-4k-displays-for-macbook-users/"><u>[New] In 2024, Unveiling the Ultimate Top 10 4K Displays for MacBook Users</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-unlocking-nvidias-screen-recorder-potential/"><u>[New] Unlocking NVIDIA's Screen Recorder Potential</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-2023s-prime-divers-top-tier-aquatic-camera-choices/"><u>[Updated] 2024 Approved 2023'S Prime Divers Top-Tier Aquatic Camera Choices</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-streamline-your-footage-iphones-shortening-methods/"><u>[Updated] Streamline Your Footage IPhone's Shortening Methods</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-the-essential-manual-for-srt-conversion-techniques-for-2024/"><u>[Updated] The Essential Manual for SRT Conversion Techniques for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ng-equations-decoding-the-mathematics-behind-youtube-income-monitoring/"><u>Earning Equations Decoding the Mathematics Behind YouTube Income Monitoring</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-messages-from-your-nokia-g310-by-fonelab-android-recover-messages/"><u>How to recover old messages from your Nokia G310</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2254586-9781476621807-parapsychology-philosophy-and-the-mind/"><u>Parapsychology, Philosophy and the Mind | Free Book</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Step-by-Step  Inserting Times on YouTube Videos for 2024\""
-date: 2024-11-12T01:10:15.289Z
-updated: 2024-11-18T01:59:33.941Z
+date: 2024-11-24T18:44:07.962Z
+updated: 2024-11-27T23:13:08.681Z
 tags: 
   - screen-recording
   - ai video
@@ -33,14 +33,11 @@ A YouTube timestamp is a way to link to a specific moment in your video. When vi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-## Part 1\. How to add a timestamp to YouTube video?
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## Part 1\. How to add a timestamp to YouTube video?
 
 ### 1\. Using Built-in function - copy video URL at current time (Most Recommended)
 
@@ -64,6 +61,10 @@ You can then share the link as you wish.
 
 ![popup menu](https://images.wondershare.com/filmora/article-images/2022/08/youtube-timestamp-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. If you need to adjust the time marker manually, tap the _**“time”**_ and enter a new value.
 
 ![enter a new value](https://images.wondershare.com/filmora/article-images/2022/08/youtube-timestamp-4.jpg)
@@ -73,6 +74,10 @@ You can then share the link as you wish.
 ![select copy](https://images.wondershare.com/filmora/article-images/2022/08/youtube-timestamp-5.jpg)
 
 Viewers are taken immediately to the desired timestamp when they click the copied link. The video starts to play at that point.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Link to a YouTube Timestamp Manually
 
@@ -87,6 +92,10 @@ When sharing (email, Facebook, Twitter, etc.), the URL is "<https://youtu.be/>"
 3. To specify "minutes and seconds" in both URLs, change the format from "Xs" to "XmYs" where "t" = time, "Xm" = # minutes and "Ys" = # seconds, for example "? t=5m30s" or "&t=5m30s."
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Note:** When manually linking to a timestamp, always omit the zeros and include only whole numbers. For example, use 8 instead of 08.
 
@@ -119,13 +128,6 @@ Link generators allow you to not only share specific parts of videos from YouTub
 1. To confirm whether the jump time is right, you can simply click on the generated link. If the verification is successful, you can then copy the address.
 2. You will get a dedicated link to your video with the option to embed it on your website or blog.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2\. How to add a timestamp in YouTube comments or description
 
 If you are a Youtuber and your videos are informative, adding a jumpable timestamp in the comments or description will make it easier for viewers to understand your videos. The duration of your video will also grow if viewers keep returning to a certain piece of it.
@@ -138,13 +140,6 @@ Here's the guide to adding a timestamp to a YouTube comment or description:
 4. Post your comment
 
 The process is simple - just write the time you want to redirect viewers to in the comment. The timestamp format is hours:minutes:seconds (no spaces). Make sure the time format is correct, then a timestamp with a jump link will be generated automatically.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -158,6 +153,10 @@ Timestamps can help you share information with your audience without having to w
 
 Part 1\. How to add a timestamp to YouTube video?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Using Built-in function - copy video URL at current time (Most Recommended)
 
 1. Visit [**YouTube**](http://www.youtube.com/) and open the video of interest.
@@ -166,7 +165,15 @@ Part 1\. How to add a timestamp to YouTube video?
 
 ![youtube timestamp](https://images.wondershare.com/filmora/article-images/2022/08/youtube-timestamp-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can then share the link as you wish.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Using the Video Sharing Button to Share Timestamps
 
@@ -176,16 +183,13 @@ You can then share the link as you wish.
 
 ![share timestamps](https://images.wondershare.com/filmora/article-images/2022/08/youtube-timestamp-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. Check the _**“Start at \[time slot\]”**_ box in the popup menu that appears.
 
 ![popup menu](https://images.wondershare.com/filmora/article-images/2022/08/youtube-timestamp-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. If you need to adjust the time marker manually, tap the _**“time”**_ and enter a new value.
 
@@ -195,14 +199,11 @@ You can then share the link as you wish.
 
 ![select copy](https://images.wondershare.com/filmora/article-images/2022/08/youtube-timestamp-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Viewers are taken immediately to the desired timestamp when they click the copied link. The video starts to play at that point.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Link to a YouTube Timestamp Manually
 
@@ -218,13 +219,6 @@ When sharing (email, Facebook, Twitter, etc.), the URL is "<https://youtu.be/>"
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note:** When manually linking to a timestamp, always omit the zeros and include only whole numbers. For example, use 8 instead of 08.
 
 It is also important to note that referring to a specific timestamp does not mean that one cannot watch earlier video segments. They can move the time slider in any direction.
@@ -236,13 +230,6 @@ It is also important to note that referring to a specific timestamp does not mea
 3. Click on the _**“Share”**_ button.
 
 ![click on the share button](https://images.wondershare.com/filmora/article-images/2022/08/youtube-timestamp-6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 1. To save the timeslot URL to use for multiple apps or for later use, select "Copy Link" and paste it where you can retrieve it as needed. You can edit the time period in the URL later.
 2. Edit the URL you saved in step 4\. For short URLs (youtu.be) use "?t=Xs" where X=seconds or "?t=XmYs" where X=minutes and S= seconds. Replace “?” with “&” for long URLs (youtube.com/watch?v=). Adjust the "X" and "Y" values to your specified pause time.
@@ -260,13 +247,6 @@ Link generators allow you to not only share specific parts of videos from YouTub
 
 ![edit the time](https://images.wondershare.com/filmora/article-images/2022/08/youtube-timestamp-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. To confirm whether the jump time is right, you can simply click on the generated link. If the verification is successful, you can then copy the address.
 2. You will get a dedicated link to your video with the option to embed it on your website or blog.
 
@@ -282,6 +262,10 @@ Here's the guide to adding a timestamp to a YouTube comment or description:
 4. Post your comment
 
 The process is simple - just write the time you want to redirect viewers to in the comment. The timestamp format is hours:minutes:seconds (no spaces). Make sure the time format is correct, then a timestamp with a jump link will be generated automatically.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -317,18 +301,19 @@ Timestamps can help you share information with your audience without having to w
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-10-standout-educational-websites-for-self-paced-learning-for-2024/"><u>[New] 10 Standout Educational Websites for Self-Paced Learning for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-lightning-lens-work-a-guide-to-speedy-google-collage-creation/"><u>[New] 2024 Approved Lightning Lens Work A Guide to Speedy Google Collage Creation</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-correct-no-sound-issue-on-shared-videos/"><u>[New] Correct No Sound Issue on Shared Videos</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-easy-guide-record-mov-files-on-win-11-pc/"><u>[New] In 2024, Easy Guide Record MOV Files on Win 11 PC</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-android-lightroom-a-complete-and-detailed-review/"><u>[Updated] In 2024, Android Lightroom A Complete and Detailed Review</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-unleashing-potential-current-vr-innovations/"><u>[Updated] In 2024, Unleashing Potential Current VR Innovations</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-top-ranked-text-enhancers-for-after-effects/"><u>2024 Approved Top-Ranked Text Enhancers for After Effects</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/how-to-earn-facebooks-trusted-prestigious-symbol-for-2024/"><u>How to Earn Facebook's Trusted, Prestigious Symbol for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-high-performance-low-price-excellent-asmr-mics/"><u>In 2024, High Performance, Low Price Excellent ASMR Mics</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-memo-menagerie-the-ultimate-list-of-meme-generators/"><u>In 2024, Memo Menagerie The Ultimate List of Meme Generators</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-pixelperfect-tools-overview-series/"><u>In 2024, PixelPerfect Tools Overview Series</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/simple-storytelling-fundamentals-for-2024/"><u>Simple Storytelling Fundamentals for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/understanding-apples-audio-content-guidelines/"><u>Understanding Apple’s Audio Content Guidelines</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-discoveries-await-5-essential-maps-for-richer-gameplay/"><u>[New] In 2024, Discoveries Await 5 Essential Maps for Richer Gameplay</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-must-have-upgrades-top-11-phantom-4-addons/"><u>[New] In 2024, Must-Have Upgrades Top 11 Phantom 4 Addons</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-cost-cutting-camera-options-discover-top-6-cheap-action-cams/"><u>[Updated] 2024 Approved Cost-Cutting Camera Options Discover Top 6 Cheap ACTION Cams</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-ultimate-guide-to-liberating-tracks-with-pazeras-tools/"><u>[Updated] 2024 Approved The Ultimate Guide to Liberating Tracks with Pazera's Tools</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-cinematic-excellence-discover-the-best-15-gopro-action-cam-luts-for-2024/"><u>[Updated] Cinematic Excellence Discover the Best 15 GOPRO Action Cam LUTs for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-comparative-review-samsungs-imaging-suite-2023-edition/"><u>[Updated] In 2024, Comparative Review Samsung's Imaging Suite, 2023 Edition</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-hot-hands-on-10-must-have-vr-peripherals/"><u>[Updated] In 2024, Hot Hands-On 10 Must-Have VR Peripherals</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-jumpstarting-your-marketing-the-essentials-of-telegram-advertising-for-2024/"><u>[Updated] Jumpstarting Your Marketing The Essentials of Telegram Advertising for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/foremost-apps-to-upgrade-your-gopro-creations-on-smartphones-for-2024/"><u>Foremost Apps to Upgrade Your GoPro Creations on Smartphones for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/movavi-hands-free-tga-file-transformation-and-upload-for-websites/"><u>Movavi: Hands-Free TGA File Transformation and Upload for Websites</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-top-rated-mp4-video-property-editors/"><u>New In 2024, Top-Rated MP4 Video Property Editors</u></a></li>
+<li><a href="https://fox-info.techidaily.com/prime-examples-14-dynamic-text-animations/"><u>Prime Examples 14 Dynamic Text Animations</u></a></li>
+<li><a href="https://win11.techidaily.com/streamlining-cloud-connectivity-revive-google-drive-windows-links/"><u>Streamlining Cloud Connectivity: Revive Google Drive Windows Links</u></a></li>
+<li><a href="https://games-able.techidaily.com/ultimate-console-content-psplus-or-xbox-game-pass/"><u>Ultimate Console Content: PS+ or Xbox Game Pass?</u></a></li>
 </ul></div>
 

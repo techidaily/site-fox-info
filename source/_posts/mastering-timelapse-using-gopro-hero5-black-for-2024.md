@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Timelapse  Using GoPro Hero5 Black for 2024\""
-date: 2024-09-06T01:56:01.253Z
-updated: 2024-09-07T01:56:01.253Z
+date: 2024-11-26T20:18:16.792Z
+updated: 2024-11-27T23:57:57.734Z
 tags: 
   - screen-recording
   - ai video
@@ -16,12 +16,6 @@ keywords: "GoPro TimeLapse Hero5,MasterGoPro Timelapse,Hero5 Black Capture,Timel
 thumbnail: https://thmb.techidaily.com/df2009c639407c10216adf3ab20aeaa652a10152c64c0456c40360dd20bfbffb.jpeg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Mastering Timelapse: Using GoPro Hero5 Black
 
 # How to Shoot a Time-lapse Video with GoPro Hero5 Black
@@ -42,17 +36,9 @@ Are you an amateur travel photographer who has recently bought a GoPro cam and w
 * [Part 2: Making time lapse videos with Wondershare Filmora](#part2)
 
 <!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: Shooting a time lapse video with GoPro Hero5
 
 #### **1. The best time lapse settings in GoPro:**
@@ -97,11 +83,9 @@ Make use of good tripod, a fast and spacious SD card, a suction mount and always
 [Check at Amazon](https://www.amazon.com/gp/product/B01M14ATO0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M14ATO0&linkId=5ce54ea937ecffa6b1b8056b6922abaa)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Making time lapse videos with Wondershare Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a powerful and easy to use software with which you can edit your time lapse videos. The Filmora action cam version is going to make your job a lot more easy. It comes with 2 new tools-
@@ -112,40 +96,34 @@ The Instant cutter tool on the other hand can be used for trimming and merging v
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * First, launch the Filmora app and then choose the ‘action cam tool’
 * Next, you need to click the ‘Import’ button or the ‘ Import an Action cam video’ button, so as to import your recorded video to Wondershare Filmora.
 
 ![1-action-cam-tool-fix-entrance](https://images.wondershare.com/filmora/article-images/filmora-splash-screen-0321.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 * Now go to the Speed tab and bring the Playhead to the exact position where the speed effect is to be applied.
 * Click the Add Marker button. Click the speed marker and drag it onto either side of your timeline so as to choose a number of clips on your timeline.
 
 ![speed-effect-speed-add-marke](https://images.wondershare.com/filmora/article-images/speed-effect-speed-add-marker.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 * The speed settings can be adjusted by clicking on the checkbox marked Speed. The speed slider can be moved forward to make it faster up to 20x for the time lapse effect.
 * Export your time lapse video to Full Features Mode to edit further, such as adding various filters, overlay and effects. Currently, there are more than 300 Effects, and there is an [ACTION CAM WINTER SET](https://www.filmstocks.com/effects-store-upgrade.html)available now. [Check More](https://www.filmstocks.com/effects-store-upgrade.html)
 
 [Learn more detailed information about how to make a time lapse video in Filmora Full Feature Mode](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -170,4 +148,20 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-unveiling-elite-choices-a-guide-to-hdr-cameras/"><u>[New] 2024 Approved Unveiling Elite Choices A Guide to HDR Cameras</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-top-audio-assistant-software-android-version/"><u>[Updated] 2024 Approved Top Audio Assistant Software, Android Version</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-from-device-to-inshot-a-guide-to-audio-integration/"><u>[Updated] From Device to InShot A Guide to Audio Integration</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-from-snap-to-stunning-photo-editing-secrets/"><u>[Updated] From Snap to Stunning Photo Editing Secrets</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-navigating-the-nuances-of-premieres-fullscreen-mode/"><u>[Updated] Navigating the Nuances of Premiere's Fullscreen Mode</u></a></li>
+<li><a href="https://techtrends.techidaily.com/free-h264-encoder-software-enhance-hd-video-quality-with-easy-installation/"><u>Free H.264 Encoder Software: Enhance HD Video Quality with Easy Installation</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-meizu-21-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Meizu 21 If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-recover-apple-iphone-6-data-from-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Apple iPhone 6 Data From iTunes? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Xiaomi Redmi K70? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-revamping-videos-the-art-of-editing-via-story-remix-and-windows-photos/"><u>In 2024, Revamping Videos The Art of Editing via Story Remix and Windows Photos</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-asus-orbi-tri-band-wi-fi-6-setup-for-ultimate-whole-house-coverage-review/"><u>In-Depth Analysis of the Asus Orbi Tri-Band Wi-Fi 6 Setup for Ultimate Whole-House Coverage Review</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/innovative-screen-capture-tools-review-top-10-free-selections/"><u>Innovative Screen Capture Tools Review Top 10 Free Selections</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-oppo-a58-4g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Oppo A58 4G with and without jailbreak | Dr.fone</u></a></li>
+</ul></div>
 

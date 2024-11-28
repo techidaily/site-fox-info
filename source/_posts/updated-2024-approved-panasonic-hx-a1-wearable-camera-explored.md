@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Panasonic HX-A1 Wearable Camera Explored\""
-date: 2024-11-12T07:15:25.050Z
-updated: 2024-11-18T05:27:41.426Z
+date: 2024-11-21T22:29:16.011Z
+updated: 2024-11-27T17:27:29.027Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/f35c2ac390106705ee1454ace680e37ced6ad5998
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Design and Usability
 
 ![panasonic-hx-a1-design](https://images.wondershare.com/filmora/article-images/panasonic-hx-a1-design.jpg)
@@ -44,10 +48,7 @@ thumbnail: https://thmb.techidaily.com/f35c2ac390106705ee1454ace680e37ced6ad5998
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specification
@@ -113,10 +114,7 @@ thumbnail: https://thmb.techidaily.com/f35c2ac390106705ee1454ace680e37ced6ad5998
 [Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Features
@@ -148,10 +146,7 @@ thumbnail: https://thmb.techidaily.com/f35c2ac390106705ee1454ace680e37ced6ad5998
  A1 connectivity to the Image App eases out its usage drastically. It gives a gateway to adjust the resolution and also provides access to various white balance options including dalylight and cloudy for outdoor and some user and automatic configured ones for indoor shoots. This app can also be used for live preview and toggling record acting as camera’s screen after complete configuration.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -163,10 +158,7 @@ thumbnail: https://thmb.techidaily.com/f35c2ac390106705ee1454ace680e37ced6ad5998
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -194,20 +186,24 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-master-control-over-your-youtube-viewing-rhythm/"><u>[New] 2024 Approved Master Control Over Your YouTube Viewing Rhythm</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-perfect-shots-essential-photography-edits/"><u>[New] Perfect Shots Essential Photography Edits</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-precision-techniques-for-capturing-the-essence-of-moments-with-gopro/"><u>[New] Precision Techniques for Capturing the Essence of Moments with GoPro</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-transform-your-channels-look-for-free/"><u>[Updated] 2024 Approved Transform Your Channel's Look for Free</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-dominance-in-video-landscape-mirrorless-vs-dslr-cameras/"><u>[Updated] Dominance in Video Landscape Mirrorless vs DSLR Cameras</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-lone-listeners-conundrum-cure-method/"><u>[Updated] In 2024, Lone Listener's Conundrum Cure Method</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-navigating-networking-on-linkedin-for-2024/"><u>[Updated] Navigating Networking on LinkedIn for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/add-shimmer-to-photos-illustrators-motion-blur-guide-for-2024/"><u>Add Shimmer to Photos Illustrator's Motion Blur Guide for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/effective-techniques-to-address-and-fix-launch-issues-in-helldivers-2-gameplay/"><u>Effective Techniques to Address and Fix Launch Issues in Helldivers 2 Gameplay</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-the-comprehensive-guide-to-legally-sharing-music-on-instagram/"><u>In 2024, The Comprehensive Guide to Legally Sharing Music on Instagram</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ating-with-structured-content-on-youtube/"><u>Innovating with Structured Content on YouTube</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/recurrence-installer-collection/"><u>Recurrence Installer Collection</u></a></li>
-<li><a href="https://fox-info.techidaily.com/self-designed-instagram-ringtone-creation-steps/"><u>Self-Designed Instagram Ringtone Creation Steps</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-and-repair-guide-csgo-buhne-malfunctions/"><u>Troubleshooting and Repair Guide: CS:GO Buhne Malfunctions</u></a></li>
-<li><a href="https://fox-info.techidaily.com/unleashing-humor-the-kapwing-meme-builder-way/"><u>Unleashing Humor The Kapwing Meme Builder Way</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-empathy-on-screen-connecting-with-youtube-subscribers/"><u>[New] 2024 Approved Empathy on Screen Connecting With YouTube Subscribers</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-frame-by-frame-focus-high-quality-video-devices/"><u>[New] 2024 Approved Frame by Frame Focus High-Quality Video Devices</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-create-alluring-haul-and-try-on-videography-a-comprehensive-overview/"><u>[New] 2024 Approved How to Create Alluring Haul & Try-On Videography A Comprehensive Overview</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-exploring-snapseed-a-simple-guide-for-new-users/"><u>[New] Exploring Snapseed A Simple Guide for New Users</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-examine-groups-collaborative-media-on-messenger/"><u>[New] In 2024, Examine Group's Collaborative Media on Messenger</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-mastering-final-cut-the-ultimate-guide/"><u>[New] Mastering Final Cut The Ultimate Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-all-encompassing-review-the-hero4-black-guide/"><u>[Updated] 2024 Approved All-Encompassing Review The Hero4 Black Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-effortless-identity-masking-techniques-in-picscanner/"><u>[Updated] 2024 Approved Effortless Identity Masking Techniques in PicScanner</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-savvy-saving-with-20-best-free-storage-services-up-to-1tb/"><u>[Updated] 2024 Approved Savvy Saving with 20 Best Free Storage Services, Up To 1TB</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-expert-guide-merging-srt-captions-with-mp4-video-content-for-2024/"><u>[Updated] Expert Guide Merging SRT Captions with MP4 Video Content for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-full-disclosure-unpacking-the-dji-inspire-1/"><u>[Updated] In 2024, Full Disclosure Unpacking the DJI Inspire 1</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-top-20-free-public-domain-pubg-screenshot-slideshows/"><u>[Updated] In 2024, Top 20 Free Public Domain PUBG Screenshot Slideshows</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-vr-innovation-showcase-latest-upgrades/"><u>[Updated] In 2024, VR Innovation Showcase - Latest Upgrades</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-unveiling-new-era-youtube-hits-past-vidcon/"><u>2024 Approved Unveiling New Era YouTube Hits Past VidCon</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Lava Blaze 2 | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/crystal-clear-snaps-every-time-how-to-fix-a-blurred-iphone-lens-in-just-7-steps/"><u>Crystal Clear Snaps Every Time: How to Fix a Blurred iPhone Lens in Just 7 Steps</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-icloud-separation-how-to-disconnect-iphone-7-plus-and-ipad-by-drfone-ios/"><u>In 2024, iCloud Separation How To Disconnect iPhone 7 Plus and iPad</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/innovative-graphic-design-tools-by-adobe-unleashing-creativity-and-efficiency/"><u>Innovative Graphic Design Tools by Adobe: Unleashing Creativity and Efficiency</u></a></li>
+<li><a href="https://fox-info.techidaily.com/key-methods-from-pin-based-tunes-to-audio-downloads/"><u>Key Methods From Pin-Based Tunes to Audio Downloads</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, X-Year Phone Photoshoot – OldiPhone X Edition\""
-date: 2024-11-11T07:21:04.820Z
-updated: 2024-11-18T03:56:16.603Z
+date: 2024-11-21T22:12:37.527Z
+updated: 2024-11-27T18:01:44.852Z
 tags: 
   - screen-recording
   - ai video
@@ -40,13 +40,6 @@ In this article, we are going to show you how to take photos in Portrait Mode, o
 * [Part 1: For iPhone 7 Plus/8 Plus/X users](#part1)
 * [Part 1: For iPhone 8, 7 or older iPhones users](#part2)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### For iPhone 7 Plus/8 Plus/X users
 
  **Using the Portrait Mode on an iPhone**
@@ -66,6 +59,10 @@ Portrait mode enables you to set the timer, turn off the flash or apply photo fi
 The iPhone X can also take Portrait selfies thanks to the TrueDepth front camera system. Unlike the rear camera system, the front-facing camera doesn't have multiple physical camera lenses; instead, it uses sensors from the TrueDepth system to measure a precise depth map.
 
 ![portrait-mode-selfie-iphone-x](https://images.wondershare.com/filmora/article-images/portrait-mode-selfie-iphone-x.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image resource: imore
 
@@ -93,6 +90,10 @@ Older iPhone models may not have a twin-lens system, but with the aid of a camer
 
 ![iwatermark-watermark-photos](https://images.wondershare.com/filmora/article-images/iwatermark-watermark-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Advertised as the best depth-of-field app for iPhones on the market today, Tadaa SLR sets high photography standards. To make things even better, the app is so easy to use that you just need to set the focal point of the photo and tap on the shutter button to snap a photo. However, Tadaa SLR is only a camera app that doesn't offer a lot of photo editing options.
 
 #### [Bokeh Lens](https://itunes.apple.com/us/app/bokeh-lens/id587849880?mt=8)
@@ -104,10 +105,7 @@ Advertised as the best depth-of-field app for iPhones on the market today, Tadaa
 ![signature-photo-annotator](https://images.wondershare.com/filmora/article-images/signature-photo-annotator.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The term Bokeh comes from the Japanese language and it represents the aesthetic quality of the out of focus parts of photos. The Bokeh Lens app is designed to make the process of creating a shallow depth of field as fast and fun as it can be. The app lets you fine-tune the level of bokeh you are creating a photo, while it also allows you to select the areas you want to keep in focus.
@@ -121,10 +119,7 @@ The term Bokeh comes from the Japanese language and it represents the aesthetic 
 ![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
@@ -132,10 +127,7 @@ The plethora of blur options provided by the Defocus camera app is impressive. D
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -163,17 +155,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-essential-list-premier-online-church-service-sites/"><u>[New] 2024 Approved Essential List Premier Online Church Service Sites</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-revised-question-series-to-connect-with-podcast-audience-for-2024/"><u>[Updated] Revised Question Series to Connect with Podcast Audience for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/1723008767493-busting-through-the-barrier-fix-high-cpu-usage-on-zoom-in-just-6-steps/"><u>Busting Through the Barrier: Fix High CPU Usage on Zoom in Just 6 Steps</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/bypass-tools-to-bypass-lock-screenedgeplus-2023-by-drfone-android-unlock-android-unlock/"><u>Bypass Tools to Bypass Lock Screen(Edge+ (2023))</u></a></li>
-<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-apple-iphone-7-to-enjoy-more-fun-drfone-by-drfone-virtual-ios/"><u>Change Location on Yik Yak For your Apple iPhone 7 to Enjoy More Fun | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Nokia G42 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-the-compact-powerhouse-in-flight-dji-sparks-guide-to-aerial-selfies/"><u>In 2024, The Compact Powerhouse in Flight DJI Spark's Guide to Aerial Selfies</u></a></li>
-<li><a href="https://win-web.techidaily.com/mastering-permissions-the-ultimate-guide-to-resolve-access-issues-on-windows-nten/"><u>Mastering Permissions: The Ultimate Guide to Resolve Access Issues on Windows nTen</u></a></li>
-<li><a href="https://techtrends.techidaily.com/nintendo-switch-and-tv-connection-a-complete-walkthrough/"><u>Nintendo Switch and TV Connection - A Complete Walkthrough</u></a></li>
-<li><a href="https://win-answers.techidaily.com/quick-resolve-why-is-my-google-chrome-freezing-and-how-to-stop-it/"><u>Quick Resolve: Why Is My Google Chrome Freezing and How to Stop It?</u></a></li>
-<li><a href="https://fox-info.techidaily.com/tempo-treasure-hunters-dive-into-free-online-scanners/"><u>Tempo Treasure Hunters Dive Into FREE Online Scanners</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-when-samsung-galaxy-s23-ultra-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Samsung Galaxy S23 Ultra Has Black Screen of Death? | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-quelling-video-quirks-in-photobooths/"><u>[New] 2024 Approved Quelling Video Quirks in Photobooths</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-from-obscurity-to-prominence-how-to-thrive-in-youtube-streaming/"><u>[New] From Obscurity to Prominence How to Thrive in Youtube Streaming</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-instantize-dynamic-images-in-photoshop/"><u>[New] In 2024, Instantize Dynamic Images in Photoshop</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-pros-picks-5-best-low-frame-rate-recorders/"><u>[New] In 2024, Pros' Picks 5 Best Low Frame Rate Recorders</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-leading-edge-the-ultimate-15-camera-guide/"><u>[New] Leading Edge The Ultimate 15 Camera Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-silent-spectators-101-the-essentials-for-unnoticed-instagram-livestreams-for-2024/"><u>[New] Silent Spectators 101 The Essentials for Unnoticed Instagram Livestreams for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-subtitles-revolution-srt-to-sub-upgrade/"><u>[New] Subtitles Revolution SRT to SUB Upgrade</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-the-ultimate-guide-to-windows-11-photo-customization-audio-plus-visuals-for-2024/"><u>[New] The Ultimate Guide to Windows 11 Photo Customization Audio + Visuals for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-panoramic-storytelling-simplified-top-9-tips-for-filmmakers-for-2024/"><u>[Updated] Panoramic Storytelling Simplified Top 9 Tips for Filmmakers for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-essential-guide-easy-to-install-vrecorder/"><u>2024 Approved Essential Guide Easy-to-Install VRecorder</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-essential-tips-for-hosting-a-successful-facebook-live-event/"><u>2024 Approved Essential Tips for Hosting a Successful Facebook Live Event</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-how-to-spark-interest-with-unique-channel-names/"><u>2024 Approved How to Spark Interest With Unique Channel Names</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-sideways-scene-understanding-igs-upside-down-issue/"><u>2024 Approved Sideways Scene Understanding IG's Upside-Down Issue</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-superior-ai-photo-cutting-master/"><u>2024 Approved Superior AI Photo Cutting Master</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-undetected-consumer-of-life-streams-fb/"><u>2024 Approved Undetected Consumer of Life Streams (FB)</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlink-your-iphone-7-plus-from-your-apple-id-by-drfone-ios/"><u>In 2024, How To Unlink Your iPhone 7 Plus From Your Apple ID</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-srt-conversion-made-easy-a-step-by-step-approach/"><u>In 2024, SRT Conversion Made Easy A Step-by-Step Approach</u></a></li>
+<li><a href="https://fox-info.techidaily.com/mobile-entertainment-made-easy-download-funimate-apk-for-2024/"><u>Mobile Entertainment Made Easy Download Funimate APK for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/understanding-indicators-do-they-reveal-if-people-have-seen-your-messages/"><u>Understanding Indicators: Do They Reveal If People Have Seen Your Messages?</u></a></li>
 </ul></div>
 

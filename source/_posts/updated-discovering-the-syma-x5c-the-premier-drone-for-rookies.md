@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Discovering the Syma X5C  The Premier Drone for Rookies\""
-date: 2024-11-13T23:25:09.705Z
-updated: 2024-11-17T19:13:59.587Z
+date: 2024-11-26T00:22:12.485Z
+updated: 2024-11-27T19:54:57.654Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/9cc6b9e127e8620a8c8c8710454e9c29c9fd332bb
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Pros and Cons of Syma X5C
 
@@ -97,10 +101,7 @@ thumbnail: https://thmb.techidaily.com/9cc6b9e127e8620a8c8c8710454e9c29c9fd332bb
 ![syma x5c controller](https://images.wondershare.com/filmora/article-images/syma-x5c-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The remote unit or transmitter works with a 2.4GHz frequency setting with 4 channel type control. It helps pilots to enjoy wider flying range with spread spectrum technology. The maximum flying range falls between 30 to 50 meters and no lags have been reported yet in control selection and quadcopter reactions. Using flip switch, you can directly adjust the movements in air.
@@ -110,19 +111,13 @@ thumbnail: https://thmb.techidaily.com/9cc6b9e127e8620a8c8c8710454e9c29c9fd332bb
 ![syma x5c camera](https://images.wondershare.com/filmora/article-images/syma-x5c-camera.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Syma H5C camera is rated as moderately stable and it is capable enough to take impressive pictures from air. This device is equipped with a 2GB MicroSD card that offers personal storage space to all recorded videos and images. The sad part is here that controller unit of this device is able to send signals to drone only; it cannot control the camera actions. Thus your camera stays focused in only one direction all the time and have fixed focus during shoots. You cannot apply zoom, direction sensing inputs or focus adjustment controls when your device is in air. If you are searching for a highly controlled footage generator then it is good to go for other Phantom series and other competing models as per your budget. But Syma H5C is really a good choice to start with.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -132,10 +127,7 @@ thumbnail: https://thmb.techidaily.com/9cc6b9e127e8620a8c8c8710454e9c29c9fd332bb
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -163,20 +155,22 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-comprehensive-lg-bp350-monitor-review-with-comparisons/"><u>[New] Comprehensive LG BP350 Monitor Review with Comparisons</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-how-to-elevate-your-digital-self-with-memetic-skills-in-the-metaverse/"><u>[Updated] 2024 Approved How to Elevate Your Digital Self with Memetic Skills in the Metaverse</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-blend-photos-effortlessly-in-real-time-for-2024/"><u>[Updated] Blend Photos Effortlessly in Real-Time for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-premium-free-fb-media-designer-toolkit/"><u>[Updated] Premium Free FB Media Designer Toolkit</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-ultimate-image-transformation-with-polarr-editors-power-for-2024/"><u>[Updated] Ultimate Image Transformation with Polarr Editor's Power for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/all-iphone-16-variants-set-to-feature-revolutionary-spatial-video-and-slim-bezel-designs-latest-updates-from-zdnet/"><u>All iPhone 16 Variants Set to Feature Revolutionary Spatial Video & Slim Bezel Designs - Latest Updates From ZDNet</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-the-leading-automatic-keys-locators/"><u>Discover the Leading Automatic Keys Locators</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/edge-essentials-the-best-borders-and-frame-choices-in-photography-for-2024/"><u>Edge Essentials The Best Borders & Frame Choices in Photography for 2024</u></a></li>
-<li><a href="https://os-tips.techidaily.com/effective-strategies-to-resolve-ipad-unresponsiveness-and-tips-for-ongoing-protection/"><u>Effective Strategies to Resolve iPad Unresponsiveness & Tips for Ongoing Protection</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-eliminating-video-jitter-in-photobooth-sessions/"><u>In 2024, Eliminating Video Jitter in Photobooth Sessions</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/reclaiming-windows-photo-viewer-in-windows-10-methods-demystified/"><u>Reclaiming Windows Photo Viewer in Windows 10 - Methods Demystified</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/step-into-photo-magic-innovative-edits-on-snapchat-for-2024/"><u>Step Into Photo Magic Innovative Edits on Snapchat for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138596342-9781462021901-the-five-sources-of-human-hope/"><u>The Five Sources of Human Hope | Free Book</u></a></li>
-<li><a href="https://fox-info.techidaily.com/ultimate-online-collaboration-conjurer-for-2024/"><u>Ultimate Online Collaboration Conjurer for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/ultimate-speedy-pics-viewing-tool-for-2024/"><u>Ultimate Speedy Pics Viewing Tool for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-elevate-your-episodes-masterful-lighting-setups-explained/"><u>[New] 2024 Approved Elevate Your Episodes Masterful Lighting Setups Explained</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-incor-written-by-a-professor-the-article-discusses-the-use-of-metaphors-and-analogies-to-explain-complex-scientific-concepts-how-can-teach/"><u>[New] 2024 Approved Incor Written by a Professor, the Article Discusses the Use of Metaphors and Analogies to Explain Complex Scientific Concepts. How Can Teachers Effectively Incorporate These Rhetorical Devices Into Their Teaching Methods?</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-fbx-gaming-a-complete-video-guide-for-2024/"><u>[New] FBX Gaming A Complete Video Guide for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-understanding-the-essence-of-luts-for-professional-photography/"><u>[New] In 2024, Understanding the Essence of LUTs for Professional Photography</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-invisible-vibes-dimming-music-on-computers/"><u>[New] Invisible Vibes Dimming Music on Computers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-master-the-art-of-photo-display-with-best-frames/"><u>[New] Master the Art of Photo Display with Best Frames</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-unleash-marketing-potential-with-unpacked-plans/"><u>[Updated] 2024 Approved Unleash Marketing Potential with Unpacked Plans</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-depth-methodology-for-adding-srt-in-mp4-files/"><u>[Updated] In-Depth Methodology for Adding SRT in MP4 Files</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-newbie-vlogger-tips-simple-video-concepts-for-2024/"><u>[Updated] Newbie Vlogger Tips Simple Video Concepts for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-no-software-needed-try-our-top-free-youtube-to-mp3-tools-for-2024/"><u>[Updated] No Software Needed? Try Our Top Free YouTube-to-MP3 Tools for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-messages-from-xiaomi-redmi-a2-by-fonelab-android-recover-messages/"><u>Easy steps to recover deleted messages from Xiaomi Redmi A2</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/free-online-conversion-of-opus-files-to-aac-format-with-movavi/"><u>Free Online Conversion of Opus Files to AAC Format with Movavi</u></a></li>
+<li><a href="https://fox-info.techidaily.com/leveraging-look-up-table-techniques-for-richer-images-in-pscc-for-2024/"><u>Leveraging Look-Up Table Techniques for Richer Images in PSCC for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-seafarer-speak-pirate-vocabulary-guide/"><u>Mastering Seafarer Speak: Pirate Vocabulary Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/smart-strategies-to-procure-photo-and-video-borders/"><u>Smart Strategies to Procure Photo & Video Borders</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621321-9781601635501-the-lightworkers-source/"><u>The Lightworker's Source | Free Book</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-vivo-y27-5g-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Vivo Y27 5G Android SIM Unlock APK</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Avoiding Career Pitfalls in Graphic Artistry"
-date: 2024-11-10T18:20:35.555Z
-updated: 2024-11-17T16:12:55.390Z
+date: 2024-11-22T22:16:43.812Z
+updated: 2024-11-27T18:11:49.906Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ Contrary to popular belief, entering the world of graphic design is easier than 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. Learn Graphic Designing
 
 You must have a thorough understanding of graphic design principles before you can become a graphic designer. A well-made design takes time to create. It takes extensive planning as well as knowledge of how to apply design philosophy and principles. Lines, color, shape, space, texture, typography, scale, dominance and emphasis, and harmony are all factors that graphic designers must consider. Each of these factors has an effect on a design and influences how an audience feels. Here are a few methods to get started:
@@ -36,6 +40,10 @@ You must have a thorough understanding of graphic design principles before you c
 A graphic design course teaches you the principles of design and aids in your skill development by having you work on projects. You'll meet peers and mentors through graphic design courses, and they'll be useful as you expand your network. Topics including color theory, typography, layout, and graphic design tools and software will likely be covered in the majority of graphic design courses.
 
 ![take graphic design course](https://images.wondershare.com/filmora/article-images/2022/11/take-graphic-design-course.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Some courses may also instruct you on the history of graphic design, user experience (UX), and website design principles, depending on their depth. There are several alternatives, ranging from academic courses with rigid structure to more flexible online courses. Find one that fits your learning style and timetable.
 
@@ -50,10 +58,7 @@ In order to discover and design for target consumers, you may also use a current
 Any graphic designer must have a strong portfolio. Projects you did for a course as well as personal or professional projects can be included in your portfolio. Pay attention to quality over quantity. Since your portfolio will serve as potential employers' or clients' initial impression of you, choose pieces that highlight your design expertise and passions.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. Find Clients
@@ -61,19 +66,6 @@ Any graphic designer must have a strong portfolio. Projects you did for a course
 It's crucial to land your first customers as quickly as you can. This will help you launch your company and give you the confidence and drive you need. You might try looking for clients on freelance job websites or use your personal network. Find out if your friends, co-workers, or family members know of anyone looking for a graphic designer. Here are some great places we find valuable to find potential graphic design clients:
 
 ![find graphic design clients online](https://images.wondershare.com/filmora/article-images/2022/11/find-graphic-design-clients-online.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **UpWork**
 
@@ -188,10 +180,7 @@ Most likely, you already know that Adobe Photoshop is the industry-standard prog
 In actuality, it is capable of far more than just image manipulation, including photo retouching, digital painting and drawing, 3D modeling, and user experience design. It is a fully functional program, and Adobe has been expanding its arsenal of AI capabilities under the Adobe Sensei brand so that you can quickly and easily remove backdrops, for example.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5\. Working in Teams
@@ -217,10 +206,7 @@ Understanding the individuals you deal with and allocating tasks based on that u
 A crucial component of creative activity is engaging others in their work. In general, employees who are more invested in their work will perform better over time.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Bottom Line
@@ -257,24 +243,15 @@ The world of graphic design depends on relationships with other people to advanc
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-free-method-to-record-your-youtube-watching-experience/"><u>[New] 2024 Approved Free Method to Record Your YouTube Watching Experience</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-spark-interest-with-unique-channel-names/"><u>[New] 2024 Approved How to Spark Interest With Unique Channel Names</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-capture-your-rides-top-7-camcorders-for-skiingsnowboarding/"><u>[New] In 2024, Capture Your Rides Top 7 Camcorders for Skiing/Snowboarding</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-fresh-take-on-the-enhanced-sony-s6500-media-device/"><u>[New] In 2024, Fresh Take on the Enhanced Sony S6500 Media Device</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-personalizing-the-perfect-pixel-rhythm/"><u>[New] In 2024, Personalizing the Perfect Pixel Rhythm</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/eywords-that-catapult-hashtag-hacks-in-gameplay-videos/"><u>[New] Keywords that Catapult Hashtag Hacks in Gameplay Videos</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-restore-windows-photo-viewer-quick-effective-ways-for-win10/"><u>[New] Restore Windows Photo Viewer Quick, Effective Ways for Win10</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-chromes-full-screen-trick-effortlessly-run-videos-and-apps-side-by-side/"><u>[Updated] 2024 Approved Chrome's Full-Screen Trick Effortlessly Run Videos and Apps Side by Side</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-androids-leading-photographic-enhancers-for-2024/"><u>[Updated] Android's Leading Photographic Enhancers for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-maximizing-video-collection-on-tiktok-efficiently/"><u>[Updated] In 2024, Maximizing Video Collection on TikTok Efficiently</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-essential-photographers-toolkit-polarr-edition/"><u>[Updated] In 2024, The Essential Photographer's Toolkit - Polarr Edition</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-mastering-mixer-streams-on-macos-a-step-by-step-guide/"><u>[Updated] Mastering Mixer Streams on macOS A Step-by-Step Guide</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-essential-playbook-turning-your-phone-into-a-vr-setup/"><u>[Updated] The Essential Playbook Turning Your Phone Into a VR Setup</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/elevating-your-role-fixing-cmd-prompt-issues/"><u>Elevating Your Role: Fixing Cmd Prompt Issues</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-leading-websites-your-source-for-legal-skype-ringtones/"><u>In 2024, Leading Websites Your Source for Legal Skype Ringtones</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-tips-to-enhance-screen-brightness-of-youtube-videos/"><u>In 2024, Tips to Enhance Screen Brightness of YouTube Videos</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/overcoming-rocket-league-wont-open-effective-fixes-and-tips/"><u>Overcoming 'Rocket League Won't Open': Effective Fixes & Tips</u></a></li>
-<li><a href="https://driver-download.techidaily.com/troubleshoot-and-fix-usb-recognition-issues-on-your-belkin-wireless-router-260ci/"><u>Troubleshoot & Fix: USB Recognition Issues on Your Belkin Wireless Router (260Ci)</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-if-your-tecno-spark-10-4g-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Tecno Spark 10 4G Auto Does Not Work | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-premium-noiseless-audio-to-text-applications-for-2024/"><u>[New] Premium Noiseless Audio-To-Text Applications for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-preserving-your-periscope-content-a-detailed-process-for-2024/"><u>[New] Preserving Your Periscope Content A Detailed Process for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-quick-filmmaking-tricks-save-time-and-money-at-home/"><u>[New] Quick Filmmaking Tricks Save Time & Money at Home</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Xiaomi Redmi K70? | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/hitman-ebx-3-black-screen-problem-on-desktop-fixes-and-workarounds/"><u>Hitman Ebx 3 Black Screen Problem on Desktop - Fixes and Workarounds</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/how-to-use-luts-in-adobe-after-effect/"><u>How to Use LUTs in Adobe After Effect</u></a></li>
+<li><a href="https://fox-info.techidaily.com/low-cost-cloud-vaulting-for-massive-file-stashing-for-2024/"><u>Low Cost Cloud Vaulting for Massive File Stashing for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/solutions-for-non-operational-google-nearby-sharing-service/"><u>Solutions for Non-Operational Google Nearby Sharing Service</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unmask-subject-with-backdrop-blanket-removal/"><u>Unmask Subject with Backdrop Blanket Removal</u></a></li>
+<li><a href="https://article-files.techidaily.com/unveiling-dji-phantom-3s-expert-features-for-2024/"><u>Unveiling DJI Phantom 3'S Expert Features for 2024</u></a></li>
 </ul></div>
 

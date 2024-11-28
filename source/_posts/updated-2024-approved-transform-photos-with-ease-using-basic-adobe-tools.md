@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Transform Photos with Ease Using Basic Adobe Tools\""
-date: 2024-11-15T16:37:05.402Z
-updated: 2024-11-17T21:53:59.084Z
+date: 2024-11-22T22:09:33.629Z
+updated: 2024-11-27T19:43:22.983Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,10 @@ Now we'll curve the image using the Warp Tool. Select the Warp Tool by clicking 
 
 ![wrap image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/wrap-image-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 With the Warp Tool selected, hover your cursor over the image. You'll see a grid appear over the image. Click and drag one of the middle nodes in the horizontal direction to begin curving the image. As you drag, you'll see the image curve along with your cursor. If you want to increase or decrease the amount of curvature, simply press and hold the Shift key while dragging the node.
 
 Play around with the settings in the options bar. There are quite a few different looks you can achieve just by adjusting these.
@@ -55,9 +59,17 @@ Play around with the settings in the options bar. There are quite a few differen
 
 ![change horizontal distortion photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-horizontal-distortion-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Vertical Distortion** makes the image look as if it's leaning backward.
 
 ![verticle distortion image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/verticle-distortion-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The **Bend Direction** option rotates the angle of the bend.
 
@@ -67,6 +79,10 @@ Flip any of these effects in the opposite direction by placing a negative sign i
 
 ![flip effect image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/flip-effect-image-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step4Save the Image
 
 Once you're happy with the way your image looks, go to File > Save As in the menu bar or press Ctrl+Shift+S or Command+Shift+S on your keyboard. Choose a file format and location to save your image and click Save. And that's it! You've successfully curved
@@ -74,10 +90,7 @@ Once you're happy with the way your image looks, go to File > Save As in the men
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -114,20 +127,24 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-crafting-conceptions-unveiling-the-worlds-best-schools-for-stories-top-8/"><u>[New] 2024 Approved Crafting Conceptions Unveiling the World's Best Schools for Stories (Top 8)</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-best-5-web-based-titling-aces-identified/"><u>[New] Best 5 Web-Based Titling Aces Identified</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-pinnacle-teaser-film-assortment/"><u>[New] In 2024, Pinnacle Teaser Film Assortment</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-the-essential-guide-to-enhancing-ar-with-lut-knowledge/"><u>[New] In 2024, The Essential Guide to Enhancing AR with LUT Knowledge</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-decoding-the-dichotomy-between-tiktok-and-its-alternative-triller/"><u>[Updated] In 2024, Decoding the Dichotomy Between TikTok and Its Alternative, Triller</u></a></li>
-<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-xiaomi-redmi-note-13-pro-5g-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Xiaomi Redmi Note 13 Pro 5G to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-realme-11-pro-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Realme 11 Pro FRP In 3 Different Ways</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-crafting-a-personalized-ringtone-from-tiktok-sounds/"><u>In 2024, Crafting a Personalized Ringtone From TikTok Sounds</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-edit-your-way-to-perfection-with-android/"><u>In 2024, Edit Your Way to Perfection with Android</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-exploring-remote-piloted-vehicles-their-inner-workings/"><u>In 2024, Exploring Remote-Piloted Vehicles Their Inner Workings</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-vivo-s18e-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Vivo S18e Phone FRP Lock</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-navigating-the-world-of-filmmaking-best-cameras-for-novices/"><u>In 2024, Navigating the World of Filmmaking Best Cameras for Novices</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Honor 90 GT | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/sleep-inducing-screenplays-video-evaluation/"><u>Sleep-Inducing Screenplays Video Evaluation</u></a></li>
-<li><a href="https://extra-information.techidaily.com/step-by-step-approach-for-stellar-gopro-videos/"><u>Step-By-Step Approach for Stellar GoPro Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-exceptional-power-for-gopro-hero5-official-sources-and-alternatives-for-2024/"><u>[New] Exceptional Power for GoPro Hero5 Official Sources & Alternatives for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-effortless-avi-to-gif-migration-with-filmora-on-windows-and-macos-devices/"><u>[New] In 2024, Effortless AVI to GIF Migration with Filmora on Windows & macOS Devices</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-maximizing-b-roll-impact-in-your-edits/"><u>[New] In 2024, Maximizing B-Roll Impact in Your Edits</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-techs-trailblazers-windows-10-redefines-user-interface/"><u>[New] In 2024, Tech's Trailblazers Windows 10 Redefines User Interface</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-unveiling-the-finest-zero-cost-digital-darkroom-tools/"><u>[New] Unveiling the Finest Zero-Cost Digital Darkroom Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-scouring-youtubes-notable-responses/"><u>[Updated] 2024 Approved Scouring YouTube's Notable Responses</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-add-flair-with-gifs-on-snapchat-a-comprehensive-walkthrough-for-2024/"><u>[Updated] Add Flair with GIFs on Snapchat – A Comprehensive Walkthrough for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-cant-see-only-cursor-a6400-issue/"><u>[Updated] Can't See, Only Cursor! - A6400 Issue</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-how-to-record-skype-meeting-on-windows-and-mac-skype-for-business-for-2024/"><u>[Updated] How to Record Skype Meeting on Windows and Mac | Skype for Business for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-a-filmmakers-must-visit-list-free-visual-effect-and-editing-websites-reviewed/"><u>[Updated] In 2024, A Filmmaker's Must-Visit List Free Visual Effect & Editing Websites Reviewed</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-quick-access-to-trending-tiktok-backdrops/"><u>[Updated] In 2024, Quick Access to Trending TikTok Backdrops</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-boost-your-visibility-fast-instagram-likes-and-vids/"><u>2024 Approved Boost Your Visibility Fast Instagram Likes & Vids</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-final-cut-pro-for-beginners-the-definitive-starter-pack/"><u>2024 Approved Final Cut Pro for Beginners The Definitive Starter Pack</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-guide-obtaining-vlc-player-at-no-cost-and-safety-on-mac/"><u>2024 Approved Guide Obtaining VLC Player at No Cost & Safety on Mac</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-unlock-the-full-potential-of-pixiz-in-video-making/"><u>In 2024, Unlock the Full Potential of Pixiz in Video Making</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/rectifying-window-11-media-quality-post-upgrade/"><u>Rectifying Window 11 Media Quality Post-Upgrade</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/slash-the-size-of-oversized-drafts-with-easy-edit-tactics-for-2024/"><u>Slash the Size of Oversized Drafts with Easy Edit Tactics for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/tiny-tale-telling-framework/"><u>Tiny Tale Telling Framework</u></a></li>
+<li><a href="https://fox-info.techidaily.com/vegas-pro-2021-unpacked-game-changer-or-just-another-tool-for-2024/"><u>Vegas Pro 2021 Unpacked Game Changer or Just Another Tool for 2024</u></a></li>
 </ul></div>
 
