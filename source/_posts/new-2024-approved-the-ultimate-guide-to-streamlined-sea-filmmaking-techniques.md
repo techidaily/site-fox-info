@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The Ultimate Guide to Streamlined Sea Filmmaking Techniques\""
-date: 2024-09-06T01:47:49.949Z
-updated: 2024-09-07T01:47:49.949Z
+date: 2024-12-01T20:49:19.281Z
+updated: 2024-12-06T19:25:24.524Z
 tags: 
   - screen-recording
   - ai video
@@ -41,11 +41,9 @@ thumbnail: https://thmb.techidaily.com/c9af2386c6798b3575f6d66e9544981a45984b6b6
 ![frame shot](https://images.wondershare.com/filmora/article-images/frame-shot.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 #### 2\. Get closer
 
  You need to get as close to your subject as you possibly can. It may take several attempts to get it right, especially if you’ve just about got the shot you want but your subject inevitably floats or swims away.
@@ -66,18 +64,6 @@ thumbnail: https://thmb.techidaily.com/c9af2386c6798b3575f6d66e9544981a45984b6b6
 
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### 4\. Stay steady
 
  Many amateurs think they won’t have a problem with wobbly movements when filming underwater, but even the smallest amount of jerkiness can be detrimental to your content.
@@ -86,23 +72,25 @@ thumbnail: https://thmb.techidaily.com/c9af2386c6798b3575f6d66e9544981a45984b6b6
 
 ![stay steady](https://images.wondershare.com/filmora/article-images/stay-steady-underwater.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### 5\. Be careful of other divers
 
  Unfortunately, other divers have a tendency to get in the way when you’re shooting footage underwater. Many video production professionals opt to intentionally include clips of divers in their footage so everything flows nicely and cuts work well together if their presence in other shots is unavoidable.
 
 ![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\. Wide angle
 
  If you wish to include wide-angle shots in your work, make sure the camera is zoomed all the way out. Locking your elbows to your side, try to hold your breath to reduce the chances of shaking and pan shots slowly. You may need to shoot several takes to get it just right and will benefit from the use of a colour correcting filter.
 
 ![wide angle](https://images.wondershare.com/filmora/article-images/wide-angle-underwater.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 7\. Shoot the best colour
 
@@ -113,23 +101,9 @@ thumbnail: https://thmb.techidaily.com/c9af2386c6798b3575f6d66e9544981a45984b6b6
 ![shoot shot](https://images.wondershare.com/filmora/article-images/shoot-colour.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ## Edit your footage
 
  To make your underwater videos good rather than great, it’s important that the editing process is of the highest quality.
@@ -145,17 +119,9 @@ thumbnail: https://thmb.techidaily.com/c9af2386c6798b3575f6d66e9544981a45984b6b6
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -179,4 +145,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-achieving-a-natural-sound-curve-dimming-audio-smoothly/"><u>[New] Achieving a Natural Sound Curve Dimming Audio Smoothly</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-honorable-5-quicktime-frame-recorder/"><u>[New] In 2024, Honorable 5 Quicktime Frame Recorder</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-prime-video-upload-solutions-for-twitter/"><u>[New] Prime Video Upload Solutions for Twitter</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-android-audio-recording-tips-no-root-required/"><u>[Updated] 2024 Approved Android Audio Recording Tips - No Root Required</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-profiles-in-metaverse-promotion-case-studies-and-more/"><u>[Updated] 2024 Approved Profiles in Metaverse Promotion Case Studies and More</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-35-hilarious-image-editing-software-for-smartphones-and-pcs-for-2024/"><u>[Updated] 35 Hilarious Image Editing Software for Smartphones & PCs for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-advanced-techniques-for-proximity-viewing-in-roblox/"><u>[Updated] Advanced Techniques for Proximity Viewing in Roblox</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-affordable-wide-angle-vr-cameras-for-filmmaking/"><u>[Updated] Affordable Wide-Angle VR Cameras for Filmmaking</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-basic-screen-capture-windows-10-version-for-2024/"><u>[Updated] Basic Screen Capture, Windows 10 Version for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-efficiently-hosting-virtual-events-via-zoom-and-win11/"><u>[Updated] In 2024, Efficiently Hosting Virtual Events via Zoom & Win11</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-saving-your-itunes-media-three-simple-steps/"><u>[Updated] Saving Your iTunes Media Three Simple Steps</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-verdict-on-inshot-master-editor-in-2024/"><u>[Updated] The Verdict on InShot Master Editor, In 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-the-complete-obs-toolkit-for-flawless-instagram-streams/"><u>2024 Approved The Complete OBS Toolkit for Flawless Instagram Streams</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/discerning-the-ideal-audio-elements-for-movie-previews/"><u>Discerning the Ideal Audio Elements for Movie Previews</u></a></li>
+<li><a href="https://fox-info.techidaily.com/high-end-photo-overlays-for-creative-texting/"><u>High-End Photo Overlays for Creative Texting</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-beaming-login-logout-directions/"><u>In 2024, Beaming Login / Logout Directions</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-debunking-common-misconceptions-about-aurora-hdr/"><u>In 2024, Debunking Common Misconceptions About Aurora HDR</u></a></li>
+<li><a href="https://fox-that.techidaily.com/key-iphone-13-glitches-and-their-simple-resolutions-you-cant-miss/"><u>Key iPhone 13 Glitches and Their Simple Resolutions You Can't Miss</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/photo-clips-melody-layers-in-new-videos-for-2024/"><u>Photo Clips, Melody Layers in New Videos for 2024</u></a></li>
+</ul></div>
 

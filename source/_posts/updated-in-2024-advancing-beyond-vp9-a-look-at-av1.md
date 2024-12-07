@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Advancing Beyond VP9  A Look at AV1\""
-date: 2024-11-26T01:14:15.142Z
-updated: 2024-11-28T00:39:48.654Z
+date: 2024-12-04T06:22:15.440Z
+updated: 2024-12-07T06:07:45.735Z
 tags: 
   - screen-recording
   - ai video
@@ -31,19 +31,23 @@ Released in 2013 by Google, VP9 is a free, open-source video codec that replaced
 
 In the meantime, a 2014 comparison between VP9 and /AVC discovered that VP9 offers a 45% bitrate advantage over. Netflix also concluded in 2016 that VP9  could have the same efficiency after tweaking the parameters. So overall, VP9 supports lossless encoding of raw bitstreams, making it perfect for streaming videos in MP4 and WebM.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2\. What is AV1?
 
 AV1 is a relatively new video codec by Alliance for Open Media, a consortium of which Google is a co-founder. Like VP9, it's a royalty-free video codec, meaning you don't have to pay licensing fee to use it. AV1 was developed to replace VP9, so expect it to be compatible with all VP9-supported platforms. Besides Google, the Alliance for Open Media also includes Netflix, Amazon, Cisco, Intel, Microsoft, and Mozilla.
 
 The first AV1 version was released in 2016 but was held back due to unresolved critical bugs. Then in March 2018, the Alliance announced another release alongside software encoder/decoder. Although the codec is primarily designed to compete with licensed codecs like  AVC, there are concerns that it may threaten the existence of other royalty-free codecs. But as a consumer, freebies are always a welcome addition.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3\. Detailed Comparison Between VP9 and AV1
 
 For viewers to enjoy high-quality content without using a lot of resources, efficient video compression technology is a must. As it stands, both VP9 and AV1 are royalty-free codecs, meaning that they are 100% free to use. However, these codecs differ. Here is what we've gathered for the **VP9 vs AV1** comparison:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Compatibility - VP9 has an edge
 
@@ -52,7 +56,7 @@ Both video compression techniques are relatively new, which AV1 being the latest
 ![compatibility](https://images.wondershare.com/filmora/article-images/2022/11/av1-vs-vp9-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 But on the other hand, viewers might experience an "error" message when opening AV1 locally on your old PC. While Intel works around the clock to develop supported drivers, some may not be compatible with your old computer. But expect wider AV1 compatibility now that more tech companies like Meta, Samsung, and Apple have joined the Alliance for Open Media. Currently, YouTube and Netflix are already streaming some videos in AV1.
@@ -81,6 +85,10 @@ Soon in the September, NVIDIA unveiled the GeForce RTX® 40 Series of GPUs, whic
 
 Let alone AV2 is upcoming in 3-5 years. There is no doubt that AV1 is the future trend.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4\. Which Editor Can Export an AV1 MP4 Video?
 
 If you're a YouTuber, it's evident that AV1 is the best codec to use. This codec delivers faster upload and download speeds, thanks to the higher compression levels over VP9\. And as said before, AV1 offers better video quality than VP9 and other codecs, something that will get viewers trooping to your channel.
@@ -93,19 +101,11 @@ Apply these steps to create an MP4 AV1 video on Filmora 11:
 
 ![av1 vs vp9 load video](https://images.wondershare.com/filmora/article-images/2022/11/av1-vs-vp9-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Install and run [Filmora 11](https://tools.techidaily.com/wondershare/filmora/download/) on your computer, then select the video aspect ratio. For example, choose 16:9 (Widescreen) for YouTube videos. After that, start a **New Project** and click **Import Media** to load the video. Of course, you can load multiple videos and merge them later. Now move the video to the timeline by dragging.
 
 ##### Step2Edit the video to make it more appealing (optional)
 
 ![av1 vs vp9 edit video](https://images.wondershare.com/filmora/article-images/2022/11/av1-vs-vp9-5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 As you may already know, thousands of videos are uploaded daily on YouTube. Therefore, your videos must look creative to attract views. So, trim, split, merge, and delete video clips. You can also click the **Effects** tab to add animated titles, intros, transitions, music, and more. In addition, double-tap the video timeline to add motion tracking, image stabilization, color correction, chroma key, and more. And don't forget to add subtitle tracks using the **Sound to Text** feature.
 
@@ -114,10 +114,6 @@ As you may already know, thousands of videos are uploaded daily on YouTube. Ther
 ![av1 vs vp9 choose av1 mp4](https://images.wondershare.com/filmora/article-images/2022/11/av1-vs-vp9-6.jpg)
 
 Are you satisfied with the edited video? Click **Play** to preview it and apply further edits if needed. Then, tap **Export** and choose **MP4 AV1** as the target format. Lastly, name your video and export it to your local drive. You can also click the **YouTube** tab to directly upload the video on the platform. And that's it!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 5\. FAQs About AV1 and VP9
 
@@ -129,25 +125,29 @@ There's nothing like the "best video codec" because it depends on user preferenc
 
 Checking the type of codec used to stream a YouTube video is relatively straightforward. Open the video and right-click the video screen. Then, click "Stats for nerds" to view the video codec, color, network connection speed, frames, and more.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How can I disable/disable AV1 playback on Firefox?
 
 If you're using Firefox 63.0 or newer, you can disable/enable AV1 support. To do that, open the browser, then type _about:config_ before tapping **Enter** to search. Then, tap the **I accept the risk** button, then double-tap _media.av1.enabled_ to change the **Value** to **false** or **true**.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Can I open AV1 videos on VLC?
 
 You can open AV1 on VLC version 3.0.0, released on February 2018\. Remember that VideoLAN, the developer of VLC Media Player, is a member of the Alliance for Open Media.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### When will AV2 be released?
 
 After multiple tests to compare AV1 and H.266, it was discovered that the former lags in numerous aspects. As a result, Alliance for Open Media had to go back to the drawing board to design AV2\. But don't expect this codec until at least 2024 to 2025.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Summary
 
@@ -183,18 +183,22 @@ We hope this AV1 vs VP9 comparison article has dispelled all your fears about us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-prime-frame-rate-enhancing-laggard-motion/"><u>[New] 2024 Approved Prime Frame Rate Enhancing Laggard Motion</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-the-complete-guide-to-cd-conversion-and-burning-with-wmp/"><u>[New] In 2024, The Complete Guide to CD Conversion & Burning with WMP</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-elevating-your-role-a-guide-to-exceptional-interviews/"><u>[Updated] 2024 Approved Elevating Your Role A Guide to Exceptional Interviews</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-enhance-image-vibrance-and-contrast-in-photoshop/"><u>[Updated] 2024 Approved Enhance Image Vibrance and Contrast in Photoshop</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-capturing-and-saving-your-favorite-facebook-stories-pcmobile/"><u>[Updated] Capturing & Saving Your Favorite Facebook Stories (PC/Mobile)</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-peak-workshop-masterpiece-insight-for-2024/"><u>[Updated] Peak Workshop Masterpiece Insight for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/1722976177161-effortless-amd-radeon-rx-amo-470-driver-installation-and-latest-updates-available-now/"><u>Effortless AMD Radeon RX Amo 470 Driver Installation & Latest Updates Available Now</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/elevate-engagement-4-steps-to-add-fb-story-link/"><u>Elevate Engagement 4 Steps to Add FB Story Link</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/fixing-low-fps-issues-a-comprehensive-guide-for-pc-gaming-enthusiasts/"><u>Fixing Low FPS Issues: A Comprehensive Guide for PC Gaming Enthusiasts</u></a></li>
-<li><a href="https://program-issues.techidaily.com/instant-improvements-to-fix-lag-issues-in-assassins-creed-valhalla-gameplay/"><u>Instant Improvements to Fix Lag Issues in Assassin's Creed: Valhalla Gameplay</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-2024-approved-the-gradual-diminishment-of-audio-fidelity-in-adobe-rush/"><u>New 2024 Approved The Gradual Diminishment of Audio Fidelity in Adobe Rush</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/pioneering-stories-on-youtube-2023-edition/"><u>Pioneering Stories on YouTube, 2023 Edition</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/toms-tech-hub-unveiling-the-latest-in-hardware/"><u>Tom's Tech Hub: Unveiling the Latest in Hardware</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-capture-flawless-footage-top-choices-of-tripods-for-youtubers/"><u>[New] 2024 Approved Capture Flawless Footage Top Choices of Tripods for YouTubers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-aurora-hdr-experience-is-it-transformative/"><u>[New] 2024 Approved The Aurora HDR Experience Is It Transformative?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-youtubes-guide-to-the-best-gaming-tech/"><u>[New] 2024 Approved YouTube's Guide to the Best Gaming Tech</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-your-channels-templates-at-no-charge/"><u>[New] In 2024, Elevate Your Channels - Templates at No Charge</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-perfecting-the-pathway-of-imovie-content-to-youtube/"><u>[New] Perfecting the Pathway of iMovie Content to YouTube</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-decoding-the-language-of-auditory-cues-in-movie-previews/"><u>[Updated] 2024 Approved Decoding the Language of Auditory Cues in Movie Previews</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-extreme-expeditions-the-hero5-black-vs-hero5-session-showdown/"><u>[Updated] Extreme Expeditions The Hero5 Black Vs Hero5 Session Showdown</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-stream-video-freely-on-any-os-no-cost-video-player/"><u>[Updated] In 2024, Stream Video Freely on Any OS No-Cost VIDEO Player</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-unilateral-earbud-error-how-to-rectify-for-2024/"><u>[Updated] Unilateral Earbud Error How to Rectify for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/auditory-enhancement-unlocked-delve-into-freeware-audio-effect-software/"><u>Auditory Enhancement Unlocked Delve Into Freeware Audio Effect Software</u></a></li>
+<li><a href="https://win-premium.techidaily.com/beste-wege-den-cache-zu-leeren-aktualisierung-mit-windows-11/"><u>Beste Wege, Den Cache Zu Leeren - Aktualisierung Mit Windows 11</u></a></li>
+<li><a href="https://fox-info.techidaily.com/essential-tips-for-advanced-editing-in-gopro-studio-for-2024/"><u>Essential Tips for Advanced Editing in GoPro Studio for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/get-the-most-out-of-your-content-facebooks-full-screen-tutorial-2023-for-2024/"><u>Get the Most Out of Your Content Facebook's Full-Screen Tutorial 2023 for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-deciphering-whatsapps-voice-call-mechanics/"><u>In 2024, Deciphering WhatsApp's Voice Call Mechanics</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/photoshop-grading-made-simple-for-everyone-for-2024/"><u>Photoshop Grading Made Simple for Everyone for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/podcastpathfinder-moving-past-dacast-for-2024/"><u>PodcastPathfinder Moving Past DaCast for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/step-by-step-guide-to-manipulating-fax-cover-pages-on-win11/"><u>Step-by-Step Guide to Manipulating Fax Cover Pages on Win11</u></a></li>
 </ul></div>
 

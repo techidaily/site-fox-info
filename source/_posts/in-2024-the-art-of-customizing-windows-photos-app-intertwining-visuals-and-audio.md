@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, The Art of Customizing Windows Photos App  Intertwining Visuals & Audio\""
-date: 2024-11-22T17:11:46.159Z
-updated: 2024-11-28T01:48:04.225Z
+date: 2024-12-03T20:21:53.067Z
+updated: 2024-12-06T21:19:58.534Z
 tags: 
   - screen-recording
   - ai video
@@ -50,6 +50,10 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
 **Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
@@ -57,14 +61,10 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5**: Just select one you like. Preview it and then click Done.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to add music on Windows 10 Photos App
 
@@ -78,18 +78,18 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5**: Hit the ‘Done’ button.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -99,7 +99,7 @@ From the above article, we conclude that Windows 10 Photos app is an amazing app
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -127,21 +127,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-from-pro-to-max-the-transformative-journey-of-apples-macbook-chips/"><u>[New] 2024 Approved From Pro to Max The Transformative Journey of Apple’s MacBook Chips</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-bridging-the-gap-how-to-successfully-export-srt-from-premiere-for-2024/"><u>[New] Bridging the Gap How to Successfully Export SRT From Premiere for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-comparing-vlc-and-mx-player-for-2024/"><u>[New] Comparing VLC and MX Player for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-increasing-brilliance-on-your-android-videos/"><u>[New] In 2024, Increasing Brilliance on Your Android Videos</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-clearer-anonymity-discreet-faces-deletion-for-2024/"><u>[Updated] Clearer Anonymity Discreet Faces Deletion for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-tricks-for-swift-vimeo-watch/"><u>[Updated] Tricks for Swift Vimeo Watch</u></a></li>
-<li><a href="https://network-issues.techidaily.com/enhance-performance-windows-plus-new-intellgraphic-driver/"><u>Enhance Performance: Windows + New IntellGraphic Driver</u></a></li>
-<li><a href="https://techidaily.com/how-to-soft-reset-oneplus-ace-3-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset OnePlus Ace 3 phone? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Honor 90 Pro? | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/keeping-your-epson-xp-420-up-to-date-finding-and-installing-recent-drives/"><u>Keeping Your Epson XP-420 Up-To-Date: Finding & Installing Recent Drives</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-rise-and-shine-wake-up-to-savings-with-our-filmora-easter-sale/"><u>New Rise and Shine Wake Up to Savings with Our Filmora Easter Sale</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolving-code-24-device-not-present-error-in-windows-1087/"><u>Resolving Code 24: 'Device Not Present' Error in Windows 10/8/7</u></a></li>
-<li><a href="https://fox-info.techidaily.com/swift-windows-checkup-guide-explanatory-for-2024/"><u>Swift Windows Checkup Guide Explanatory for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/top-sites-for-digital-metallic-text-with-a-golden-twist/"><u>Top Sites for Digital Metallic Text with a Golden Twist</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/universal-unlock-pattern-for-samsung-galaxy-a15-4g-by-drfone-android/"><u>Universal Unlock Pattern for Samsung Galaxy A15 4G</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-winning-tv-recorder-strategies-no-cost-no-hassle/"><u>[Updated] 2024 Approved Winning TV Recorder Strategies (No-Cost, No Hassle)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-a-symphony-for-photos-on-digital-platforms-for-2024/"><u>[Updated] A Symphony for Photos on Digital Platforms for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-harnessing-the-power-of-light-in-iphone-hdr-photography/"><u>[Updated] Harnessing the Power of Light in iPhone HDR Photography</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-top-10-innovative-ai-based-podcast-name-generators/"><u>[Updated] In 2024, Top 10 Innovative AI-Based Podcast Name Generators</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-ions-bold-step-forward-with-pro-3-a-comprehensive-camera-review/"><u>[Updated] ION's Bold Step Forward with Pro 3 - A Comprehensive Camera Review</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-video-sizing-anomalies-what-causes-imovie-to-crop-in-2024/"><u>[Updated] Video Sizing Anomalies What Causes iMovie to Crop, In 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/1-intelligent-alternative-stardock-desktopgt-the-ideal-choice-for-seasoned-tech-enthusiasts/"><u>1. Intelligent Alternative: Stardock DesktoPGT - The Ideal Choice for Seasoned Tech Enthusiasts</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-vivo-x90s-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Vivo X90S | Dr.fone</u></a></li>
+<li><a href="https://os-tips.techidaily.com/mastering-video-recording-with-your-apple-watch-a-step-by-step-guide/"><u>Mastering Video Recording with Your Apple Watch: A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/navigating-the-maze-of-fs-mode-in-ppro-for-2024/"><u>Navigating the Maze of FS Mode in PPro for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solving-the-problem-of-non-launchable-star-wars-jedi-fallen-order/"><u>Solving the Problem of Non-Launchable Star Wars Jedi: Fallen Order</u></a></li>
 </ul></div>
 

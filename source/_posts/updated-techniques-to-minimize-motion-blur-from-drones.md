@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Techniques to Minimize Motion Blur From Drones"
-date: 2024-09-06T01:47:49.969Z
-updated: 2024-09-07T01:47:49.969Z
+date: 2024-12-04T17:29:33.684Z
+updated: 2024-12-07T09:30:13.132Z
 tags: 
   - screen-recording
   - ai video
@@ -16,30 +16,12 @@ keywords: "\"Drone Shake Reduction,Anti-Blur Drone Tech,Stable Drone Imaging,Cle
 thumbnail: https://thmb.techidaily.com/1323edf73cef5ddeb6760a28b46d407c0ed89a3159fd177b98bcbf03f2bf6c24.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Techniques to Minimize Motion Blur From Drones
 
 # How to Remove Jello Effect from an Aerial Video
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Max Wales
 
  Mar 27, 2024• Proven solutions
@@ -47,27 +29,17 @@ thumbnail: https://thmb.techidaily.com/1323edf73cef5ddeb6760a28b46d407c0ed89a315
 When we talk about flight FPV quadcopters then Jello Effect appears like biggest disturbance in the path of quality. This effect results due to vibration influence that is channelled on camera when it starts rocking in air. No matter whether you are a professional or beginner, Jello effect is always your biggest enemy as it does terrible things inside recorded videos that can distract viewers away from actual content. The article below will help you to gain important information about how to remove this Jello or rolling shutter effect from videos.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What is Rolling Shutter
 
 First of all we need to discus about the major terms like rolling shutter effect etc. You might be aware of the fact that sensors can be designed with rolling shutter as well as with a global shutter. This rolling shutter is able to capture footage with better scanning on every part of image due to installed CMOS sensor. Generally, the global shutters are capable enough to manage entire frame at the same time but rolling shutters start scanning from top to bottom and hence they leave various visual artefacts in between. In simple words, it is not able to capture top and bottom portion of shot at same moment hence images appear skewed.
 
 <!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What is Jello Effect
 
 As DSLRs usually come with rolling shutters as these shutters are able to follow quick movements that cannot be noticed by users. But the biggest trouble is observed when camera is used to perform quick pans or it has to work with extremely moving subjects same as airplane propellers. These quick pans cause jello effect in clips and images naturally become skewed with loss of details.
@@ -77,11 +49,9 @@ Now, you might be thinking hard that when global shutters are able to serve with
 Further, global shutters are not able to achieve the DR value same as rolling shutters hence they cannot be applied for handheld recording needs, visual effects or for action scenes.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Remove Jello Effect from Drone Videos?
 
 #### 1. Use Gimbal
@@ -117,11 +87,9 @@ Check this video tutorial to see how to remove jello effect with Adobe Premiere
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -145,4 +113,20 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-journey-through-ipodverse-mastering-iphones-podcast-downloads/"><u>[New] 2024 Approved Journey Through iPodverse Mastering iPhone's Podcast Downloads</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-seas-silent-storytelling-mastering-gopro-footage-in-deep-waters/"><u>[New] 2024 Approved Sea's Silent Storytelling Mastering GoPro Footage in Deep Waters</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-stepping-into-the-spotlight-joining-tiktok-sessions/"><u>[New] 2024 Approved Stepping Into the Spotlight Joining TikTok Sessions</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-quick-guide-posting-podcast-on-instagram-for-2024/"><u>[New] Quick Guide Posting Podcast on Instagram for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-achieving-maximum-comfort-in-vr-landscape/"><u>[Updated] 2024 Approved Achieving Maximum Comfort in VR Landscape</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-essential-guide-to-screen-capturing-on-hp-devices-for-2024/"><u>[Updated] Essential Guide to Screen Capturing on HP Devices for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/elite-film-preview-spectacles/"><u>Elite Film Preview Spectacles</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-agribuddy-games-celebrating-camaraderie-on-the-farm/"><u>In 2024, AgriBuddy Games Celebrating Camaraderie on the Farm</u></a></li>
+<li><a href="https://fox-info.techidaily.com/simulating-spatial-jumps-visual-effect-techniques/"><u>Simulating Spatial Jumps Visual Effect Techniques</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-alluring-and-agile-dell-xps-13-7390-an-in-depth-look-at-this-remarkable-2-in-1-laptop/"><u>The Alluring and Agile Dell XPS 13 (7390): An In-Depth Look at This Remarkable 2-in-1 Laptop</u></a></li>
+<li><a href="https://video-capture.techidaily.com/top-5-emulators-the-ultimate-guide-for-classic-ps1-games-on-pc/"><u>Top 5 Emulators The Ultimate Guide for Classic PS1 Games on PC</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unlock-your-potential-for-green-screen-excellence-in-kinemaster/"><u>Unlock Your Potential for Green Screen Excellence in Kinemaster</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1726030596471-windowsmov/"><u>Windows対応動画にMOV形式をアップデートする手順解説</u></a></li>
+</ul></div>
 

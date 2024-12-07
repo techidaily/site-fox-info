@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Save Photo From Video in Windows 11 Photos App for 2024"
-date: 2024-11-27T01:04:12.143Z
-updated: 2024-11-28T00:47:25.428Z
+date: 2024-12-01T03:33:06.713Z
+updated: 2024-12-07T01:53:39.524Z
 tags: 
   - screen-recording
   - ai video
@@ -40,7 +40,7 @@ In this article, you will learn how to save photo from Windows 10 Photos app and
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to save photo from Windows 10 Photos app
@@ -57,7 +57,7 @@ Creating a living image:
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Now, you can see the living picture by tapping ‘Play’ button.
@@ -71,6 +71,10 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Why I can’t save photo from video
 
 In case, you are not able to save photos from video on Windows 10 Photos App. There might be issues with an outdated [Microsoft OS patch update](https://support.microsoft.com/en-us/help/311047/how-to-keep-your-windows-computer-up-to-date) or the Microsoft account is having any problem. But, you don’t have to worry about the same.
@@ -78,12 +82,16 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 We are explaining the solutions here –
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Sign in a different account in Microsoft Store
 
@@ -101,10 +109,6 @@ Here comes the guide –
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
@@ -113,10 +117,6 @@ Here comes the guide –
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -143,24 +143,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-video-virtuosos-guide-amplifying-iphone-hdri-clarity-using-four-editing-steps-for-2024/"><u>[New] [Video Virtuoso's Guide] Amplifying iPhone HDRI Clarity Using Four Editing Steps for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-essential-15-film-look-up-tables-for-gopro-videos/"><u>[New] Essential 15 Film Look-Up Tables for GoPro Videos</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-essential-strategies-for-successful-zoom-meetings-using-win10/"><u>[New] Essential Strategies for Successful Zoom Meetings Using WIN10</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-premium-5-display-picks-for-immersive-gameplay/"><u>[New] In 2024, Premium 5 Display Picks for Immersive Gameplay</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-the-ultimate-guide-to-avoiding-vr-nausea-for-2024/"><u>[New] The Ultimate Guide to Avoiding VR Nausea for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-ignite-views-effective-strategies-for-optimizing-youtube-collaborations/"><u>[Updated] Ignite Views Effective Strategies for Optimizing YouTube Collaborations</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-premier-choices-8-linux-editing-tools/"><u>[Updated] In 2024, Premier Choices 8 Linux Editing Tools</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-the-ultimate-guide-to-iphones-best-5-podcasting-apps-for-2024/"><u>[Updated] The Ultimate Guide to iPhone's Best 5 Podcasting Apps for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-twitch-triumph-or-hitbox-heritage-in-2024/"><u>[Updated] Twitch Triumph or Hitbox Heritage, In 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-why-cant-i-watch-video-on-sony-a6400-camera/"><u>[Updated] Why Can't I Watch Video on Sony A6400 Camera?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-capturing-crisp-sound-a-guide-to-superior-audio-recording/"><u>2024 Approved Capturing Crisp Sound A Guide to Superior Audio Recording</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/easy-access-downloading-your-canon-mf4500-printers-official-drivers/"><u>Easy Access: Downloading Your Canon MF4500 Printer's Official Drivers</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Nubia Z50S Pro? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-xiaomi-redmi-13c-5g-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Xiaomi Redmi 13C 5G Like A Pro 5 Easy Ways</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-ultimate-tutorial-editing-photos-by-cutting-out-the-surround/"><u>In 2024, Ultimate Tutorial Editing Photos by Cutting Out the Surround</u></a></li>
-<li><a href="https://driver-download.techidaily.com/latest-intel-rst-has-and-matrix-storage-support-drivers-for-windows-versions-11-10-8-and-7-download-now/"><u>Latest Intel RST, HAS, and Matrix Storage Support Drivers for Windows Versions: 11, 10, 8, ^& 7 - Download Now!</u></a></li>
-<li><a href="https://fox-info.techidaily.com/modern-vr-equipment-overview/"><u>Modern VR Equipment Overview</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-steps-to-fix-audio-issues-on-hp-devices-running-windows-11/"><u>Troubleshooting Steps to Fix Audio Issues on HP Devices Running Windows 11</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/what-is-claude-ai-and-why-should-you-use-it/"><u>What Is Claude AI and Why Should You Use It?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-leveraging-vr-to-shape-modern-business-practices/"><u>[New] 2024 Approved Leveraging VR to Shape Modern Business Practices</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-bridging-gaps-in-communication-automating-story-captions/"><u>[New] Bridging Gaps in Communication Automating Story Captions</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-expert-review-of-the-leading-no-cost-cam-software-options/"><u>[New] Expert Review of the Leading No-Cost Cam Software Options</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-diminuendo-film-narrative/"><u>[New] In 2024, Diminuendo Film Narrative</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-utilizing-edges-split-screen-feature-pip/"><u>[New] In 2024, Utilizing Edge's Split Screen Feature PIP</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-edge-of-creativity-best-4k-displays-for-editing-excellence/"><u>[Updated] 2024 Approved Edge of Creativity Best 4K Displays for Editing Excellence</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-nba-live-action-your-guide-to-15-effective-livestream-tips/"><u>[Updated] 2024 Approved NBA Live Action Your Guide to 15 Effective Livestream Tips</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-premium-8-streamlining-tools-to-elevate-your-streams/"><u>[Updated] 2024 Approved Premium 8 Streamlining Tools to Elevate Your Streams</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-editors-toolkit-elevating-your-video-with-inshot-transitions-for-2024/"><u>[Updated] The Editor's Toolkit Elevating Your Video with Inshot Transitions for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-ultimate-route-to-sharpen-your-meme-skills-at-9gag/"><u>[Updated] The Ultimate Route to Sharpen Your Meme Skills at 9GAG</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-unveiling-simplicity-in-ipad-screen-saving-tactics/"><u>2024 Approved Unveiling Simplicity in iPad Screen Saving Tactics</u></a></li>
+<li><a href="https://win-able.techidaily.com/effortless-ways-to-resolve-battlefield-1-game-crashes/"><u>Effortless Ways to Resolve Battlefield 1 Game Crashes</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-icloud-lock-from-your-iphone-15-and-ipad-by-drfone-ios/"><u>In 2024, How to Unlock iCloud lock from your iPhone 15 and iPad?</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-step-by-step-strategy-for-unearthing-secret-youtube-videos/"><u>In 2024, Step-by-Step Strategy for Unearthing Secret YouTube Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-supreme-suggestions-elite-ios-tone-craftsmen/"><u>In 2024, Supreme Suggestions Elite iOS Tone Craftsmen</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/solving-directx-update-challenges-on-windows/"><u>Solving DirectX Update Challenges on Windows</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/unofficially-run-old-school-video-games-on-your-iphone-no-hacking-needed/"><u>Unofficially Run Old-School Video Games on Your iPhone - No Hacking Needed!</u></a></li>
 </ul></div>
 

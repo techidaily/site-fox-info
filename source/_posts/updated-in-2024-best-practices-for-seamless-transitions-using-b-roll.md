@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Best Practices for Seamless Transitions Using B Roll"
-date: 2024-11-23T16:31:18.032Z
-updated: 2024-11-27T21:04:33.584Z
+date: 2024-12-06T05:01:08.640Z
+updated: 2024-12-07T07:32:07.676Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ Now that we know that, let's dive in!
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. B roll In TV And Movies
@@ -49,17 +49,25 @@ The ideal way to use B roll is to put it behind interviews. This kind of footage
 
 On the other hand, cutaways can show how different people react to what is being said in an interview. After all, transitions are commonly used to switch from one person's experience with a certain topic to another person's experience with the same topic. All of these different kinds of footage give filmmakers and videographers more freedom to tell their stories without relying too much on dialogue or narration.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. What types of b roll are there?
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Archival b roll footage
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Visual detail b roll footage
 
@@ -69,23 +77,19 @@ Including archival material in your video allows your audience to experience a p
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Undirected b roll footage
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Atmospheric b roll footage
 
 When you are sharing a narrative that has been told in the past or that has historical significance, incorporating archival material into your video gives your audience the opportunity to see the story as it occurred at the time. This is especially useful when you are discussing a narrative that has been experienced in the past or that has futuristic relevance.
 
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6\. Pick-up shots
 
@@ -96,10 +100,6 @@ If flaws were discovered during primary photography, the directors could have re
 ### 7\. A roll vs b roll
 
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -135,14 +135,22 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-the-intricate-yet-straightforward-guide-exploring-popular-youtube-reactions/"><u>[New] 2024 Approved The Intricate Yet Straightforward Guide Exploring Popular YouTube Reactions</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-dynamic-images-made-simple-in-illustrator/"><u>[New] In 2024, Dynamic Images Made Simple in Illustrator</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-synchronizing-social-media-channels-for-broad-distribution/"><u>[Updated] Synchronizing Social Media Channels for Broad Distribution</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-unlocking-obs-video-potential-five-must-know-techniques/"><u>2024 Approved Unlocking OBS Video Potential Five Must-Know Techniques</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-harmonizing-with-inshot-music-integration-guide/"><u>In 2024, Harmonizing with InShot Music Integration Guide</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/latest-nvidia-quadro-graphics-driver-updates-and-downloads-compatible-with-windows-10/"><u>Latest NVIDIA Quadro Graphics Driver Updates & Downloads Compatible with Windows 10</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/overcoming-jpeg-artifacts-post-export/"><u>Overcoming Jpeg Artifacts Post-Export</u></a></li>
-<li><a href="https://fox-info.techidaily.com/ultimate-innovation-in-desktop-computers-for-2024/"><u>Ultimate Innovation in Desktop Computers for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/wallet-friendly-skyvaults-affordable-ample-data-storing-for-2024/"><u>Wallet-Friendly SkyVaults Affordable, Ample Data Storing for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-dynamic-action-photography-on-your-iphone/"><u>[New] 2024 Approved Dynamic Action Photography on Your iPhone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-seamless-integration-iphone-video-editing-guide/"><u>[New] 2024 Approved Seamless Integration IPhone Video Editing Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-ultimate-playwriting-workshop/"><u>[New] 2024 Approved Ultimate Playwriting Workshop</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-exploring-3dr-by-himself-an-experts-opinion-for-2024/"><u>[New] Exploring '3DR' By Himself – An Expert's Opinion for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-from-first-steps-to-expertise-lenovos-guide-to-recording-success-for-2024/"><u>[New] From First Steps to Expertise Lenovo’s Guide to Recording Success for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-cut-to-the-chase-guide-for-gopro-4k-mastery/"><u>[Updated] 2024 Approved Cut-to-the-Chase Guide for GoPro 4K Mastery</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-elevate-iphone-imaging-with-premium-camera-gear/"><u>[Updated] Elevate iPhone Imaging with Premium Camera Gear</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-optimal-steadicams-matched-with-dslr-cameras/"><u>[Updated] In 2024, Optimal Steadicams Matched with DSLR Cameras</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-streamlined-processes-for-capturing-vimeo-video-files/"><u>2024 Approved Streamlined Processes for Capturing Vimeo Video Files</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-tecno-spark-10-pro-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Tecno Spark 10 Pro without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparing-the-differences-ps5-slim-vs-original-ps5/"><u>Comparing the Differences: PS5 Slim vs Original PS5</u></a></li>
+<li><a href="https://win-answers.techidaily.com/freeze-no-more-overcome-wrath-of-the-righteous-stalling-issues-in-pathfinder-on-pc/"><u>Freeze No More: Overcome 'Wrath of the Righteous' Stalling Issues in Pathfinder on PC</u></a></li>
+<li><a href="https://fox-info.techidaily.com/mastering-low-volume-settings-in-os-xwindows-for-2024/"><u>Mastering Low-Volume Settings in OS X/Windows for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/the-apple-macbook-air-with-m2-chip-crowned-best-laptop-by-zdnet-in-annual-product-contest/"><u>The Apple MacBook Air with M2 Chip Crowned Best Laptop by ZDNET in Annual Product Contest!</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-future-of-data-transfer-understanding-the-importance-of-thunderbolt-sharing-in-your-new-laptop/"><u>The Future of Data Transfer: Understanding the Importance of Thunderbolt Sharing in Your New Laptop</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-most-effective-ways-to-bypass-iphone-13-pro-max-activation-lock-by-drfone-ios/"><u>The Most Effective Ways to Bypass iPhone 13 Pro Max Activation Lock</u></a></li>
+<li><a href="https://fox-info.techidaily.com/unmatched-gaming-laptops-top-4k-picks-reviewed-for-2024/"><u>Unmatched Gaming Laptops - Top 4K Picks Reviewed for 2024</u></a></li>
 </ul></div>
 

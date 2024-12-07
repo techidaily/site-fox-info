@@ -1,7 +1,7 @@
 ---
 title: "The Photographer's Secret to Color Inversion for 2024"
-date: 2024-11-23T20:20:58.641Z
-updated: 2024-11-27T20:55:30.857Z
+date: 2024-12-03T07:06:25.802Z
+updated: 2024-12-07T08:33:07.184Z
 tags: 
   - screen-recording
   - ai video
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/309cf08df9ca66a5508e9f2e2ecebe14a1b42826a
 During the age of analog photography, the image negative was one of the most important artifacts for photographers, because it enabled them to reproduce a picture as many times as they wanted. Years later photographers invert colors in photos for mostly aesthetical reasons since only a small number of photographers still take photos with analog cameras. Regardless of the type of camera you’re using, inverting colors in a photo is a straightforward process that doesn’t require too much effort. In this article, we are going to take you through some of the best options on Mac and PC computers, as well as Android phones and iPhones that let you invert colors in just a few easy steps. So, let’s dive in.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Make Image Negative of a Digital Photo?
@@ -43,10 +43,6 @@ The Invert option is commonly used to invert a scanned film negative to color, b
 **Compatibility:** Windows
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/ms-paint-invert-color.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Open the photo you’d like to invert with MS Paint, and then choose the **Select All option** from the **Select Menu**. **Right-click** on the picture and click on the **Invert Color** option. The colors in the image will be automatically inverted, so you can then head over to the **Save As submenu** in the **File menu** to select the file format of the new photo.
 
@@ -62,9 +58,17 @@ Besides creating image negatives, the Preview app lets you convert image files a
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color-original.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Clicking on the **Adjust Color feature** will bring up the color adjustment panel that contains **Black Level and White Level** sliders. To invert the colors in the photo you have to drag the **Black Level slider to the right** and the **White Level Slider to the left.**
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can experiment with the values you assign to each of these sliders in order to get a more visually pleasing result.
 
@@ -77,7 +81,7 @@ You can experiment with the values you assign to each of these sliders in order 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/pinetools-invert-image-colors.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The platform’s homepage contains a number of categories of tools such as **Colors, Numbers, Text and Lists or Images**. Clicking on the **Images category** will grant you the access to all photo editing tools PineTools offers, so you just have to click on the **Invert Colors** options to start the process of inverting a photo online. Once the **Invert Colors window** loads, you can click on the **Choose File button** to select a photo you’d like to invert. When the upload is completed, simply click on the **Invert button** located near the bottom of the screen and the platform will automatically invert the colors in your photo. To save the watermark-free image with inverted colors you just have to click on **PNG, JPEG or WEBP file** formats that are displayed above the preview of the picture.
@@ -99,10 +103,6 @@ In addition to a rich selection of effects you can apply to images, tjshome also
 **Compatibility:** macOS, Windows
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/ps-convert-color.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 After you open a photo in Adobe Photoshop, you can invert it in just a few clicks. **Expand the Image menu** and the go-to **Adjustments submenu** where you can find the **Invert option**. Alternatively, you can use the **CTRL+I** shortcut if you are a PC user or a **Command+I** if you are using a Mac computer. Moreover, Photoshop lets you **mask parts of a photo** which enables you to precisely define an area of an image you’d like to invert. Other photo editing tools like **Curves, Brightness/Contrast or Photo Filter** can make an image with inverted colors look more convincing. Keep in mind that working with multiple layers requires a lot of patience because failing to mask an object properly can produce some unwanted side issues.
 
@@ -139,7 +139,7 @@ Inverting colors in a photo is not a complicated process, but finding creative w
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -167,24 +167,15 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-brainy-entertainment-roundup-selective-trivia-haven/"><u>[New] 2024 Approved Brainy Entertainment Roundup Selective Trivia Haven</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-dive-into-4k-splendor-with-nikon-1j5-videography/"><u>[New] In 2024, Dive Into 4K Splendor with Nikon 1J5 Videography</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-master-the-art-of-age-precision-on-tiktok/"><u>[New] In 2024, Master the Art of Age Precision on TikTok</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-strategic-planning-aligning-research-with-business-objectives-for-2024/"><u>[New] Strategic Planning Aligning Research with Business Objectives for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-asmrs-upside-exploring-its-health-impacts-for-2024/"><u>[Updated] ASMR's Upside Exploring Its Health Impacts for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-expert-tips-on-maximizing-adobes-cloud-storage-capabilities-and-top-contenders-for-2024/"><u>[Updated] Expert Tips on Maximizing Adobe's Cloud Storage Capabilities and Top Contenders for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-secrets-to-the-ultimate-5-free-pinterest-video-loader-for-2024/"><u>[Updated] Secrets to the Ultimate 5-Free Pinterest Video Loader for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-the-ultimate-selection-high-quality-zero-price-free-luts-for-2024/"><u>[Updated] The Ultimate Selection High Quality, Zero Price Free LUTs for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-total-gaze-field-vr-device-overview-for-2024/"><u>[Updated] Total Gaze Field VR Device Overview for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/boost-your-imagery-title-placement-techniques-on-video-clips-with-photos-for-2024/"><u>Boost Your Imagery Title Placement Techniques on Video Clips with Photos for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/elite-selection-of-must-see-vr-films/"><u>Elite Selection of Must-See VR Films</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/-tips-for-yt-comments-a-quick-guide-for-2024/"><u>Emoji Tips for YT Comments A Quick Guide for 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/1716462620644-how-to-join-someones-live-on-tiktok-as-a-guest/"><u>How to Join Someone’s Live on TikTok as a Guest</u></a></li>
-<li><a href="https://fox-info.techidaily.com/immersive-tech-in-everyday-life/"><u>Immersive Tech in Everyday Life</u></a></li>
-<li><a href="https://fox-that.techidaily.com/locate-a-missing-or-hijacked-iphone-mastering-apples-find-my-tool/"><u>Locate a Missing or Hijacked iPhone: Mastering Apple's Find My Tool</u></a></li>
-<li><a href="https://driver-download.techidaily.com/mastering-pc-performance-how-to-refresh-ati-drivers-under-the-windows-operating-system/"><u>Mastering PC Performance: How to Refresh ATI Drivers Under the Windows Operating System</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/navigating-the-world-of-electronics-tips-and-tricks-from-toms-hardware-experts/"><u>Navigating the World of Electronics: Tips and Tricks From Tom's Hardware Experts</u></a></li>
-<li><a href="https://program-issues.techidaily.com/solving-the-issue-of-non-detection-msi-afterburner-and-windows-11-compatibility/"><u>Solving the Issue of Non-Detection: MSI Afterburner and Windows 11 Compatibility</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211316312-9783689440657-third-eye-awakening/"><u>Third Eye Awakening | Free Book</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-ultimate-strategies-pinterest-to-mp3-migration-guide/"><u>[New] 2024 Approved Ultimate Strategies Pinterest to MP3 Migration Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-master-video-playback-speeds-in-minutes-not-hours/"><u>[New] Master Video Playback Speeds in Minutes, Not Hours</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-avoid-risks-secure-paths-to-get-gratis-vlc-for-mac-os-x/"><u>[Updated] In 2024, Avoid Risks Secure Paths to Get Gratis VLC for Mac OS X</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-transform-engagement-crafted-queries-for-personalized-ig-stories-for-2024/"><u>[Updated] Transform Engagement Crafted Queries for Personalized IG Stories for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-deciphering-instagram-stories-what-youre-not-seeing-as-a-viewer/"><u>2024 Approved Deciphering Instagram Stories What You're Not Seeing as a Viewer</u></a></li>
+<li><a href="https://techidaily.com/complete-tutorial-for-oneplus-nord-n30-se-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for OnePlus Nord N30 SE Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exclusive-six-walmart-bargains-not-available-on-other-retailers-top-picks-by-zdnet/"><u>Exclusive Six Walmart Bargains Not Available on Other Retailers: Top Picks by ZDNet</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-the-ultimate-companion-for-creating-unique-metaverse-avatars/"><u>In 2024, The Ultimate Companion for Creating Unique Metaverse Avatars</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-samsung-galaxy-m54-5g-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Samsung Galaxy M54 5G</u></a></li>
+<li><a href="https://howto.techidaily.com/reasons-for-xiaomi-redmi-k70e-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Xiaomi Redmi K70E Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
 </ul></div>
 

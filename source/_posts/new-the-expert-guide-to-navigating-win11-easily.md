@@ -1,7 +1,7 @@
 ---
 title: "[New] The Expert Guide to Navigating Win11 Easily"
-date: 2024-09-06T01:51:55.949Z
-updated: 2024-09-07T01:51:55.949Z
+date: 2024-12-03T04:14:01.716Z
+updated: 2024-12-07T07:17:37.823Z
 tags: 
   - screen-recording
   - ai video
@@ -32,24 +32,12 @@ Windows is nowhere to rock the world! If you are so excited about updating your 
 
 ![a8](https://images.wondershare.com/windows10/a8.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The start menu of Windows 10 is now resizable. It can be quote odd for many but it is really surprising to know that with Windows 10, you can now customize the start menu and change its size to the extent you want. You now have the option to make it taller or wider as you like. If you wish to have the start menu taking up the whole left portion of the screen of your laptop or you want a thin strip transversely the taskbar, well that is now possible with Windows 10\. The taskbar is also resizable and that means you have the ability to some weird and pretty cool stuff with your device. You will surely find that having a resizable Start Menu is cool.
 
 #### 2. Using Cortana in Windows 10
 
 ![update win10 13](https://images.wondershare.com/windows10/update-win10-13.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Cortana is finally here in Windows 10, taking control of the search functions as well as dishing out as much sass of the operating system in the same way with Windows Phone edition. On the other hand, by default, it will never listen and follow your commands.
 
 If you would like to have the ability to simply bark commands at your personal computer, you launch Cortana through hitting the search field within the taskbar and then choose the Notebook icon in the left side choices pane. You choose “settings” from the list and have the “Let Cortana respond when you say ‘Hey Cortana’” choice. You will have an active and working microphone for it to work.
@@ -68,12 +56,6 @@ On the other hand, Microsoft did not release similar apps that are optimized for
 
 ![Windows 10 keyboard shortcuts](https://images.wondershare.com/filmora/article-images/Windows-10-keyboard-shortcuts.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Most of them include the Windows key. The New window-snapping choices allow you not just to fill partially the screen on one side but also the screen quadrant. Also, you may tap the Windows key downward and hit “Right Arrow” and the “Up Arrow”. With that, the program window would move to the top quadrant at the right side of the screen.
 
 Windows Key-Tab open and leaves open the new task view to show all the running and working programs as well as the virtual desktops. To make the latest virtual desktop, you can use the Windows Key-Ctrl-D. Windows Key-C will get Cortana listening and following your voice input then the Windows Key-S will open its daily glance to showcase the weather, news and sports. Command the line users to obtain a bunch of new selection shortcuts by using the keys Shift and the Arrow keys.
@@ -82,12 +64,6 @@ Windows Key-Tab open and leaves open the new task view to show all the running a
 
 ![taskview](https://images.wondershare.com/filmora/article-images/taskview.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Virtual desktops are among the most favorites of most Windows users and it is one of the coolest features of the new Windows 10\. You could move programs between a virtual desktop & another. To make it happen, when you are running different desktops, you proceed to Task View through pressing the Windows Key-Tab combo. You right click the app you want to transfer from a virtual desktop to the other, choose “Move To” and then you move the app to the desktop where it should go.
 
 With Windows 10, it is now easy to create several desktops as well as run applications from each, so every desktop is showing only those apps that are running in a particular virtual desktop. In case that you do not want to make use of this feature, you may simply remove the “Task View” button.
@@ -96,24 +72,12 @@ With Windows 10, it is now easy to create several desktops as well as run applic
 
 ![a7](https://images.wondershare.com/windows10/a7.png)
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 This is quite simple yet most people make use of the very capable contemporary email client that has been included in the latest editions of Windows. The email client that has been included in Windows 10 now comes with collapsible conversation view and email preview panel. Plus, it integrates the buttons for new contact and calendar apps. You could simply add different mail accounts from various providers.
 
 #### 7. New Edge Browser
 
 ![edge](https://images.wondershare.com/filmora/article-images/edge.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Most users were tired and sick of the Internet Explorer’s incompatibility with a few newer websites. They also hate the sluggish performance of the previous versions. While the latest editions of Internet Explorer have created some significant gains in these aspects, the new Edge Browser of Windows 10 can make a neat and perfect break and it also offers better speed as well as new compatibility which is likely to surprise you. Besides, it now comes with a number of tools that are not available in Internet Explorer and these include the site annotation, extensions and reading view.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
@@ -141,4 +105,26 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-in-depth-guide-to-selective-zoom-in-virtual-classrooms-google-meet/"><u>[New] 2024 Approved In-Depth Guide to Selective Zoom in Virtual Classrooms (Google Meet)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-quintessential-writing-across-the-movie-matrix/"><u>[New] 2024 Approved Quintessential Writing Across the Movie Matrix</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-harnessing-imovies-capabilities-for-youtube-video-perfection/"><u>[New] In 2024, Harnessing iMovie's Capabilities for YouTube Video Perfection</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-the-complete-beginners-guide-to-creating-impressive-macro-videos-for-2024/"><u>[New] The Complete Beginner's Guide to Creating Impressive Macro Videos for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unlocking-brightness-and-saturation-in-ps-basics/"><u>[New] Unlocking Brightness and Saturation in PS Basics</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-unveiling-ideal-frames-per-second-for-excellent-slow-mo-videos-for-2024/"><u>[New] Unveiling Ideal Frames Per Second For Excellent Slow-Mo Videos for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-decreasing-mix-intensity-step-by-step/"><u>[Updated] 2024 Approved Decreasing Mix Intensity Step by Step</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-bringing-your-vision-alive-transferring-vids-from-premiere/"><u>[Updated] Bringing Your Vision Alive Transferring Vids From Premiere</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-dual-screening-made-simple-navigating-through-floating-window-functionality-in-netflix/"><u>[Updated] Dual Screening Made Simple Navigating Through Floating Window Functionality in Netflix</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-gaming-melodies-legal-downloadable-links/"><u>[Updated] Gaming Melodies Legal, Downloadable Links</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/funnybox-simple-setup-for-content-creators-for-2024/"><u>FunnyBox Simple Setup for Content Creators for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/how-to-create-and-grow-an-online-space-for-beauty-product-reviews-for-2024/"><u>How To Create and Grow an Online Space for Beauty Product Reviews for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-precision-shooting-leading-10-gimbals-ranked/"><u>In 2024, Precision Shooting Leading 10 Gimbals Ranked</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/by-step-guide-to-efficient-and-effective-tag-usage-on-youtube-for-2024/"><u>Step-by-Step Guide to Efficient and Effective Tag Usage on YouTube for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/tips-for-smoothing-out-cyberpunk-2077s-performance-issues-fixing-lag-and-stutter/"><u>Tips for Smoothing Out Cyberpunk 2077'S Performance Issues: Fixing Lag and Stutter</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Dissecting the Technical Specifications of DJI Phantom 3\""
-date: 2024-11-24T02:15:56.118Z
-updated: 2024-11-27T18:02:55.925Z
+date: 2024-12-01T03:21:08.063Z
+updated: 2024-12-07T02:33:26.624Z
 tags: 
   - screen-recording
   - ai video
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 ![phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Complete review for DJ Phantom 3 Standard
@@ -85,7 +85,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 ![phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard-controller.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  By using specially designed control sticks you can easily move the motors in desired direction. On the other side, the advanced application provides easy controls to flight modes, GPS, signal strength and battery level monitoring. The bottom portion of application indicates speed, altitude, heading and other location based details. Map will help users to gain full control over live view details and it will update the hybrid or satellite based location information on the go.
@@ -97,7 +97,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 ![phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard-camera.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Phantom 3 Standard is able to capture videos with three different modes: HD, HHD and 2.7 K resolution level; whereas, you can enjoy stills with 12MP capabilities. All the resulting videos of Phantom device use to be of excellent quality with crystal clear details and all movements are reflected with very smooth and clean fashion. The great news is here that phantom 3 offers intuitive control video settings and one can make easy adjustments to avail soft, real and fuzzy videos.
@@ -105,7 +105,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -133,22 +133,24 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-a-treasure-trove-of-budget-friendly-digital-artistry-tools/"><u>[New] In 2024, A Treasure Trove of Budget-Friendly Digital Artistry Tools</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-streamlining-your-editing-workflow-with-final-cut-pro-tips/"><u>[New] In 2024, Streamlining Your Editing Workflow with Final Cut Pro Tips</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-voice-your-ideas-windows-10-recorder-walkthrough/"><u>[New] In 2024, Voice Your Ideas Windows 10 Recorder Walkthrough</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-top-11-add-ons-for-the-dji-phantom-4-masterclass/"><u>[New] Top 11 Add-Ons for the DJI Phantom 4 Masterclass</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-guaranteeing-your-stream-uninterrupted-by-ads-on-fb/"><u>[Updated] Guaranteeing Your Stream Uninterrupted by Ads on FB</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-recording-the-next-level-of-play/"><u>[Updated] In 2024, Recording the Next Level of Play</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-techniques-to-boost-pc-audio-recording-efficiency-for-2024/"><u>[Updated] Techniques to Boost PC Audio Recording Efficiency for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-the-full-breakdown-of-facetunes-updated-features/"><u>[Updated] The Full Breakdown of Facetune's Updated Features</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-ultimate-checklist-for-perfectly-crafted-podcast-titles-including-ideas/"><u>[Updated] The Ultimate Checklist for Perfectly Crafted Podcast Titles, Including Ideas</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210690409-9781399707947-acceptance/"><u>Acceptance | Free Book</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/adjusting-youtubes-viewership-limits-for-content/"><u>Adjusting YouTube's Viewership Limits for Content</u></a></li>
-<li><a href="https://fox-info.techidaily.com/engaging-conversations-with-your-youtube-audience/"><u>Engaging Conversations with Your YouTube Audience</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-huawei-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Huawei Phone without Google Account?</u></a></li>
-<li><a href="https://fox-that.techidaily.com/solve-your-iphones-text-message-dilemma-effective-tips-and-solutions/"><u>Solve Your iPhone's Text Message Dilemma: Effective Tips & Solutions</u></a></li>
-<li><a href="https://fox-info.techidaily.com/switching-between-safe-mode-and-picture-in-picture-on-iosmacos-for-2024/"><u>Switching Between Safe Mode & Picture In Picture on iOS/MacOS for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/transforming-viewing-habits-with-fb-live-on-roku-for-2024/"><u>Transforming Viewing Habits with FB Live on Roku for 2024</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-from-free-to-pro-the-top-10-fcpx-plugins-to-take-your-videos-to-the-next-level/"><u>Updated 2024 Approved From Free to Pro The Top 10 FCPX Plugins to Take Your Videos to the Next Level</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-best-15-luts-for-enhanced-gopro-footage-quality/"><u>[New] Best 15 LUTs for Enhanced GoPro Footage Quality</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-from-ordinary-to-stunning-photo-tile-magic/"><u>[New] From Ordinary to Stunning Photo Tile Magic</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-a-film-enthusiasts-guide-to-mastery-with-gopro/"><u>[Updated] A Film Enthusiast's Guide to Mastery with GoPro</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-elapsed-time-in-20mb-video/"><u>[Updated] Elapsed Time in 20Mb Video</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-elevate-your-editing-game-with-kinemaster-insight-plus-best-allies-online/"><u>[Updated] Elevate Your Editing Game with KineMaster Insight + Best Allies Online</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-lullabies-of-relaxation-prime-asmr-talents/"><u>[Updated] In 2024, Lullabies of Relaxation Prime ASMR Talents</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-integrating-video-conferencing-within-gmail-ecosystem-with-zoom/"><u>[Updated] Integrating Video Conferencing Within Gmail Ecosystem with Zoom</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Tecno Spark 10 4G | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/additional-tips-about-sinnoh-stone-for-vivo-x100-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Vivo X100 | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/behind-the-scenes-the-reason-for-immortals-of-heroes-never-ending-storys-late-arrival/"><u>Behind the Scenes: The Reason for Immortals of Heroes Never-Ending Story's Late Arrival</u></a></li>
+<li><a href="https://win-able.techidaily.com/expert-advice-get-your-sea-of-thieves-game-running-smoothly-again/"><u>Expert Advice: Get Your Sea of Thieves Game Running Smoothly Again</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Vivo V30 Pro | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-watch-hulu-outside-us-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-best-free-online-solutions-for-instantaneous-gif-conversion/"><u>In 2024, Best Free Online Solutions For Instantaneous GIF Conversion</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-mastering-quieter-audio-with-progressive-volume-reduction-in-lumafusion/"><u>In 2024, Mastering Quieter Audio with Progressive Volume Reduction in Lumafusion</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/quiet-your-tiktok-experience-a-guide-to-expertly-muting-videos-with-3-simple-tricks/"><u>Quiet Your TikTok Experience: A Guide to Expertly Muting Videos with 3 Simple Tricks</u></a></li>
+<li><a href="https://fox-info.techidaily.com/step-by-step-download-and-personalize-whatsapp-ringtones-on-mobile/"><u>Step-by-Step Download & Personalize WhatsApp Ringtones on Mobile</u></a></li>
+<li><a href="https://fox-that.techidaily.com/ultimate-troubleshooting-guide-solving-iphone-app-malfunctions/"><u>Ultimate Troubleshooting Guide: Solving iPhone App Malfunctions</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/why-delaying-the-acquisition-of-a-new-gaming-laptop-makes-sense/"><u>Why Delaying the Acquisition of a New Gaming Laptop Makes Sense</u></a></li>
 </ul></div>
 
