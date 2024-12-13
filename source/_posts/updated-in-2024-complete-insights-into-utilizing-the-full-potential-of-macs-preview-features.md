@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Complete Insights Into Utilizing the Full Potential of Mac's Preview Features"
-date: 2024-12-04T04:41:51.750Z
-updated: 2024-12-07T00:47:38.786Z
+date: 2024-12-09T00:25:54.621Z
+updated: 2024-12-13T10:16:44.240Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,10 @@ That said, the sections below explain **how to use Preview on Mac** for elementa
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Use Preview to Edit Images \[Complete Guide\]
 
 Being the default image editor for Mac, Apple tried to make the **Preview app** as simple as possible. Therefore, modifying the photos in the program isn’t much complicated as compared to its competitors from different vendors.
@@ -56,7 +60,7 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Show Markup Tools in Preview on Mac
@@ -74,7 +78,7 @@ Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Crop in Preview
@@ -93,10 +97,6 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -108,10 +108,6 @@ Use the method explained above to open the photo in Preview.
 **Step 2: Rotate the Image**
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Add Text to Image in Preview
 
@@ -145,10 +141,6 @@ Once the background portion of the image gets selected (colored in red), without
 
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Combine Images into One
 
 This process is generally used to place an object present in one image over the background of the other photo. A good example could be to place a picture of a fish on to a second photo that has a sea or river. The **Preview app** lets you do this easily using the following steps:
@@ -165,6 +157,10 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Save Images in Different Formats
 
 The **Preview app** has a built-in image converter as well. To convert an image to a different format with Preview, you must:
@@ -176,6 +172,10 @@ After opening an image, click **File** from the menu bar at the top, and click *
 **Step 2: Choose Output Format and Export**
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
 
@@ -236,22 +236,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-pinnacle-enterprise-data-vaulting/"><u>[New] 2024 Approved Pinnacle Enterprise Data Vaulting</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-unlock-game-changing-potential-try-our-top-ranked-free-voice-alteration-tool/"><u>[New] 2024 Approved Unlock Game-Changing Potential Try Our Top-Ranked Free Voice Alteration Tool</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-expertise-in-editing-mastery-a-dive-into-filmoras-best-practices-for-2024/"><u>[New] Expertise in Editing Mastery A Dive Into Filmora's Best Practices for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-harmonic-horizons-mac-sound-exploration-guide/"><u>[Updated] 2024 Approved Harmonic Horizons Mac Sound Exploration Guide</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-perfect-plays-in-a-minute-tiktok-templates-for-stellar-videos/"><u>[Updated] 2024 Approved Perfect Plays in a Minute TikTok Templates for Stellar Videos</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-ultimate-guide-to-convert-srt-to-txt-in-minutes/"><u>[Updated] In 2024, Ultimate Guide to Convert SRT to TXT in Minutes</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-unpacking-virtual-reality-its-upside-and-downside/"><u>[Updated] In 2024, Unpacking Virtual Reality Its Upside & Downside</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-pinnacle-ai-editor-with-advanced-features/"><u>[Updated] Pinnacle AI Editor with Advanced Features</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-crafting-consumer-contentment-masterful-unboxing-tactics/"><u>2024 Approved Crafting Consumer Contentment Masterful Unboxing Tactics</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/channel-catalysts-affiliates-aiding-budgeted-buzzers/"><u>Channel Catalysts Affiliates Aiding Budgeted Buzzers</u></a></li>
-<li><a href="https://win-dash.techidaily.com/easy-and-swift-guide-amd-smbus-driver-downloads-and-updates/"><u>Easy and Swift Guide: AMD SMBus Driver Downloads & Updates</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/guaranteeing-smooth-operation-of-windows-touchpad-gestures/"><u>Guaranteeing Smooth Operation of Windows Touchpad Gestures</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-xiaomi-13-ultra-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Xiaomi 13 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-itel-p55-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Itel P55 | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/inverting-film-tracks-in-mobile-devices-for-2024/"><u>Inverting Film Tracks in Mobile Devices for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/live-streaming-simplified-a-guide-to-using-onestream-for-2024/"><u>Live Streaming Simplified A Guide to Using OneStream for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/luminous-lore-of-video-production-expert-insights-for-2024/"><u>Luminous Lore of Video Production Expert Insights for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-taking-your-photos-and-videos-to-new-heights/"><u>[New] In 2024, Taking Your Photos and Videos to New Heights</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-topeight-innovative-4k-blu-ray-player-options/"><u>[New] In 2024, TopEight Innovative 4K Blu-Ray Player Options</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-androidiphone-the-top-10-unlimited-image-overlay-apps/"><u>[Updated] 2024 Approved Android/iPhone The Top 10 Unlimited Image Overlay Apps</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-christian-ringtone-guide-selection-tips-for-2024/"><u>[Updated] Christian Ringtone Guide – Selection Tips for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-glam-rific-guide-to-hauls-and-hair-care/"><u>[Updated] In 2024, Glam-Rific Guide to Hauls and Hair Care</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unveiling-the-secrets-to-crafting-perfect-slug-lines/"><u>2024 Approved Unveiling the Secrets to Crafting Perfect Slug Lines</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-years-ultimate-yt-story-creators-list/"><u>2024 Approved Year's Ultimate YT Story Creators List</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-google-pixel-8-pro-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Google Pixel 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-expert-advice-elevating-your-nba-live-viewing/"><u>In 2024, Expert Advice Elevating Your NBA Live Viewing</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-integrating-cg-centrals-luts-into-vfx-production-flows/"><u>In 2024, Integrating CG Central's Luts Into VFX Production Flows</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-step-by-step-backdrop-be-gone-guide-for-images/"><u>In 2024, Step-by-Step Backdrop Be Gone Guide for Images</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/no-more-lapses-secure-display-on-dell-laptop/"><u>No More Lapses: Secure Display on Dell Laptop</u></a></li>
+<li><a href="https://extra-support.techidaily.com/quickstreamsuccess-essential-tips-for-flawless-live-podcast-streams-for-2024/"><u>QuickStreamSuccess Essential Tips for Flawless Live Podcast Streams for 2024</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-data-from-12-by-fonelab-android-recover-data/"><u>The way to get back lost data from 12</u></a></li>
+<li><a href="https://fox-info.techidaily.com/todays-vr-an-inside-look/"><u>Today’s VR An Inside Look</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/ultimate-guide-steps-to-successfully-remove-audio-from-videos/"><u>Ultimate Guide: Steps to Successfully Remove Audio From Videos</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unraveling-the-mysteries-of-dangerous-fauna-in-monster-hunter-world/"><u>Unraveling the Mysteries of Dangerous Fauna in Monster Hunter: World</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Turn Your Image Brightness Upside Down  A Tutorial for 2024\""
-date: 2024-12-03T16:53:45.047Z
-updated: 2024-12-06T21:31:37.783Z
+date: 2024-12-11T11:19:07.069Z
+updated: 2024-12-13T04:12:08.036Z
 tags: 
   - screen-recording
   - ai video
@@ -41,7 +41,7 @@ The Invert option is commonly used to invert a scanned film negative to color, b
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/ms-paint-invert-color.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Open the photo you’d like to invert with MS Paint, and then choose the **Select All option** from the **Select Menu**. **Right-click** on the picture and click on the **Invert Color** option. The colors in the image will be automatically inverted, so you can then head over to the **Save As submenu** in the **File menu** to select the file format of the new photo.
@@ -58,12 +58,16 @@ Besides creating image negatives, the Preview app lets you convert image files a
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color-original.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Clicking on the **Adjust Color feature** will bring up the color adjustment panel that contains **Black Level and White Level** sliders. To invert the colors in the photo you have to drag the **Black Level slider to the right** and the **White Level Slider to the left.**
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can experiment with the values you assign to each of these sliders in order to get a more visually pleasing result.
@@ -75,10 +79,6 @@ You can experiment with the values you assign to each of these sliders in order 
 **Compatibility:** Online platform
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/pinetools-invert-image-colors.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The platform’s homepage contains a number of categories of tools such as **Colors, Numbers, Text and Lists or Images**. Clicking on the **Images category** will grant you the access to all photo editing tools PineTools offers, so you just have to click on the **Invert Colors** options to start the process of inverting a photo online. Once the **Invert Colors window** loads, you can click on the **Choose File button** to select a photo you’d like to invert. When the upload is completed, simply click on the **Invert button** located near the bottom of the screen and the platform will automatically invert the colors in your photo. To save the watermark-free image with inverted colors you just have to click on **PNG, JPEG or WEBP file** formats that are displayed above the preview of the picture.
 
@@ -127,7 +127,7 @@ Creating a negative of photos you take with your phone can be fun, so why not us
 ![ Covert color](https://images.wondershare.com/filmora/article-images/negative-photo-effects-hd.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Inverting the colors in a photo with Negative Photo Effect HD is easy since you just have to select a photo from the gallery or use the iPhone’s camera to snap a new one and apply the **negative photo effect**. You can highlight the area of the photo you’d like to invert with your finger or use some of the app’s photo editing tools to enhance the colors in the negative photo. You can save or share the photos you created, but if you use the free version of the app your photos will be watermarked unless you purchase the **Free Ads and Watermark package** for **$2.99.**
@@ -139,7 +139,7 @@ Inverting colors in a photo is not a complicated process, but finding creative w
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -167,22 +167,17 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-from-novice-to-pro-the-funimate-guide-for-2024/"><u>[New] From Novice to Pro - The Funimate Guide for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-anti-fog-strategies-optimal-gopro-video-quality/"><u>[New] In 2024, Anti-Fog Strategies Optimal GoPro Video Quality</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-samsung-secrets-crafting-compelling-time-lapses/"><u>[New] Samsung Secrets Crafting Compelling Time Lapses</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-copyright-free-game-audio-repositories/"><u>[Updated] 2024 Approved Copyright-Free Game Audio Repositories</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-fading-beats-an-fl-studio-approach/"><u>[Updated] 2024 Approved Fading Beats An FL Studio Approach</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-prime-10-converters-free-apps-for-efficient-srt-file-transformations/"><u>[Updated] 2024 Approved Prime 10 Converters FREE Apps for Efficient SRT File Transformations</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-unlock-the-secrets-of-finding-high-quality-instagram-tones-and-crafting-perfect-chimes/"><u>[Updated] 2024 Approved Unlock the Secrets of Finding High-Quality Instagram Tones and Crafting Perfect Chimes</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-comprehensive-analysis-updated-s3700-bd-player/"><u>[Updated] In 2024, Comprehensive Analysis Updated S3700 BD Player</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-visionary-backdrops-compiling-the-best-free-screen-template-downloads-for-2024/"><u>[Updated] Visionary Backdrops Compiling the Best Free Screen Template Downloads for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-new-era-of-advertising-embracing-the-metaverse/"><u>2024 Approved The New Era of Advertising Embracing the Metaverse</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/nient-viewing-setting-up-youtube-on-large-tv-panels/"><u>Convenient Viewing Setting Up YouTube on Large TV Panels</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-google-pixel-fold-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Google Pixel Fold | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/how-to-delete-apps-on-a-samsung-smart-tv/"><u>How to Delete Apps on a Samsung Smart TV</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/meme-ing-in-virtual-space-top-funny-vr-imagery-and-how-to-make-it-for-2024/"><u>Meme-Ing in Virtual Space Top Funny VR Imagery and How to Make It for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-ultimate-handbook-for-vr-travelers/"><u>The Ultimate Handbook for VR Travelers</u></a></li>
-<li><a href="https://games-able.techidaily.com/tie-the-gears-syncing-xbox-controller-seamlessly/"><u>Tie the Gears: Syncing Xbox Controller Seamlessly</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-guide-to-adding-audio-files-to-inshots-library/"><u>[New] 2024 Approved Guide to Adding Audio Files to InShot's Library</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-triumph-through-film-the-top-10-motivating-titles/"><u>[Updated] 2024 Approved Triumph Through Film The Top 10 Motivating Titles</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-get-clipped-onto-youtube-audio-submission-made-easy/"><u>[Updated] In 2024, Get Clipped Onto YouTube Audio Submission Made Easy</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-tonal-transition-triumphs-for-creative-virtuosos-for-2024/"><u>[Updated] Tonal Transition Triumphs for Creative Virtuosos for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-ultimate-guide-to-enhancing-photos-with-top-10-screenshot-charmers/"><u>[Updated] Ultimate Guide to Enhancing Photos with Top 10 Screenshot Charmers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-producers-favorite-cameras-and-lenses-for-2024/"><u>[Updated] YouTube Producers' Favorite Cameras & Lenses for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/best-text-animation-presets/"><u>Best Text Animation Presets</u></a></li>
+<li><a href="https://fox-info.techidaily.com/choosing-gopro-wisely-a-comparative-examination-for-2024/"><u>Choosing GoPro Wisely A Comparative Examination for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-the-consequences-of-fresh-information-integration-with-chatgpt-on-society-at-large/"><u>Exploring the Consequences of Fresh Information Integration with ChatGPT on Society at Large</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-bypass-activation-lock-from-apple-iphone-7-plus-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Bypass Activation Lock from Apple iPhone 7 Plus</u></a></li>
+<li><a href="https://techtrends.techidaily.com/missing-essential-files-learn-how-to-fix-physxloaderdll-not-found-problems/"><u>Missing Essential Files? Learn How to Fix 'PhysXLoader.dll' Not Found Problems</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolving-excessive-cpu-consumption-in-god-of-war-game/"><u>Resolving Excessive CPU Consumption in God of War Game</u></a></li>
 </ul></div>
 

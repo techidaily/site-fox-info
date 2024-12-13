@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Eliminate VR Discomfort  10 Tips\""
-date: 2024-09-01T11:26:13.602Z
-updated: 2024-09-02T11:26:13.602Z
+date: 2024-12-08T04:21:56.351Z
+updated: 2024-12-13T01:12:42.406Z
 tags: 
   - screen-recording
   - ai video
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/897a54d20c0fe274d0937962de97f84511515ba57
 ##### Benjamin Arango
 
  Mar 27, 2024• Proven solutions
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10 ways to prevent Oculus Rift motion sickness
 
@@ -50,6 +54,10 @@ thumbnail: https://thmb.techidaily.com/897a54d20c0fe274d0937962de97f84511515ba57
 
 **10\. Try not to move your head a lot.** Since motion sickness directly corresponds to movement, reducing your head movement left and right and up and down in one place can help you lower the chances of sickness.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Oculus have done to reduce motion sickness
 
  With the new, innovative VR devices and the head gear technology has taken a huge leap. Oculus Rift has become widely popular among its enthusiastic users. When Oculus released its first Development kit (DevKit 1) the users experienced the symptoms such as nausea, dizziness, sweating and vomiting. Even Oculus CEO Brendan Iribe experienced “motion sickness” with his own product, while using last year’s “DevKit 1” prototype. These sickness issues were so common while using DevKit 1 that its users called it the “Rift Sickness”.
@@ -57,6 +65,10 @@ thumbnail: https://thmb.techidaily.com/897a54d20c0fe274d0937962de97f84511515ba57
  Since Oculus Rift DK1 came to the market, people were really unhappy with the sickness it gave to them. Oculus saw that issue as a big threat, and started to develop DK2 with a much better display. In the original DK1, Oculus Rift used the liquid crystal display (LCD) to display visual in its devices. LCD screen had been of very much advantage because of its brightness, geometric distortion, and less electricity consumption. But it still had been promoting to the sickness issue because of its sluggish motion time response. In replacement of LCD screens, Oculus Rift has introduced OLED (organic light emitting diode) screens which have proved to be a much better idea. Experiments of Oculus Rift with OLED screens have been successful so far in reducing motion sickness to its minimal. OLED has a much faster rate and thus much enhanced positional tracking.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -81,8 +93,20 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-decoding-the-clues-in-your-facebooks-unseen-activity-trail/"><u>[New] Decoding the Clues in Your Facebook's Unseen Activity Trail</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-essential-top-8-video-collage-apps-balancing-android-costs-for-2024/"><u>[Updated] Essential Top 8 Video Collage Apps Balancing Android Costs for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-finding-yt-comments-tips-for-desktop-iphone-android-users-for-2024/"><u>[Updated] Finding YT Comments Tips for Desktop, iPhone, Android Users for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-from-screenshot-to-masterpiece-explore-these-top-8-multimedia-apps/"><u>[Updated] In 2024, From Screenshot to Masterpiece Explore These Top 8 Multimedia Apps</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-predicting-film-production-costs-music-video/"><u>[Updated] In 2024, Predicting Film Production Costs Music Video</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/did-your-iphone-12-mini-passcode-change-itself-unlock-it-now-drfone-by-drfone-ios/"><u>Did Your iPhone 12 mini Passcode Change Itself? Unlock It Now | Dr.fone</u></a></li>
+<li><a href="https://fox-useful.techidaily.com/easy-steps-for-accessing-mits-ocw-video-courses-on-your-pc-or-mac/"><u>Easy Steps for Accessing MIT's OCW Video Courses on Your PC or Mac</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-samsung-galaxy-a05-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Samsung Galaxy A05 Phone FRP Lock</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Samsung Galaxy A05s | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-4-ways-to-trace-honor-magic-vs-2-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 4 Ways to Trace Honor Magic Vs 2 Location | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-xsplit-vs-obs-which-one-leads-in-livestream-quality/"><u>In 2024, XSplit Vs. OBS – Which One Leads in Livestream Quality?</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-in-2024-from-wireless-broadcasts-to-digital-downloads-top-3-ways-to-convert-podcasts-into-mp3s/"><u>New In 2024, From Wireless Broadcasts to Digital Downloads Top 3 Ways to Convert Podcasts Into MP3s</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-thrifty-consumers-guide-to-the-fitbit-versa-assessing-features-and-functionality/"><u>The Thrifty Consumer's Guide to the Fitbit Versa: Assessing Features and Functionality</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

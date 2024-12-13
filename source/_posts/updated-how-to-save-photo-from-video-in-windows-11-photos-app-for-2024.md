@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Save Photo From Video in Windows 11 Photos App for 2024"
-date: 2024-12-01T03:33:06.713Z
-updated: 2024-12-07T01:53:39.524Z
+date: 2024-12-11T05:13:25.863Z
+updated: 2024-12-12T18:18:25.343Z
 tags: 
   - screen-recording
   - ai video
@@ -39,10 +39,6 @@ In this article, you will learn how to save photo from Windows 10 Photos app and
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to save photo from Windows 10 Photos app
 
 In this part of the article, we are going to discuss, how you would save photo from video with Windows 10 Photos app. The Photos app has numerous features for you, and the editing tools would simply amaze you. You can use the Windows Ink to write on the images or capture stills from a video for that matter. Let’s see, how to save photo from video using Windows 10 Photos app –
@@ -56,10 +52,6 @@ Creating a living image:
 
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Now, you can see the living picture by tapping ‘Play’ button.
 
 These photos are stored in the ‘Pictures’ folder of your computer having ‘LI’ appended file names. Now, it’s time to save the living image as photo on your computer using Photos app.
@@ -69,10 +61,14 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Why I can’t save photo from video
@@ -82,16 +78,12 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 We are explaining the solutions here –
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Sign in a different account in Microsoft Store
 
@@ -109,6 +101,10 @@ Here comes the guide –
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
@@ -117,6 +113,10 @@ Here comes the guide –
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -143,22 +143,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-leveraging-vr-to-shape-modern-business-practices/"><u>[New] 2024 Approved Leveraging VR to Shape Modern Business Practices</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-bridging-gaps-in-communication-automating-story-captions/"><u>[New] Bridging Gaps in Communication Automating Story Captions</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-expert-review-of-the-leading-no-cost-cam-software-options/"><u>[New] Expert Review of the Leading No-Cost Cam Software Options</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-diminuendo-film-narrative/"><u>[New] In 2024, Diminuendo Film Narrative</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-utilizing-edges-split-screen-feature-pip/"><u>[New] In 2024, Utilizing Edge's Split Screen Feature PIP</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-edge-of-creativity-best-4k-displays-for-editing-excellence/"><u>[Updated] 2024 Approved Edge of Creativity Best 4K Displays for Editing Excellence</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-nba-live-action-your-guide-to-15-effective-livestream-tips/"><u>[Updated] 2024 Approved NBA Live Action Your Guide to 15 Effective Livestream Tips</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-premium-8-streamlining-tools-to-elevate-your-streams/"><u>[Updated] 2024 Approved Premium 8 Streamlining Tools to Elevate Your Streams</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-the-editors-toolkit-elevating-your-video-with-inshot-transitions-for-2024/"><u>[Updated] The Editor's Toolkit Elevating Your Video with Inshot Transitions for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-the-ultimate-route-to-sharpen-your-meme-skills-at-9gag/"><u>[Updated] The Ultimate Route to Sharpen Your Meme Skills at 9GAG</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-unveiling-simplicity-in-ipad-screen-saving-tactics/"><u>2024 Approved Unveiling Simplicity in iPad Screen Saving Tactics</u></a></li>
-<li><a href="https://win-able.techidaily.com/effortless-ways-to-resolve-battlefield-1-game-crashes/"><u>Effortless Ways to Resolve Battlefield 1 Game Crashes</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-icloud-lock-from-your-iphone-15-and-ipad-by-drfone-ios/"><u>In 2024, How to Unlock iCloud lock from your iPhone 15 and iPad?</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-step-by-step-strategy-for-unearthing-secret-youtube-videos/"><u>In 2024, Step-by-Step Strategy for Unearthing Secret YouTube Videos</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-supreme-suggestions-elite-ios-tone-craftsmen/"><u>In 2024, Supreme Suggestions Elite iOS Tone Craftsmen</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/solving-directx-update-challenges-on-windows/"><u>Solving DirectX Update Challenges on Windows</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/unofficially-run-old-school-video-games-on-your-iphone-no-hacking-needed/"><u>Unofficially Run Old-School Video Games on Your iPhone - No Hacking Needed!</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-captivating-clips-select-5-brightening-apps/"><u>[New] 2024 Approved Captivating Clips Select 5 Brightening Apps</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-educators-essential-video-recording-gadgets-top-10-picks/"><u>[New] Educator's Essential Video Recording Gadgets Top 10 Picks</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-the-essential-guide-to-mixing-linktree-and-tiktok-bios/"><u>[New] In 2024, The Essential Guide to Mixing Linktree and TikTok Bios</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-simplified-processes-generating-your-podcasts-rss-feed-for-2024/"><u>[New] Simplified Processes Generating Your Podcast's RSS Feed for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-visual-perfection-discover-the-best-of-9-live-stream-filters/"><u>[New] Visual Perfection Discover the Best of 9 Live-Stream Filters</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-exploring-the-world-of-green-screens-a-beginners-visual-effect-guide/"><u>[Updated] 2024 Approved Exploring the World of Green Screens A Beginner’s Visual Effect Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-blueprint-for-virtual-business-growth-for-2024/"><u>[Updated] The Blueprint for Virtual Business Growth for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/academic-dedication-rejecting-unfair-help-from-ai/"><u>Academic Dedication: Rejecting Unfair Help From AI</u></a></li>
+<li><a href="https://fox-info.techidaily.com/next-gen-skyborne-a-deep-dive-into-h501s-x4-for-2024/"><u>Next-Gen Skyborne A Deep Dive Into H501S X4 for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/snap-up-the-steal-asus-tuf-gaming-laptop-a15-for-a-low-cost-658-memorial-day-offer/"><u>Snap Up the Steal - Asus TUF Gaming Laptop (A15) for a Low-Cost $658 Memorial Day Offer</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1726222442731-windowsmac/"><u>クロスプラットフォームで高度なファイル圧縮：WindowsとMacの効果的手法</u></a></li>
 </ul></div>
 
