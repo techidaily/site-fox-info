@@ -1,7 +1,7 @@
 ---
 title: "[New] The Role of Supplemental Imagery in Storytelling"
-date: 2024-12-03T03:01:14.329Z
-updated: 2024-12-07T07:50:19.635Z
+date: 2024-12-19T16:06:08.626Z
+updated: 2024-12-22T16:06:02.646Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ Now that we know that, let's dive in!
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. B roll In TV And Movies
 
 Broll is an acronym for "background" or "behind," respectively. It usually refers to extra footage captured with a movie camera while keeping the lighting consistent between scenes in the movie industry. When the filmmaker doesn't want to show any dialogue or action on screen but needs some movement within the frame, it might be utilized as filler.
@@ -37,6 +41,10 @@ B roll can be utilized for establishing shots as well as close-ups of items. It 
 
 For instance, wider shots are frequently used when someone is giving a speech while seated behind a podium so that we can see both them and their surroundings, such as audience members standing close and applauding or security personnel.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Methods to use b roll
 
 Now that there are so many stock footage platforms, you have a lot of choices when you need just the right scene for your project. Most of the time, filmmakers don't use B roll footage. One good way to use it is to use it as a way to move from one scene to the next. It can also be used to set the mood for an event or show what time of day it is when filming.
@@ -45,25 +53,17 @@ The ideal way to use B roll is to put it behind interviews. This kind of footage
 
 On the other hand, cutaways can show how different people react to what is being said in an interview. After all, transitions are commonly used to switch from one person's experience with a certain topic to another person's experience with the same topic. All of these different kinds of footage give filmmakers and videographers more freedom to tell their stories without relying too much on dialogue or narration.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. What types of b roll are there?
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Archival b roll footage
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Visual detail b roll footage
 
@@ -77,15 +77,15 @@ B roll footage can be used to tell a story that supports the narrative of your v
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. Atmospheric b roll footage
 
 When you are sharing a narrative that has been told in the past or that has historical significance, incorporating archival material into your video gives your audience the opportunity to see the story as it occurred at the time. This is especially useful when you are discussing a narrative that has been experienced in the past or that has futuristic relevance.
 
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 6\. Pick-up shots
 
@@ -93,13 +93,13 @@ A pick-up is a tiny shot added to previously captured material. Re-shoots involv
 
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\. A roll vs b roll
 
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -135,20 +135,17 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-top-shots-premium-video-cams-for-slow-motion-magic/"><u>[New] 2024 Approved Top Shots Premium Video Cams for Slow-Motion Magic</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-favourites-revealed-top-20-anime-melodies/"><u>[New] Favourites Revealed Top 20 Anime Melodies</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-imovie-why-does-it-alter-my-videos/"><u>[New] IMovie Why Does It Alter My Videos?</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-ps5-storage-revamped-topping-10-external-units/"><u>[New] In 2024, PS5 Storage Revamped Topping 10 External Units</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-transforming-unboxing-into-art/"><u>[New] In 2024, Transforming Unboxing Into Art</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-foremost-apps-to-upgrade-your-gopro-creations-on-smartphones/"><u>[Updated] 2024 Approved Foremost Apps to Upgrade Your GoPro Creations on Smartphones</u></a></li>
-<li><a href="https://win11.techidaily.com/1726029196115-youtube/"><u>最高の解決策! YouTube動画をセキュリティ保証付きでダウンロードするためのベストソフト選び方</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-colorful-canvas-basic-adobe-corrections-guide/"><u>In 2024, Colorful Canvas Basic Adobe Corrections Guide</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-future-of-editing-decoded-powerdirector-app-24-reviewed-and-explained/"><u>In 2024, The Future of Editing Decoded PowerDirector App '24 Reviewed & Explained</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-the-kinemaster-way-to-enthralling-transitions/"><u>In 2024, The Kinemaster Way to Enthralling Transitions</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/master-the-keyboard-top-1n-free-typewriting-lessons-tailored-to-different-age-levels/"><u>Master the Keyboard: Top 1N Free Typewriting Lessons Tailored to Different Age Levels</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-comprehensive-guide-to-youtube-playlists-creation-for-2024/"><u>The Comprehensive Guide to YouTube Playlists Creation for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-ultimate-guide-to-batch-designing-and-copywriting-on-canva-plus-chatgpt/"><u>The Ultimate Guide to Batch Designing and Copywriting on Canva + ChatGPT</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/top-walmart-bargains-in-july-2024-exclusive-insights-and-savings/"><u>Top Walmart Bargains in July 2024: Exclusive Insights & Savings</u></a></li>
-<li><a href="https://fox-info.techidaily.com/unveiling-your-images-true-self-a-canva-step-by-step/"><u>Unveiling Your Image’s True Self A Canva Step-by-Step</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-instant-upload-solutions-top-5-free-online-converter-services/"><u>[New] 2024 Approved Instant Upload Solutions Top 5 Free Online Converter Services</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-aural-adventures-next-gen-devices-for-2024/"><u>[New] Aural Adventures Next-Gen Devices for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-melodic-matchmaking-music-that-resonates-with-scenes/"><u>[New] Melodic Matchmaking Music That Resonates with Scenes</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-best-cameras-to-capture-slow-motion-videos/"><u>[Updated] Best Cameras to Capture Slow Motion Videos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-first-step-to-aerial-adventure-best-beginner-drones/"><u>[Updated] First Step to Aerial Adventure Best Beginner Drones</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-elevating-virtual-reality-storytelling-a-premiere-pro-360-degree-video-guide/"><u>[Updated] In 2024, Elevating Virtual Reality Storytelling A Premiere Pro 360-Degree Video Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-uploading-subtitles-a-compreenas-guide-for-all-social-media-users-for-2024/"><u>[Updated] Uploading Subtitles A Compreenas Guide for All Social Media Users for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-complete-guide-to-capturing-ps4-games-via-obs/"><u>2024 Approved Complete Guide to Capturing PS4 Games via OBS</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-asus-rog-phone-7-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Asus ROG Phone 7 | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/a-hackers-guide-to-scoring-cool-images-at-pexels/"><u>A Hacker's Guide to Scoring Cool Images at Pexels</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Google Pixel Fold? | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138569620-9781452532080-the-book-of-revelation-a-new-beginning/"><u>The Book of Revelation: a New Beginning | Free Book</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Pinnacle Photo Chronicles Creator Set"
-date: 2024-08-28T07:54:08.464Z
-updated: 2024-08-29T07:54:08.464Z
+date: 2024-12-15T16:00:52.215Z
+updated: 2024-12-22T16:00:10.399Z
 tags: 
   - screen-recording
   - ai video
@@ -32,6 +32,10 @@ Wondershare Photo Story Platinum is an intuitive photo slideshow maker which you
 
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Features of Photo Story Platinum
 
 * Easily create your show with photos, videos and music
@@ -39,6 +43,10 @@ Wondershare Photo Story Platinum is an intuitive photo slideshow maker which you
 * Rich your own photo creation with built-in film effects
 * Able to burn your photo story to DVD.
 * Directly share on YouTube, Facebook & virtually anywhere.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Use Wondershare Photo Story Platinum for Windows and Mac
 
@@ -53,6 +61,10 @@ After the mode selection, click the Add Files button to import your photos and v
 
 ![photo story](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 2\. Personalize your photo story
 
 Click the Personalize tab. Then you can add transitions, effects, background music and more t create your own gorgeous photo story.
@@ -60,6 +72,10 @@ Click the Personalize tab. Then you can add transitions, effects, background mus
 You can import your photos and videos at one time and arrange the order by dragging. To tell your own photo story, you can add captions to each photo or record your own voice by click the Voice Over button.
 
 ![Photo Story Platinum](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 3\. Publish your photo story
 
@@ -71,9 +87,6 @@ The photo story maker provides sorts of methods for you. For example, if you wan
 
 Learn more: [user guide of Photo Story Platinum for Windows](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) here.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Supported Output Formats by Web Converter
 
 * **DVD**: Standard DVD (D5 or D9)
@@ -86,13 +99,11 @@ Learn about the detailed [technical specifications](https://tools.techidaily.com
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -116,4 +127,16 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-comprehensive-list-of-no-download-online-gif-to-video-converters/"><u>[New] Comprehensive List of No-Download Online GIF to Video Converters</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-explore-vivid-skies-highlighted-hdr-web-platforms/"><u>[New] Explore Vivid Skies Highlighted HDR Web Platforms</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-is-photoshops-stabilization-feature-aiding-creativity-for-2024/"><u>[New] Is Photoshop's Stabilization Feature Aiding Creativity for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-unveiling-top-ten-os-agnostic-video-players-for-2024/"><u>[New] Unveiling Top Ten OS-Agnostic Video Players for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-optimize-your-viewing-experience-on-youtube-with-speed-settings/"><u>[Updated] Optimize Your Viewing Experience on YouTube with Speed Settings</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/high-refresh-rate-monitor-for-smooth-gameplay-180-hz/"><u>High Refresh Rate Monitor for Smooth Gameplay - 180 Hz</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-enhancing-snaps-incorporating-funny-lenses-on-snapchat/"><u>In 2024, Enhancing Snaps Incorporating Funny Lenses on Snapchat</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-exquisite-photographic-saga-assembler/"><u>In 2024, Exquisite Photographic Saga Assembler</u></a></li>
+<li><a href="https://fox-info.techidaily.com/mastering-jpeg-to-gif-discover-the-top-10-free-options/"><u>Mastering JPEG-to-GIF Discover the Top 10 Free Options</u></a></li>
+</ul></div>
 

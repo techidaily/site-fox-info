@@ -1,7 +1,7 @@
 ---
 title: "[New] Stepwise Guide to Windows 11 Sound Capture Setup"
-date: 2024-12-09T19:10:02.925Z
-updated: 2024-12-12T21:17:50.487Z
+date: 2024-12-19T16:11:08.826Z
+updated: 2024-12-22T16:01:21.805Z
 tags: 
   - screen-recording
   - ai video
@@ -46,7 +46,7 @@ Even though there are limited features available in comparison to other audio re
 ![stop button](https://images.wondershare.com/filmora/article-images/stop-button.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The recorded audio will be saved automatically in Documents under Sound Recordings folder.
@@ -63,12 +63,16 @@ Audacity is a completely free audio recording software for Windows 10\. Audacity
 
 ![red record button to start recording](https://images.wondershare.com/filmora/article-images/red-record-button-to-start-recording.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ****Step 4:** To stop recording, click on Black Stop button. Go to File > Export As to save the file in desired file format.
 
 ![black stop button](https://images.wondershare.com/filmora/article-images/black-stop-button.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Quick Sound Recorder Free
@@ -81,11 +85,11 @@ Step 2: Open the app and click on Microphone icon to start recording instantly. 
 
 ![the recording time](https://images.wondershare.com/filmora/article-images/the-recording-time.jpg)
 
-Step 3: To stop recording, click on Stop button and save the recording in MP3 file.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Step 3: To stop recording, click on Stop button and save the recording in MP3 file.
 
 ## 4\. Adobe Audition
 
@@ -98,10 +102,6 @@ Step 1: Open Adobe Audition and go to File > New > Multi-track Session. A pop-up
 Step 2: Click on R icon to arm all the tracks.
 
 ![click on r icon](https://images.wondershare.com/filmora/article-images/click-on-r-icon.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 3: and then click on Recording button on the Record panel to start recording.
 
@@ -130,7 +130,7 @@ Step 3: From the pop-up box, select the external microphone. Click on Record but
 Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -151,10 +151,6 @@ Step 3: From the pop-up box, select the external microphone. Click on Record but
 
 Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 We have how to record audio on Windows 10 using free as well as premium software. If you want to record your voice right away, you should use Windows Voice Recorder app that comes preinstalled. You can even install Quick Sound Recorder Free app instantly and start recording. For professional-level recording, Audacity and Adobe Audition are perfect. But Wondershare Filmora stands out for audio as well as video recording and editing in Windows 10.
@@ -174,7 +170,7 @@ Step 3: From the pop-up box, select the external microphone. Click on Record but
 Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -190,6 +186,10 @@ Step 1: Launch Filmora and select New Project option.
 Step 2: From Record menu, go to Record Voiceover option.
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step 3: From the pop-up box, select the external microphone. Click on Record button to start recording.
 
@@ -223,17 +223,20 @@ We have how to record audio on Windows 10 using free as well as premium software
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-syncing-voice-with-images-online/"><u>[New] 2024 Approved Syncing Voice with Images Online</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-versatile-biz-decks-free-template-and-resource-options/"><u>[New] 2024 Approved Versatile Biz Decks FREE Template and Resource Options</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-perfect-instruction-manual-for-wm6/"><u>[New] Perfect Instruction Manual for WM6</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-your-pathway-to-photo-perfection-in-156-characters-or-less/"><u>[Updated] 2024 Approved Your Pathway to Photo Perfection in 156 Characters or Less</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-cutting-edge-techniques-youtube-trailers-through-filmoras-lens/"><u>[Updated] Cutting Edge Techniques YouTube Trailers Through Filmora's Lens</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-essential-insight-the-most-efficient-snipping-software-for-windows/"><u>[Updated] Essential Insight The Most Efficient Snipping Software for WINDOWS</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-bridge-the-gap-how-to-multistream-for-a-wider-diverse-audience/"><u>2024 Approved Bridge the Gap How to Multistream for a Wider, Diverse Audience</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-srt-to-txt-translation-the-fastest-guide/"><u>2024 Approved Mastering SRT to TXT Translation - The Fastest Guide</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/artful-horizons-the-next-level-of-picture-inspiration-from-dall-e-iii/"><u>Artful Horizons: The Next Level of Picture Inspiration From DALL-E III</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-seamless-web-converters-turning-your-gif-into-professional-video/"><u>In 2024, Seamless Web Converters Turning Your GIF Into Professional Video</u></a></li>
-<li><a href="https://network-issues.techidaily.com/screen-upside-down-in-windows-10-fixed/"><u>Screen Upside Down in Windows 10 [Fixed]</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/top-5-from-motorola-g24-power-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from Motorola G24 Power to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-best-shot-matchmaking-optimal-gimbals-for-dslr-quality-vids-for-2024/"><u>[Updated] Best Shot Matchmaking Optimal Gimbals for DSLR-Quality Vids for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-combining-visual-and-auditory-elements-in-the-windows-photos-app/"><u>2024 Approved Combining Visual and Auditory Elements in the Windows Photos App</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-direct-gif-to-video-upgrade-no-download-just-click-and-convert/"><u>2024 Approved Direct GIF-to-Video Upgrade No Download, Just Click & Convert</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-expert-techniques-for-integrating-standardized-luts-in-post-production-workflows/"><u>2024 Approved Expert Techniques for Integrating Standardized LUTs in Post-Production Workflows</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-livestreaming-elite-showdown/"><u>2024 Approved LiveStreaming Elite Showdown</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-skys-best-friends-top-11-drone-gear-for-phantom/"><u>2024 Approved Sky's Best Friends Top 11 Drone Gear for Phantom</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-smart-shopping-for-data-stores-the-lowdown-on-price/"><u>2024 Approved Smart Shopping for Data Stores The Lowdown on Price</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-ultimate-quicktime-lapse-setup-for-5/"><u>2024 Approved Ultimate Quicktime-Lapse Setup for #5</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/achieving-flawless-visual-balance-aspect-ratios-matter-for-2024/"><u>Achieving Flawless Visual Balance Aspect Ratios Matter for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/expertly-selected-26-leading-registry-maintenance-applications-for-free/"><u>Expertly Selected: 26 Leading Registry Maintenance Applications for Free</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/forgot-your-zte-nubia-flip-5g-lock-screen-pattern-pin-or-password-heres-what-to-do-by-drfone-android-unlock-android-unlock/"><u>Forgot your ZTE Nubia Flip 5G lock screen pattern, PIN or password? Here’s what to do</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/free-lessons-at-your-fingertips-mondly-and-ukrainian-linguists-unite/"><u>Free Lessons at Your Fingertips: Mondly & Ukrainian Linguists Unite</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Vivo S18 Pro | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/the-best-8-iphone-text-message-recovery-tools-a-comprehensive-guide/"><u>The Best 8 iPhone Text Message Recovery Tools: A Comprehensive Guide</u></a></li>
 </ul></div>
 

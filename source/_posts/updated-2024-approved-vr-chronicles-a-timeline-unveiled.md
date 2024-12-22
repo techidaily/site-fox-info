@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  VR Chronicles  A Timeline Unveiled\""
-date: 2024-08-28T07:52:09.524Z
-updated: 2024-08-29T07:52:09.524Z
+date: 2024-12-20T16:00:29.400Z
+updated: 2024-12-22T16:01:17.507Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,10 @@ _[What is virtual reality and how does it work?](https://tools.techidaily.com/wo
 _[Top 10 professional 360 degree cameras](https://tools.techidaily.com/wondershare/filmora/download/)_
 _[Virtual Reality Technology: Current State and Future Challenges](https://tools.techidaily.com/wondershare/filmora/download/)_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## VR development in 1930s
 
 In Pygmalions Spectacles, Stanley G. Weinbaum explains a goggle based game in which individuals can watch a holographic recording of virtual stories including touch and smell. This amazing vision of the future would actually turn into what we think of as virtual-reality today. While it's difficult to introduce touch and smell elements into the average virtual-reality experience, these are visions that creators have in mind for the very near future of virtual-reality experiences. It's amazing to think that 85+ years ago, people were already thinking about creating simulation experiences using technology. We still think of these types of plans as we look towards the future of VR. With rapidly changing technology however, these improvements to the VR simulation experience may be far closer than decades away.
@@ -44,32 +48,25 @@ In Pygmalions Spectacles, Stanley G. Weinbaum explains a goggle based game in wh
 VR headsets actually started development in the 1960s. Just 30 years from the original thought of a VR headset, Ivann Sutherland created the very first VR headset for use with military applications. Using a specialized military software as well as a motion control platform, the first VR headsets were designed for use in training exercises. These VR training tools have now become the standard in the military for training for flight exercises, combat situations and more. An immersive experience is definitely required to push military personnel and prepare them in a safe training environment before they enter into the field. Many air forces around the world require an extensive amount of VR training simulations before they will even let a pilot into one of their aircraft. With the initial development using specialized software and motion controls, VR research would continue to pave the way for training in the military and beyond. Today’s military VR headsets are far more advanced, compact and immersive and these training programs as well as the technology will continue to develop a little bit faster than some of the products that we might find as regular consumers.
 
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## VR development in 1990s
 
 VR headsets begin to make their way into a few arcade games for simulations and Nintendo announced the first home VR system. Virtual Boy was one of the first home systems available for use with a widespread appeal. Sega also introduced a Sega VR headset for the Sega Genesis console in the year 1993\. These wraparound prototypes had stereo sound, LCD screens and head tracking. Technical development in this VR headset doom the project and the cost of the headset was extensive making it a massive flop for Sega. The Virtual Boy however was a 3-D game console that experienced a little more success. Virtual Boy was released in North America at a price of $180\. The games were entirely made in red and black and there were only a few pieces of software available with the device. Users would wear a VR headset and control the action on a regular Nintendo controller. Unfortunately the console was very uncomfortable to use and because of the lack of games as well as the lack of color, it didn't present the same strong sales as the other Nintendo consoles out at the time.
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## VR development in 2014
 
 Oculus VR represents the latest revolution in VR technology. When Facebook officially acquired the Oculus VR system, this showed that virtual-reality was becoming a huge concern for many of the world's top developers. Although the Oculus Rift was formed out of a kickstarter campaign in 2012, the deal in 2014 represented a huge boost in their funding and confidence. Later in 2015, Oculus began to acquire other companies like Surreal Vision and built partnerships with Samsung to develop the Samsung gear VR. As one of the leading companies in VR development, Oculus has fully functioning VR systems for consumers to purchase and use at home. With support for a wide range of applications and further applications being developed for specific use with their VR systems, this was a huge leap forward for VR. After gaining international attention with the demand after the Facebook deal, this would propel many other developers into creating their own VR development firms. Oculus in a way started a brand-new VR renaissance with a call to create immersive and simulated experiences for the average consumer. Previous VR headsets were very technical and inaccessible for the average computer user, but with plug-and-play compatibility and a wide host of supported applications, Oculus gave the average consumer hope that they can enjoy VR again.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## VR development in 2016 and beyond
 
 With the initial surge after Oculus Rift, companies all over the world began building their own VR headsets and producing some fantastic new tech. With so many new devices coming out from many of the world's top manufacturers, we are seeing huge developments when it comes to apps, 360° cameras, inexpensive headsets, VR glass experiences and more. As 3-D graphics continue to get better and is processing power lines at an exponential rate, VR is becoming a focus for many developers in the future. There are many consumer products coming out to compete with Oculus based off its demand as well as generic products for use with smart phone technology. As many smart phones have the accelerometer data, advanced soundcards and graphic sets for 3d rendering users are opting to watch 360 videos and try virtual-reality apps with their smartphone and home devices like Google Cardboard. Other users however are holding out for products like the Oculus Rift, Playstation VR and more. With all of these devices set to drop in mass circulation by the end of 2016 or the start of 2017 we are truly going to start seeing at home VR experiences which are widespread.
@@ -79,8 +76,9 @@ The future of VR looks very bright and with so many new devices in development i
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
@@ -104,4 +102,24 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-best-starter-cameras-for-child-filmmakers-in-splashy-settings/"><u>[New] 2024 Approved Best Starter Cameras For Child Filmmakers in Splashy Settings</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-insiders-look-at-top-earning-instagram-tactics/"><u>[New] 2024 Approved Insider's Look at Top Earning Instagram Tactics</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-top-visionaries-selecting-the-10-elite-monitors-for-macs/"><u>[New] 2024 Approved Top Visionaries Selecting the #10 Elite Monitors for Macs</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-simplified-installation-dive-into-ifunnys-meme-world/"><u>[New] In 2024, Simplified Installation Dive Into iFunny's Meme World</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-seamless-sync-link-insta-and-tiktok-with-ease/"><u>[New] Seamless Sync Link Insta & TikTok with Ease</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-the-elite-collection-best-kung-fu-arcade-games-for-2024/"><u>[New] The Elite Collection Best Kung Fu Arcade Games for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-vortice-craftsmith-kit/"><u>[New] Vortice Craftsmith Kit</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-tunetrekker-venturing-past-dacast/"><u>[Updated] 2024 Approved TuneTrekker Venturing Past DaCast</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-premium-free-graphic-havens-a-comprehensive-guide-to-top-art-portals/"><u>[Updated] In 2024, Premium-Free Graphic Havens A Comprehensive Guide to Top Art Portals</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-simplifying-video-production-in-captivate-software/"><u>[Updated] In 2024, Simplifying Video Production in Captivate Software</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-quick-tunes-explore-video-music-characters/"><u>[Updated] Quick Tunes Explore Video Music Characters</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/escape-from-alcatraz/"><u>Escape From Alcatraz</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-quick-ways-to-transfer-contacts-from-apple-iphone-15-pro-max-to-iphone-withwithout-itunes-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Quick Ways to Transfer Contacts from Apple iPhone 15 Pro Max to iPhone With/Without iTunes | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/innovating-podcast-branding-a-comprehensive-logo-guidebook-for-2024/"><u>Innovating Podcast Branding A Comprehensive Logo Guidebook for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/simple-tips-how-to-switch-off-sticky-keys-in-windows-operating-system/"><u>Simple Tips: How To Switch Off Sticky Keys in Windows Operating System</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solution-steps-restore-sound-on-your-windows-11-system/"><u>Solution Steps: Restore Sound on Your Windows 11 System</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/top-rated-av1-media-software-find-the-best-player-and-converter/"><u>Top Rated AV1 Media Software: Find the Best Player and Converter</u></a></li>
+</ul></div>
 

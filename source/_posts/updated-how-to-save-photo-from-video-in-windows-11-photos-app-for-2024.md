@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Save Photo From Video in Windows 11 Photos App for 2024"
-date: 2024-12-11T05:13:25.863Z
-updated: 2024-12-12T18:18:25.343Z
+date: 2024-12-20T16:11:04.179Z
+updated: 2024-12-22T16:11:54.601Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,10 @@ In this article, you will learn how to save photo from Windows 10 Photos app and
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to save photo from Windows 10 Photos app
 
 In this part of the article, we are going to discuss, how you would save photo from video with Windows 10 Photos app. The Photos app has numerous features for you, and the editing tools would simply amaze you. You can use the Windows Ink to write on the images or capture stills from a video for that matter. Let’s see, how to save photo from video using Windows 10 Photos app –
@@ -52,6 +56,10 @@ Creating a living image:
 
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Now, you can see the living picture by tapping ‘Play’ button.
 
 These photos are stored in the ‘Pictures’ folder of your computer having ‘LI’ appended file names. Now, it’s time to save the living image as photo on your computer using Photos app.
@@ -61,15 +69,7 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: Why I can’t save photo from video
 
@@ -78,7 +78,7 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 We are explaining the solutions here –
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Check the update
@@ -88,6 +88,10 @@ Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Upd
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
 
@@ -102,7 +106,7 @@ Here comes the guide –
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
@@ -113,10 +117,6 @@ Here comes the guide –
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -143,16 +143,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-captivating-clips-select-5-brightening-apps/"><u>[New] 2024 Approved Captivating Clips Select 5 Brightening Apps</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-educators-essential-video-recording-gadgets-top-10-picks/"><u>[New] Educator's Essential Video Recording Gadgets Top 10 Picks</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-the-essential-guide-to-mixing-linktree-and-tiktok-bios/"><u>[New] In 2024, The Essential Guide to Mixing Linktree and TikTok Bios</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-simplified-processes-generating-your-podcasts-rss-feed-for-2024/"><u>[New] Simplified Processes Generating Your Podcast's RSS Feed for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-visual-perfection-discover-the-best-of-9-live-stream-filters/"><u>[New] Visual Perfection Discover the Best of 9 Live-Stream Filters</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-exploring-the-world-of-green-screens-a-beginners-visual-effect-guide/"><u>[Updated] 2024 Approved Exploring the World of Green Screens A Beginner’s Visual Effect Guide</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-the-blueprint-for-virtual-business-growth-for-2024/"><u>[Updated] The Blueprint for Virtual Business Growth for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/academic-dedication-rejecting-unfair-help-from-ai/"><u>Academic Dedication: Rejecting Unfair Help From AI</u></a></li>
-<li><a href="https://fox-info.techidaily.com/next-gen-skyborne-a-deep-dive-into-h501s-x4-for-2024/"><u>Next-Gen Skyborne A Deep Dive Into H501S X4 for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/snap-up-the-steal-asus-tuf-gaming-laptop-a15-for-a-low-cost-658-memorial-day-offer/"><u>Snap Up the Steal - Asus TUF Gaming Laptop (A15) for a Low-Cost $658 Memorial Day Offer</u></a></li>
-<li><a href="https://blog-min.techidaily.com/1726222442731-windowsmac/"><u>クロスプラットフォームで高度なファイル圧縮：WindowsとMacの効果的手法</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-explore-the-10-most-influential-makeup-personalities-online/"><u>[New] 2024 Approved Explore the 10 Most Influential Makeup Personalities Online</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-step-by-step-backdrop-blurring-techniques-on-youtube-videos/"><u>[Updated] 2024 Approved Step-by-Step Backdrop Blurring Techniques on YouTube Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-top-5-freefire-techniques-for-gaming-vloggers/"><u>[Updated] In 2024, Top 5 FreeFire Techniques for Gaming Vloggers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-unveiling-top-asmr-for-iphone-users/"><u>2024 Approved Unveiling Top ASMR for iPhone Users</u></a></li>
+<li><a href="https://fox-info.techidaily.com/breaking-barriers-masterful-techniques-for-photosvideos-in-win11-for-2024/"><u>Breaking Barriers Masterful Techniques for Photos/Videos in Win11 for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/chat-commander-the-ultimate-guide-to-text-from-voice/"><u>Chat Commander The Ultimate Guide to Text From Voice</u></a></li>
+<li><a href="https://fox-info.techidaily.com/core-principles-of-crafting-convincing-video-endorsements-for-2024/"><u>Core Principles of Crafting Convincing Video Endorsements for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/demystifying-periscope-its-features-price-and-registration-procedure-for-2024/"><u>Demystifying Periscope Its Features, Price & Registration Procedure for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/discover-10-free-high-quality-live-stream-apps-for-iphones-and-androids-for-2024/"><u>Discover 10 Free, High-Quality Live Stream Apps for iPhones and Androids for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/dji-mini-and-air-2-mixing-made-easy-with-20-free-luts/"><u>DJI Mini & Air 2 Mixing Made Easy with 20 Free LUTS</u></a></li>
+<li><a href="https://fox-info.techidaily.com/do-creators-profit-from-product-evaluations-on-youtube-in-2024/"><u>Do Creators Profit From Product Evaluations on YouTube, In 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/elegant-video-editing-on-iphone-resizing-made-simple/"><u>Elegant Video Editing on iPhone Resizing Made Simple</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For OnePlus Nord CE 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/mastering-hulu-capture-windows-mac-and-mobile-edition-for-2024/"><u>Mastering Hulu Capture Windows, Mac & Mobile Edition for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/reviewing-multiple-cameras-are-there-upgrades/"><u>Reviewing Multiple Cameras Are There Upgrades?</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/the-art-of-influencing-consumers-a-guide-to-profitable-tiktok-marketing/"><u>The Art of Influencing Consumers A Guide to Profitable TikTok Marketing</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-tips-solving-the-issue-with-your-razer-blackshark-v2-microphone/"><u>Troubleshooting Tips: Solving the Issue with Your Razer BlackShark V2 Microphone</u></a></li>
 </ul></div>
 

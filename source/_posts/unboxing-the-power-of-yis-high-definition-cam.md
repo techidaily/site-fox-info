@@ -1,7 +1,7 @@
 ---
 title: "Unboxing the Power of YI's High Definition Cam"
-date: 2024-08-28T07:51:17.792Z
-updated: 2024-08-29T07:51:17.792Z
+date: 2024-12-15T16:01:48.100Z
+updated: 2024-12-22T16:01:07.717Z
 tags: 
   - screen-recording
   - ai video
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 
 **You may also like:** [Top 15 Best Action Cameras >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Complete Review for Yi 4k Action Camera
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01FU9ZIMU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01FU9ZIMU&linkId=8ffea9b2da130000b205cf9367ce3ccf
@@ -40,6 +44,10 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
  Let us start with the hardware part. Yi 4k looks almost same as that of GoPro device, even the waterproof case appears somewhat like GoPro product. Some resemblance is found in mobile applications as well as in mounting systems. The front side of Yi 4k is equipped with a lens and LED that provides current camera status indication. The 2.2 inch wide LCD screen is protected with Gorilla Glass whereas on top portion you will find holes for speaker and dual microphone. On the right side, a small flap is covering MicroUSB charging port and the left side is left bare.
 
 ![yi-4k-product](https://images.wondershare.com/filmora/article-images/yi-4k-product.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Specifications
 
@@ -74,6 +82,10 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
  Want to know more about the best accessories for Xiaomi Yi 4K action camera? Check [Best Accessories for YI 4K Action Camera in 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![yi-4k-unboxing-](https://images.wondershare.com/filmora/article-images/yi-4k-unboxing-.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Features
 
@@ -131,6 +143,10 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -154,8 +170,17 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-channel-transformation-through-strategic-use-of-youtube-outros/"><u>[New] In 2024, Channel Transformation Through Strategic Use of YouTube Outros</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-essentials-of-apple-podcast-catalog-integration/"><u>[New] In 2024, Essentials of Apple Podcast Catalog Integration</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-jestjungle-your-gateway-to-universal-comedy/"><u>[New] JestJungle Your Gateway to Universal Comedy</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-speedy-steps-scribbling-down-slides-in-ppt-for-2024/"><u>[New] Speedy Steps Scribbling Down Slides in PPT for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-the-ultimate-path-to-stunning-hdr-portraits/"><u>2024 Approved The Ultimate Path to Stunning HDR Portraits</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-xiaomi-redmi-note-13-pro-5g-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Xiaomi Redmi Note 13 Pro 5G Without Power Button | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/accelerate-artistry-in-windows-11-photoshop/"><u>Accelerate Artistry in Windows 11 Photoshop</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-nokia-c110-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Nokia C110 Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-unveiling-virtual-background-magic-a-streamers-guide-to-chroma-key/"><u>In 2024, Unveiling Virtual Background Magic A Streamer's Guide to Chroma Key</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/securing-admin-rights-unlocking-trustedinstaller-access-on-windows-10/"><u>Securing Admin Rights: Unlocking TrustedInstaller Access on Windows 10</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->

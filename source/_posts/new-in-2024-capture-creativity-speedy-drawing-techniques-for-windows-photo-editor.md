@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Capture Creativity  Speedy Drawing Techniques for Windows Photo Editor\""
-date: 2024-08-28T07:49:59.650Z
-updated: 2024-08-29T07:49:59.650Z
+date: 2024-12-20T16:03:11.060Z
+updated: 2024-12-22T16:04:41.114Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,10 @@ When you can add a personal touch to your videos and photos, it becomes all the 
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/draw-on-photos-in-windows-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * You can see a Windows Ink Toolbar, select your preferred pen from the options available
 * Select the size and color of the fonts you wish to use from a range of palette
 
@@ -49,6 +53,10 @@ When you can add a personal touch to your videos and photos, it becomes all the 
 * You can also find an eraser tool with various sizes of erasers that allows you to erase your entire drawing or a part of it as per your choice when required
 
 When you draw on the image or video, the ink can be attached to a particular object or person within the video. As you move the camera angle or the object, the ink stays or moves along. You just need to select the anchor icon and link it to the object in the video.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Draw on Photos Online
 
@@ -61,31 +69,34 @@ Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lu
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/lunapic-drawing.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Select the color from the range of palette available
 * Select the pen size using the given number scroll option
 * Click on apply if you are all set to draw or click on clear if you wish to make changes
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/editing-drawings-on-windows-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * To save your drawing on the image, you must click on Apply after each action you make with the tool
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 The Photos app has an interface that is restructured with dark theme options and new drawing and editing features making it a great tool. If you want to draw on Photos in Windows 10, follow the above steps and make your actions easier. If you want to have more options to edit videos with drawing in Windows 10, why not choose [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)? You can edit your video with various drawing and text style.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -109,4 +120,18 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-optimal-choices-foremost-audio-craftsmen-for-iphones/"><u>[New] 2024 Approved Optimal Choices Foremost Audio Craftsmen for iPhones</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-taking-comedy-to-the-digital-frontier-your-gif-creation-roadmap/"><u>[New] 2024 Approved Taking Comedy to the Digital Frontier Your GIF Creation Roadmap</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-visionary-visions-guiding-principles-for-stunning-images/"><u>[New] In 2024, Visionary Visions Guiding Principles for Stunning Images</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-quick-guide-to-adding-snapchat-on-your-macbook-for-2024/"><u>[New] Quick Guide to Adding Snapchat on Your MacBook for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-10-easy-youtube-video-ideas-everyone-can-make-it-for-2024/"><u>[Updated] 10 Easy YouTube Video Ideas Everyone Can Make It for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-seamlessly-shift-focus-with-picart-clear-borders/"><u>[Updated] 2024 Approved Seamlessly Shift Focus with PicArt Clear Borders</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-proven-techniques-for-locating-luxe-pexel-pictures/"><u>2024 Approved Proven Techniques for Locating Luxe Pexel Pictures</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-top-tips-for-optimal-online-vhs-photo-enhancement/"><u>2024 Approved Top Tips for Optimal Online VHS Photo Enhancement</u></a></li>
+<li><a href="https://win-web.techidaily.com/windowsssdhddc/"><u>簡便方法：將Windows導入SSD或HDD，透過C隧道的手指</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/guiding-principles-for-speech-conversion-in-google-translate/"><u>Guiding Principles for Speech Conversion in Google Translate</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlock-full-chatgpt-capabilities-on-pc/"><u>Unlock Full ChatGPT Capabilities on PC</u></a></li>
+</ul></div>
 

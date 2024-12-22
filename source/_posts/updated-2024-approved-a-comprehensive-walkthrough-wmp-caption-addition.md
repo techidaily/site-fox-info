@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  A Comprehensive Walkthrough  WMP Caption Addition\""
-date: 2024-12-11T03:43:15.542Z
-updated: 2024-12-13T08:36:34.998Z
+date: 2024-12-20T16:00:10.851Z
+updated: 2024-12-22T16:13:17.842Z
 tags: 
   - screen-recording
   - ai video
@@ -34,7 +34,7 @@ Windows Media Player is still maintaining its wide popularity among users from e
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Step by Step Guide
@@ -44,6 +44,10 @@ The process of adding subtitles to video clips is quite simple; you need to foll
 **Step 1:** First of all you need to save your video and subtitle file with same name. It is not possible to manually add subtitles using Window Media Player but it can easily detect all subtitles when both files are saved with same name.
 
 ![ ](https://images.wondershare.com/filmora/article-images/subtitle-wmp-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2:** Once you are done with the first step then simply open your Window Media Player and move to the Library Mode. Now switch to play, then Lyrics, captions and finally you will reach at subtitles. Hit this option and choose “On if Available”. The same option is also available in the Now Playing Mode where you simply need to right click and this option will appear in drop down menu.
 
@@ -55,39 +59,35 @@ The process of adding subtitles to video clips is quite simple; you need to foll
 
 ![ ](https://images.wondershare.com/filmora/article-images/subtitle-wmp-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5:** Within very less time application will get opened with a fresh window on your system. Now move to tabs of different video file types then search for the option that says: “Disable Media Foundation for MP4/MKV and AVI etc”. Further, go to the swap tab and then disable window media foundation.
 
 ![ ](https://images.wondershare.com/filmora/article-images/subtitle-wmp-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 As soon as you will finish all these settings, your subtitles will appear perfectly over video and you can enjoy great synchronism for all content. Window Media player tool is capable enough to make effective adjustments for subtitle placements and it will take just a few minutes to complete all these steps.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Websites for Downloading Subtitles
 
 If you are searching for websites that can help you to download subtitles for your videos then this list can be useful for you:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### [1. Moviesubtitles.com:](http://www.moviesubtitles.org/movies.html)
 
 You will be glad to know that this website offers subtitles in wide range of languages. Users can simply initiate search for latest subtitle files, most popular movies or most download subtitles. All these subtitles packs are available for free and they are usually packed in WinZip file formats.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### [2. Subscene.com:](https://subscene.com/browse/latest/film/1)
 
 This website stays one of the top preferences lists of all professionals as well as beginners. It serves with easy to access search function so that users can easily navigate for their desired subtitle file. It also allows users to upload movie subtitle files and they can be rated.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### [3\. TVsubtitles.net:](http://www.tvsubtitles.net/tvshow-1568-3.html)
 
@@ -124,18 +124,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-the-ultimate-question-in-cameras-can-a-dslr-surpass-a-hero-4-in-2024/"><u>[New] The Ultimate Question in Cameras Can a DSLR Surpass a Hero 4, In 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-understanding-the-edge-of-av1-in-video-encoding/"><u>[Updated] Understanding the Edge of AV1 in Video Encoding</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-comparative-review-top-cloud-services-prices/"><u>2024 Approved Comparative Review Top Cloud Services' Prices</u></a></li>
-<li><a href="https://fox-that.techidaily.com/7-reasons-for-slow-wireless-internet-on-phones-and-how-to-fix-them/"><u>7 Reasons for Slow Wireless Internet on Phones and How to Fix Them</u></a></li>
-<li><a href="https://change-location.techidaily.com/home-button-not-working-on-poco-f5-5g-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Poco F5 5G? Here Are Real Fixes | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-tecno-camon-20-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Tecno Camon 20 Phone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-nubia-red-magic-8s-proplus-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Nubia Red Magic 8S Pro+ to iPhone 15/14/13/12 | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-lava-blaze-2-pro-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Lava Blaze 2 Pro to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-synchronizing-realism-advanced-green-screen-applications-for-viewers/"><u>In 2024, Synchronizing Realism Advanced Green Screen Applications for Viewers</u></a></li>
-<li><a href="https://common-error.techidaily.com/pdf-printing-woes-master-the-art-of-quick-and-effective-solutions/"><u>PDF Printing Woes? Master the Art of Quick and Effective Solutions</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolving-windows-10-hard-drive-freezing-problems-effectively/"><u>Resolving Windows 10 Hard Drive Freezing Problems Effectively</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/troubleshooting-unrecognized-usb-devices-in-windows-11-expert-tips/"><u>Troubleshooting Unrecognized USB Devices in Windows 11 – Expert Tips</u></a></li>
-<li><a href="https://media-tips.techidaily.com/whos-streaming-or-listening-track-user-activity-across-popular-platforms-including-netflix-and-spotify/"><u>Who's Streaming or Listening? Track User Activity Across Popular Platforms Including Netflix & Spotify</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/opyright-safe-techniques-for-youtube-to-mp4-for-2024/"><u>[New] Copyright-Safe Techniques for Youtube-to-MP4 for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2024s-best-compact-gaming-platforms-your-complete-handheld-console-guide/"><u>2024'S Best Compact Gaming Platforms - Your Complete Handheld Console Guide</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/apple-iphone-12-mini-screen-mirroring-you-must-know-drfone-by-drfone-ios/"><u>Apple iPhone 12 mini Screen Mirroring You Must Know | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/best-in-class-writing-workshop-for-2024/"><u>Best-in-Class Writing Workshop for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/boosting-playback-speed-guidelines-for-secure-sound-enhancement-for-2024/"><u>Boosting Playback Speed Guidelines for Secure Sound Enhancement for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/capturing-cadence-leading-cameras-for-extended-shutter-times/"><u>Capturing Cadence Leading Cameras for Extended Shutter Times</u></a></li>
+<li><a href="https://fox-info.techidaily.com/chronicles-that-captivate-top-youtube-storytelling-channels-2023/"><u>Chronicles that Captivate Top YouTube Storytelling Channels 2023</u></a></li>
+<li><a href="https://fox-info.techidaily.com/compact-cost-free-livestreaming-solutions-listed-in-a-nutshell/"><u>Compact, Cost-Free LiveStreaming Solutions Listed in a Nutshell</u></a></li>
+<li><a href="https://fox-info.techidaily.com/crafting-star-stirred-stories-for-your-whatsapp-bio-for-2024/"><u>Crafting Star-Stirred Stories for Your WhatsApp Bio for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/demystifying-ai-the-good-and-possible-dangers/"><u>Demystifying AI: The Good & Possible Dangers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/digital-content-upgrade-changing-numbers-on-tiktok-quickly/"><u>Digital Content Upgrade Changing Numbers on TikTok Quickly</u></a></li>
+<li><a href="https://fox-info.techidaily.com/discover-polarrs-secret-ultimate-guide-to-digital-image-editing/"><u>Discover Polarr’s Secret Ultimate Guide to Digital Image Editing</u></a></li>
+<li><a href="https://fox-info.techidaily.com/efficiently-traverse-youtubes-votes-and-reaction-space/"><u>Efficiently Traverse YouTube’s Votes and Reaction Space</u></a></li>
+<li><a href="https://games-able.techidaily.com/explore-the-best-11-costless-word-games-on-phones/"><u>Explore the Best 11 Costless Word Games on Phones</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/famed-stop-motion-movies-15-of-all-time/"><u>Famed Stop-Motion Movies #15 of All Time</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1722090666729-four-desired-improvements-for-the-next-generation-ai-gpt-5/"><u>Four Desired Improvements for the Next Generation AI, GPT-5!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-elite-group-16-youtube-entries-boosting-views/"><u>In 2024, Elite Group 16 YouTube Entries Boosting Views</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-motorola-moto-g73-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Motorola Moto G73 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/instagram-live-via-obs-technology/"><u>Instagram Live via OBS Technology</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] MotionMaster Win8 Edition for 2024"
-date: 2024-08-28T07:58:10.285Z
-updated: 2024-08-29T07:58:10.285Z
+date: 2024-12-17T10:55:50.656Z
+updated: 2024-12-22T02:55:07.214Z
 tags: 
   - screen-recording
   - ai video
@@ -30,6 +30,10 @@ Previously, we can still use Windows Movie Maker in Windows 8 and Windows 7, but
 
 Nowadays more and more people taking photos in an exceptional manner and creating eye-catching video movies to get the lifelong reminiscences. While in this article, I’ll share you two video movie makers for Windows 8, Filmora video editor (an easy-to-use movie maker) and the DVD slideshow builder (photo slideshow maker). With the exceptional **video movie maker for windows 8-**[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), you can quickly and easily make your own video movie. The specific features of this **video movie maker for windows** include user-friendly interface, choice to add wide varieties of photos and styles, filter, effects and elements, and multiple output options etc.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Recommended Movie Maker for Windows 8
 
 Filmora is compatible for Windows 7/8/8.1/10 64-bit PC and Mac OSX 10.11 or above Mac computer, and you can edit the same video project on both Mac or PC computer. In you haven’t heard about Filmora, check the video below and download it for free to check its magic.
@@ -38,11 +42,19 @@ Filmora is compatible for Windows 7/8/8.1/10 64-bit PC and Mac OSX 10.11 or abov
 
 We have written so many articles about [how to edit videos](https://tools.techidaily.com/wondershare/filmora/download/) with Filmora on Windows, to keep the content clean, you can check our guide about How to Edit videos. But if you have any questions about editing videos in Filmora, leave a comment below and I’ll reply the comment soon.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to use DVD slideshow Builder on Windows 8
 
 The content below will tell you how to make a video movie using [DVD Slideshow Builder](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/).
 
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png) ](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 1.Install video movie software and import files
 
@@ -59,6 +71,10 @@ This **video movie maker** provides you with 480+ Hollywood-like movie styles to
 You can also add some adorable elements to make your movie video more funny and lively in this tab. For example, you can personalize text caption with different text effects or add an Intro or Credit to your video according to the theme. All your choice!
 
 ![DVD Slideshow Personalize](https://images.wondershare.com/filmora/article-images/dvd-slideshow-personalize.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 3.Save your own video movie or share online
 
@@ -80,6 +96,10 @@ Ok, that's done. You see, with this **video movie maker for windows 8**, making 
 Interested in Filmora video editor? Check the YouTube tutorial about Filmora from tutvide and download it to try.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -106,8 +126,19 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-integrated-camera-use-photos-and-videos-on-one-phone/"><u>[New] 2024 Approved Integrated Camera Use Photos and Videos on One Phone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-advanced-authorized-streaming-systems/"><u>[New] In 2024, Advanced Authorized Streaming Systems</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-x-media-library-manager-personal-computer/"><u>[Updated] In 2024, X-Media Library Manager, Personal Computer</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-art-of-compelling-podcast-summaries-explained/"><u>[Updated] The Art of Compelling Podcast Summaries Explained</u></a></li>
+<li><a href="https://fox-info.techidaily.com/china-on-ice-revelry-at-the-2022-beijing-olympics/"><u>China on Ice Revelry at the 2022 Beijing Olympics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-apple-ipad-air-2019-analysis-the-ultimate-entertainment-tablet/"><u>Comprehensive Apple iPad Air (2019) Analysis - The Ultimate Entertainment Tablet</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-can-i-remove-the-apple-watch-activation-lock-by-iphone-6s-plus-without-the-previous-owner-by-drfone-ios/"><u>In 2024, Can I Remove the Apple Watch Activation Lock By iPhone 6s Plus without the Previous Owner?</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-essential-sound-editing-apps-for-mobile-iphone-and-ipad-edition-2023-edition/"><u>New Essential Sound Editing Apps for Mobile IPhone & iPad Edition, 2023 Edition</u></a></li>
+<li><a href="https://fox-info.techidaily.com/premier-equipment-for-cutting-edge-livestreams/"><u>Premier Equipment for Cutting-Edge Livestreams</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/sound-fidelity-preservation-computer-sounds-and-dialogue-for-2024/"><u>Sound Fidelity Preservation Computer Sounds & Dialogue for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/streamlining-projects-using-azures-speech-service-for-2024/"><u>Streamlining Projects Using Azure's Speech Service for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/transforming-organizational-strategy-with-digital-intelligence-insights-from-an-abbyy-expert/"><u>Transforming Organizational Strategy with Digital Intelligence: Insights From an ABBYY Expert</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->

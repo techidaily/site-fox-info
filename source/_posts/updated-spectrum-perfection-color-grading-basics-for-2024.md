@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Spectrum Perfection  Color Grading Basics for 2024\""
-date: 2024-08-28T07:52:34.432Z
-updated: 2024-08-29T07:52:34.432Z
+date: 2024-12-19T16:01:01.739Z
+updated: 2024-12-22T16:01:01.496Z
 tags: 
   - screen-recording
   - ai video
@@ -22,6 +22,10 @@ Everyone in the video editing world is full of lively and beautiful colors — j
 
 ![color grading panel filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-panel-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What is Color Grading?
 
 Color grading is the video editing process wherein grading (arranging) colors in a video or film to give them a stylistic look. It is different from Color correction because color correction is the process of correcting (fixing) colors in a video or a film as a way to get them back to what they should look like for your project or output.
@@ -30,9 +34,17 @@ In cinematography, color grading refers to the manipulation of film and video im
 
 ![origianl video color grading](https://images.wondershare.com/filmora/article-images/2022/08/origianl-video-color-grading.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Color grading and color correction are processes that happen throughout postproduction. One makes the film look more native, and the other stylizes the footage. After the colorist finishes color correction, they can begin grading the film. During color grading, colorists use editing software to formalize the footage, highlighting a movie's visual tone and ambiance and making it look more cinematic.
 
 ![apply color grading to video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-grading-to-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 To summarize, Color grading can be used to make both technical and creative changes. Colorists use color grading for artistic purposes to ensure that the film's carefully curated color palette conveys a specific atmosphere, style, or emotion.
 
@@ -49,6 +61,10 @@ The communication of emotion and story through the lens is one of the most power
 **Color grading encourage a style that can be completely your own**
 
 One of the most intimidating challenges a photographer or vlogger faces is creating a unique style that can result in a brand for their work. Making a visual style that viewers can recognize at a glance can tremendously impact the growth of a photographer's career. Color grading plays a vital part in that process. Customers will often come to you with a wide range of different photography outputs. By defining a consistent color grading work, you can tie it all into a dense brand that reflects strongly on you and construct a distinctive value that provides you something to sell that only you can offer to people.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to use Color Grading in Wondershare Filmora?
 
@@ -70,9 +86,6 @@ Advanced Color Tools icon – click the Advanced Color Tools icon in the toolbar
 
 ![advanced color tools filmora](https://images.wondershare.com/filmora/article-images/2022/08/advanced-color-tools-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Color Panel Window - to perform color correction in Wondershare Filmora, switch to the Color tab. You can modify the white balance, saturation, tint, contrast, temperature, and brightness and apply 3D LUT immediately and quickly in this editing panel. You see the output in the Preview window.
 
 ![edit color grading video fx](https://images.wondershare.com/filmora/article-images/2022/08/edit-color-grading-video-fx.jpg)
@@ -96,8 +109,9 @@ Here, there are two options to select: The Color correction. It offers different
 ![open color correction filmora](https://images.wondershare.com/filmora/article-images/2022/08/open-color-correction-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##### Step2Select the specific video portion
 
 #####
@@ -106,23 +120,14 @@ First, you need to select the specific video portion you want to change the colo
 
 ![split video into clips fx](https://images.wondershare.com/filmora/article-images/2022/08/split-video-into-clips-fx.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 * And I selected the end portion of the video. After that, choose the part of the video.
 
 ![selected end portion video filmora](https://images.wondershare.com/filmora/article-images/2022/08/selected-end-portion-video-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ##### Step3Apply the color correction preset that you want then click ok
 
 ![apply color correction preset](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-correction-preset.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 You will notice that the color changes depending on your selected preset.
 
 In the Presets tab, there are different templates, including Common, 3D LUT, Vignette, and Film. While in Adjust tab, you can modify the white balance, such as color tint and color temperature, 3D LUT, Color, Light, HSL, and Vignette, etc.
@@ -147,9 +152,6 @@ Click the button Advanced at the lower corner, then the color grading window wil
 
 ![color grading with filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-with-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 **Color Histogram**
 
 The color histogram informs you of the color condition of this video. This reflects the exact allotment of colors throughout a specific image, highlighting the various colors on the screen and the pixels for every color type. When the color histogram points out as “Three Color Histograms,” a specific assignment of the three primary colors (R, B, and G) is reflected.
@@ -214,4 +216,22 @@ Overall, Color grading is the process of video editing to have an excellent look
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-unlocking-virtual-presence-enhanced-screen-focus-on-ms-teams/"><u>[New] 2024 Approved Unlocking Virtual Presence Enhanced Screen Focus on MS Teams</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-mastering-audio-top-5-steps-for-exceptional-sound-on-windows-11/"><u>[New] Mastering Audio Top 5 Steps for Exceptional Sound on Windows 11</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-transforming-instagram-footage-into-square-stories-using-imovie-tips/"><u>[New] Transforming Instagram Footage Into Square Stories Using iMovie Tips</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-behind-the-drone-a-close-look-at-dji-phantom-3-pros-features/"><u>[Updated] 2024 Approved Behind the Drone A Close Look at DJI Phantom 3 Pro's Features</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-step-by-step-guide-to-instagram-live-communication/"><u>[Updated] 2024 Approved Step-by-Step Guide to Instagram Live Communication</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-crafting-a-youtube-future-scaling-up-or-staying-independent/"><u>[Updated] Crafting a YouTube Future Scaling Up or Staying Independent?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-stand-out-in-the-crowd-ingenious-tips-for-top-tinder-bios-for-2024/"><u>[Updated] Stand Out in the Crowd - Ingenious Tips for Top Tinder Bios for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-framing-frontiers-cutting-edge-app-innovations-24/"><u>2024 Approved Framing Frontiers Cutting-Edge App Innovations '24</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-trivia-titans-of-the-year-best-general-knowledge-sites/"><u>2024 Approved Trivia Titans of the Year - Best General Knowledge Sites</u></a></li>
+<li><a href="https://win-answers.techidaily.com/deciphering-fatal-ark-glitches-a-comprehensive-troubleshooting-manual-for-successful-recovery/"><u>Deciphering Fatal ARK Glitches: A Comprehensive Troubleshooting Manual for Successful Recovery</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/effective-ways-to-fix-checkra1n-error-31-from-iphone-8-by-drfone-ios/"><u>Effective Ways To Fix Checkra1n Error 31 From iPhone 8</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-samsung-galaxy-s23-tactical-edition-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Samsung Galaxy S23 Tactical Edition</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-elite-recording-equipment-headset-screen-preferred/"><u>In 2024, Elite Recording Equipment Headset Screen Preferred</u></a></li>
+<li><a href="https://fox-info.techidaily.com/prime-pick-top-10-streamers-for-cutting-edge-tv-content-for-2024/"><u>Prime Pick Top 10 Streamers for Cutting-Edge TV Content for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/strategies-to-boost-your-visibility-and-attract-matches-on-bumble/"><u>Strategies to Boost Your Visibility and Attract Matches on Bumble</u></a></li>
+</ul></div>
 

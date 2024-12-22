@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Finn's Funds  YouTube Star’s Weekly Take-Home\""
-date: 2024-08-28T07:53:56.179Z
-updated: 2024-08-29T07:53:56.179Z
+date: 2024-12-17T16:00:04.982Z
+updated: 2024-12-22T16:00:28.783Z
 tags: 
   - screen-recording
   - ai video
@@ -79,6 +79,10 @@ To give you an idea, about how **much money does PewDiePie make** and how the ch
 
 ![pewdiepie bar chart](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-05.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **The popularity of PewDiePie over other social media sites**
 
 By now, we already know that PewDiePie is the king of YouTube but here we would also like to throw some light on his fanbase over other social media sites.
@@ -136,11 +140,9 @@ This is another popular video of PewDiePie that features a song which is dedicat
 ![jabba the hutt](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-08.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ## Part 4: How to be a YouTuber and make videos like PewDiePie
 
 Looking at the success, popularity, and whooping earnings of PewDiePie, it is obvious for people like you and me, to think of try giving hands in being a YouTuber. So, if you have some unique ideas and content that you would like to bring forward to the world audience, uploading on YouTube is one of the best ideas.
@@ -166,18 +168,20 @@ Step1 Launch the software and open the Auto Reframe function. The tool offers mu
 ![wondershare filmora auto reframe 1a](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-09.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Add the media file by clicking File > Import Media, and then right-click and select the Auto Reframe function.
 
 ![wondershare filmora auto reframe 1b](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 And the last option is to choose Auto reframe from the Tools section on the menu bar.
 
 ![wondershare filmora auto reframe 1c](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-11.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step2 After the Auto Reframe feature is selected, a new dialogue box will open. Choose to add the media file by clicking on the Import Media button (if the file is not yet added).
 
@@ -186,19 +190,20 @@ If you wish to change the added file, tap on Replace File option.
 ![wondershare filmora auto reframe 2](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Step3 Next, you need to adjust the aspect ratio and the motion speed. You can choose aspect ratio from multiple options- square (1:1), vertical (9:16), standard (4:3), widescreen (16:9), and cinema (21:9). The motion speed can be kept as Auto, Fast, or Slow as needed.
 
 ![wondershare filmora auto reframe 3](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-13.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 Step4 After all the settings are done, click on the Analysis option and the software will do the video analysis.
 
 ![wondershare filmora auto reframe 4a](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-14.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The tool will reframe the video automatically as per the speed and the aspect ratio selected. Clicking on the Restart button will let you change the aspect ratio and the speed.
 
@@ -213,6 +218,10 @@ Step6 Finally, tap on the Export button, and choose the desired file and the des
 ![wondershare filmora auto reframe 6](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-17.jpg)
 
 You can check the other AI Editing and more features at [Wondershare Filmora Guide.](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -257,8 +266,9 @@ To give you an idea, about how **much money does PewDiePie make** and how the ch
 ![pewdiepie wealth growth](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-04.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![pewdiepie bar chart](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-05.jpg)
 
 **The popularity of PewDiePie over other social media sites**
@@ -269,9 +279,6 @@ By now, we already know that PewDiePie is the king of YouTube but here we would 
 * On [Facebook](https://www.facebook.com/PewDiePie), the number of people who follow PewDiePie is over 9.2 million.
 * [Instagram](https://www.instagram.com/pewdiepie/) leads the list with followers of over 21.9 million.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ## Part 3: PewDiePie’s success story: Why he is trending on YouTube?
 
 The popularity of PewDiePie on YouTube can be well accessed by the number of subscribers that the channel has- over 111 Million till date with over 16 billion views on content from people across the globe.
@@ -308,15 +315,16 @@ This is one of the most viewed videos of PewDiePie that has a compilation of the
 
 ![a funny montage](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-06.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 2\. [Funny Gaming Montage](https://www.youtube.com/watch?v=dt3BvMyHjlc&feature=emb%5Fimp%5Fwoyt)
 
 This is an interesting video of PewDiePie that features a collection of funny moments which shows his reactions to scary video games.
 
 ![funny gaming montage](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-07.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 3\. [Jabba the Hutt ( PewDiePie song by Schmoyoho)](https://www.youtube.com/watch?v=lxw3C5HJ2XU&feature=emb%5Fimp%5Fwoyt)
 
 This is another popular video of PewDiePie that features a song which is dedicated to one of PewDiePie’s pet dogs- Maya. The video also has a collection of moments from his videos.
@@ -347,9 +355,6 @@ Step1 Launch the software and open the Auto Reframe function. The tool offers mu
 
 ![wondershare filmora auto reframe 1a](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-09.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 Add the media file by clicking File > Import Media, and then right-click and select the Auto Reframe function.
 
 ![wondershare filmora auto reframe 1b](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-10.jpg)
@@ -358,25 +363,16 @@ And the last option is to choose Auto reframe from the Tools section on the menu
 
 ![wondershare filmora auto reframe 1c](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-11.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 Step2 After the Auto Reframe feature is selected, a new dialogue box will open. Choose to add the media file by clicking on the Import Media button (if the file is not yet added).
 
 If you wish to change the added file, tap on Replace File option.
 
 ![wondershare filmora auto reframe 2](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-12.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step3 Next, you need to adjust the aspect ratio and the motion speed. You can choose aspect ratio from multiple options- square (1:1), vertical (9:16), standard (4:3), widescreen (16:9), and cinema (21:9). The motion speed can be kept as Auto, Fast, or Slow as needed.
 
 ![wondershare filmora auto reframe 3](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-13.jpg)
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 Step4 After all the settings are done, click on the Analysis option and the software will do the video analysis.
 
 ![wondershare filmora auto reframe 4a](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-14.jpg)
@@ -385,9 +381,6 @@ The tool will reframe the video automatically as per the speed and the aspect ra
 
 ![wondershare filmora auto reframe 4b](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-15.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step5 Preview of the video can now be checked and if further editing is needed, it can be done using Undo, redo Next Edit Point, and Previous Edit Point features.
 
 ![wondershare filmora auto reframe 5](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-16.jpg)
@@ -396,14 +389,12 @@ Step6 Finally, tap on the Export button, and choose the desired file and the des
 
 ![wondershare filmora auto reframe 6](https://images.wondershare.com/filmora/article-images/2022/11/how-much-does-pewdiepie-make-2022-updated-17.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 You can check the other AI Editing and more features at [Wondershare Filmora Guide.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Final Words
 
 PewDiePie is an apt example of earning fortunes by uploading videos and being popular online. There are many factors that make him popular amongst his fans, and there is a lot to learn from the interesting journey of PewDiePie. If you too, wish to make videos like PewDiePie that are catchy, engaging, and interesting, but do not know how to proceed, [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) will prove to be a good companion.
@@ -434,4 +425,18 @@ PewDiePie is an apt example of earning fortunes by uploading videos and being po
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-2023-comprehensive-grip-on-visualcutter-software-review/"><u>[New] 2024 Approved 2023 Comprehensive Grip on VisualCutter Software Review</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-m1-explored-apples-leap-in-computational-innovation/"><u>[New] M1 Explored Apple's Leap in Computational Innovation</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-summit-of-synergy-for-vr-sensations/"><u>[Updated] 2024 Approved Summit of Synergy for VR Sensations</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-best-image-safekeepers-online/"><u>2024 Approved Best Image Safekeepers Online</u></a></li>
+<li><a href="https://win-studio.techidaily.com/1726028844982-4/"><u>4最高の無料ビデオからオーディオ抽出ツール - 推薦リスト</u></a></li>
+<li><a href="https://fox-info.techidaily.com/audiovisual-harmony-incorporating-audio-into-powerpoint-presentations/"><u>Audiovisual Harmony Incorporating Audio Into PowerPoint Presentations</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Infinix Smart 8 | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-retro-remake-applying-modern-filters-on-previous-media-posts/"><u>In 2024, Retro Remake Applying Modern Filters on Previous Media Posts</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-list-top-10-websites-for-free-photo-access/"><u>In 2024, The Ultimate List Top 10 Websites for Free Photo Access</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-ultimate-playlist-of-scores-for-clips/"><u>In 2024, Ultimate Playlist of Scores for Clips</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/1728504922226-windows-11/"><u>Windows 11 増分と差分のバックアップ方法</u></a></li>
+</ul></div>
 

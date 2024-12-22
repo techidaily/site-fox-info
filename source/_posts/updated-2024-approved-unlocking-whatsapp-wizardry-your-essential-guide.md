@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Unlocking WhatsApp Wizardry  Your Essential Guide\""
-date: 2024-08-28T07:57:23.502Z
-updated: 2024-08-29T07:57:23.502Z
+date: 2024-12-15T15:47:50.337Z
+updated: 2024-12-21T20:06:32.701Z
 tags: 
   - screen-recording
   - ai video
@@ -54,6 +54,10 @@ Strikethrough is largely used to intend puns in WhatsApp, but sometimes it is al
 
 ![Whatsapp Text Tricks Strikethrough](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-strikethrough.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4.Monospace
 
 The monospace is a font stylization now available in WhatsApp that allows you to write fixed-width content. These WhatsApp writing tricks are useful when sharing any sort of coding or technical formulas. It will help distinguish special content from regular content. To insert it, use 3 backticks (\`\`\`text\`\`\`) at the beginning and end of your sentence without spacing.
@@ -86,6 +90,10 @@ Though we have already mentioned the shortcuts for bold, italics, and other text
 
 ![Whatsapp Font Tricks Formatting](https://images.wondershare.com/filmora/article-images/whatsapp-font-tricks-formatting.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 9.You Can Apply All WhatsApp Font Tricks on One Word or Sentence
 
 There are plenty of things you can do with one word. It can be bold, italic, monospace, and strikethrough all at the same time. Apply the native settings or shortcuts one after another and voila!
@@ -97,6 +105,10 @@ There are plenty of things you can do with one word. It can be bold, italic, mon
 While typing a WhatsApp message if you need to cross-check certain areas with someone else, and don’t want to copy the text or overwrite your clipboard, you can directly share the text without copy-pasting or taking screenshots. This WhatsApp Typing Trick is in the same native setting strip mentioned earlier, which you can access by tapping and holding the text section you want to share, which will open the formatting strip. Once it opens then click on the 3 dots, which will turn the strip into a panel, in the panel you will find what you are looking for. The coolest part is that you can share the text not only in WhatsApp but multiple other apps like Zoom, Skype, Email… even Bluetooth!
 
 ![Whatsapp Typing Trick](https://images.wondershare.com/filmora/article-images/whatsapp-typing-trick.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What are the Hidden Features of WhatsApp?
 
@@ -124,6 +136,10 @@ As long as you have the chat history intact you can search specific words to tra
 
 ![Whatsapp Search Old Chat](https://images.wondershare.com/filmora/article-images/whatsapp-search-old-chat.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 5.Restore Your Chat History, and Deleted Chats
 
 Sometimes you can restore deleted chat history if you have switched sims or mistakenly deleted a special conversation thread. Doesn’t take too much, just uninstall and reinstall your app. On opening it, you will get the prompt to restore your chats and media. The restoration process takes about a minute depending on internet speed. Then tap NEXT when the prompt appears. Remember this trick only works on messages that are run under backup when you are using a new phone. WhatsApp runs a backup every day at 2 am.
@@ -140,11 +156,19 @@ Not every message thread is important, and many people have the habit of deletin
 
 ![Whatsapp Auto Delete Messages](https://images.wondershare.com/filmora/article-images/whatsapp-auto-delete-messages.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 8.Mute Stories that You Don’t Want to See
 
 If it is annoying to open a loved one’s story and then automatically sliding into a story you did not want to open, you can MUTE the people whose stories you are not interested to see. Go to Story and tap and hold the unwanted contact to open the Mute option. Even though there is no option that you can stop the automatic carousel to the next contact’s stories altogether, you can always go by the rule of the thumb - place your thumb on the screen and the carousel won’t move.
 
 ![Mute Whatsapp Stories](https://images.wondershare.com/filmora/article-images/mute-whatsapp-stories.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 9.Reply Privately to Recipients in a WhatsApp Group
 
@@ -159,8 +183,9 @@ Manage how you are notified of messages from specific contacts and groups. Go to
 Source: beebom.com
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Edit WhatsApp Videos with Ease
 
 Some of the best WhatsApp video editing tricks are coming up, wherein you can add doodles, text, and crop an image. Moreover, you also check in some external video editing tools that are quite handy to integrate with WhatsApp.
@@ -172,8 +197,9 @@ There are no download options for photos and videos for WhatsApp Statuses, yet y
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 #### 2.Record Video Calls from PC and Improve Its Quality
 
 For this WhatsApp Video Editing Trick, you would need to have a third-party screen recorder tool, like Wondershare Filmora on your PCs, and the iPhone 11 has one in-built software for screen recording. Either way, if you can record the WhatsApp Call with sound and all, you can further import the file into Wondershare Filmora and use high-tech editorial tools like Noise Reduction, 4K Resolution and snip any unnecessary portions in the clip.
@@ -182,10 +208,6 @@ For this WhatsApp Video Editing Trick, you would need to have a third-party scre
 
 You can create an instant GIF out of the video file within WhatsApp. Do this, let the video download, and then freshly share it from Attach >> Gallery >> Videos. Before sending, the video editing panel would open, there, you can see the GIF option at the top right. It will shorten your video to 6 seconds, adjust the cursor to the portion you wish to use.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### Conclusion
 
 When it comes to WhatsApp Tricks and Trades, you always have to look forward to every update. Keep a tab on the updates and find a new WhatsApp Hidden Feature now and then.
@@ -194,9 +216,6 @@ When it comes to WhatsApp Tricks and Trades, you always have to look forward to 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -220,4 +239,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-high-definition-dominance-premier-players-in-24/"><u>[New] In 2024, High Definition Dominance Premier Players in '24</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-insta-editing-secrets-mastering-high-resolution-footage-in-fcpx/"><u>[Updated] 2024 Approved Insta-Editing Secrets Mastering High-Resolution Footage in FCPX</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-quick-start-utilizing-zoom-in-windows-10-environment/"><u>[Updated] Quick Start Utilizing Zoom in Windows 10 Environment</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-scriptwriting-the-creative-process-for-2024/"><u>[Updated] Scriptwriting The Creative Process for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-unlocking-social-networks-the-pathway-to-a-facebook-profile/"><u>2024 Approved Unlocking Social Networks The Pathway to a Facebook Profile</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-unveiling-the-process-of-sharing-srt-text-in-social-digital-spaces/"><u>2024 Approved Unveiling the Process of Sharing SRT Text in Social Digital Spaces</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/30-quick-steps-to-metaverse-humor-from-copycat-to-creator/"><u>30 Quick Steps to Metaverse Humor From Copycat to Creator</u></a></li>
+<li><a href="https://fox-info.techidaily.com/capture-your-rides-top-7-camcorders-for-skiingsnowboarding-for-2024/"><u>Capture Your Rides Top 7 Camcorders for Skiing/Snowboarding for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensively-understanding-photodnas-functionality/"><u>Comprehensively Understanding PhotoDNA's Functionality</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/content-stealthy-escape-detectors-at-a-standstill/"><u>Content Stealthy Escape: Detectors at a Standstill</u></a></li>
+<li><a href="https://fox-info.techidaily.com/demystifying-photo-editing-a-snapseed-introduction/"><u>Demystifying Photo Editing A Snapseed Introduction</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/enhancing-authenticity-and-connection-via-fb-profile-covers-for-2024/"><u>Enhancing Authenticity and Connection via FB Profile Covers for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722970995233-get-the-latest-amd-radeon-rx-480-driver-updates-free-downloads/"><u>Get the Latest AMD Radeon RX 480 Driver Updates - Free Downloads</u></a></li>
+<li><a href="https://fox-info.techidaily.com/iconic-visual-alteration-suite-imagefusion-xtreme/"><u>Iconic Visual Alteration Suite ImageFusion Xtreme</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-cultivation-of-a-connected-crowd-the-subscriber-surge-strategy/"><u>In 2024, Cultivation of a Connected Crowd The Subscriber Surge Strategy</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-exclusive-top-5-iphone-podcast-apps-guide/"><u>In 2024, Exclusive Top 5 iPhone Podcast Apps Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/by-step-guide-distribute-your-youtube-collection-for-2024/"><u>Step-by-Step Guide Distribute Your YouTube Collection for 2024</u></a></li>
+</ul></div>
 
