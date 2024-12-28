@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Ultimate Tally  Unveiling the Highest-Rated Threads on Reddit\""
-date: 2024-12-21T16:06:15.874Z
-updated: 2024-12-22T16:14:39.999Z
+date: 2024-12-26T06:02:31.136Z
+updated: 2024-12-28T04:04:33.744Z
 tags: 
   - screen-recording
   - ai video
@@ -46,10 +46,6 @@ Here they are!
 
 ## 10 Most Upvoted Reddit Posts of All Time
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. [The Senate (/r/movies)](https://www.reddit.com/r/movies/comments/62sjuh/the%5Fsenate%5Fupvote%5Fthis%5Fso%5Fthat%5Fpeople%5Fsee%5Fit%5Fwhen/)
 
 ![chancellor palpatine the senate](https://images.wondershare.com/filmora/article-images/2023/01/the-senate.png)
@@ -72,10 +68,6 @@ It represents a fun and public meme of someone buying a billboard in New York. T
 
 $GME stands for GameStop's stock name. BRR represents printing money. The idea behind it - publicly displaying the astonishing soar of GameStop's stock at that time.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. [Rick Astley Rides a Bike (r/pics)](https://www.reddit.com/r/pics/comments/haucpf/ive%5Ffound%5Fa%5Ffew%5Ffunny%5Fmemories%5Fduring%5Flockdown/)
 
 ![rick astley rides a bike](https://images.wondershare.com/filmora/article-images/2023/01/rick-astley-old-photo.png)
@@ -84,13 +76,13 @@ Posted in 2020, this one currently has 438k votes with 99% Upvotes. It was poste
 
 If you know the famous song "Never Gonna Give You Up, " you know who this is. Well, this is the Reddit account of the artist Rick Astley himself, taking over the platform with a photo of himself he found in 1989.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. [NYC Taxi Drivers Calendar (/r/funny)](https://www.reddit.com/r/funny/comments/7mjw12/my%5Fcab%5Fdriver%5Ftonight%5Fwas%5Fso%5Fexcited%5Fto%5Fshare/)
 
 ![nyc taxi driver calendar](https://images.wondershare.com/filmora/article-images/2023/01/new-york-taxi-driver.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Another funny post in the official /r/funny subreddit itself. At this time, this one has 308k votes, 97% of which are Upvotes.
 
@@ -98,16 +90,12 @@ The image depicts the New York spirit as an excited cab driver shows off his cab
 
 What's even more interesting is that the driver commented on this Reddit post, letting everyone know that he also got the title "Mr. December" that year.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. [Showing a Game You Mastered to Someone You Care About (/r/gaming)](https://www.reddit.com/r/gaming/comments/ccr8c8/take%5Fyour%5Ftime%5Fyou%5Fgot%5Fthis/)
 
 ![showing a game you mastered reddit post](https://images.wondershare.com/filmora/article-images/2023/01/angry-gamer.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Reddit gets most of its users inside its gaming communities. As a result, these can be some of the hottest topics with countless popular posts.
@@ -122,6 +110,10 @@ You understand the pain if you've gone through something like this.
 
 ![all news anchors say the same thing reddit](https://images.wondershare.com/filmora/article-images/2023/01/news-anchors.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 293k users voted on this post, revealing what it looks like when a single company owns dozens of local news stations.
 
 The phrase "this is extremely dangerous to our democracy" is repeated repeatedly in every news broadcast from these news stations.
@@ -132,15 +124,15 @@ The phrase "this is extremely dangerous to our democracy" is repeated repeatedly
 
 ![thirsty frog takes a bath reddit](https://images.wondershare.com/filmora/article-images/2023/01/frog-taking-a-bath.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Some things on Reddit don't have to make sense to get a lot of attention.
 
 Like this frog, for example. 99% out of the 313k voters on this post upvoted and loved watching this tiny frog take a bath on a hot summer day.
 
 That's all there is to it. No politics, no serious issues, and so on. Just a frog trying to cool off in a bottle cup.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 8\. [Battle for Net Neutrality (/r/books)](https://www.reddit.com/r/books/comments/7en6do/join%5Fthe%5Fbattle%5Ffor%5Fnet%5Fneutrality%5Fwe%5Fneed%5Fto/)
 
@@ -151,7 +143,7 @@ This is another most upvoted Reddit post that encouraged over 180k users to join
 It's a post with a title and a link to a site where anyone can join the battle. The goal - prevent Internet Service Providers from blocking apps and websites.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 9\. [Deangelo Juggles Balls for Real(/r/DunderMifflin)](https://www.reddit.com/r/DunderMifflin/comments/cec448/i%5Fwas%5Fwithout%5Finternet%5Ffor%5Fa%5Fwhile%5Fdecided%5Fto%5Fuse/)
@@ -164,12 +156,16 @@ Well, a Reddit user made an edit of this clip and now it looks as if Will juggle
 
 The post has a 98% upvote rate with 170k voters in total. The reason it's so popular is that The Office fans can't get enough of this show. Many say they never stop watching short clips of the show on Youtube and Reddit after finishing the entire series.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 10\. [Brave Soldier Buried Amongst His Devoted Troops (/r/todayilearned)](https://www.reddit.com/r/todayilearned/comments/7pbzcb/til%5Fafter%5Fcol%5Fshaw%5Fdied%5Fin%5Fbattle%5Fconfederates/)
 
 ![reddit post of soldier and his fathers message](https://images.wondershare.com/filmora/article-images/2023/01/brave-soldier-buried-with-his-devoted-troops-reddit.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Finally, this is an inspiring and heartwarming post about a brave troop.
@@ -224,10 +220,6 @@ $GME stands for GameStop's stock name. BRR represents printing money. The idea b
 
 ![rick astley rides a bike](https://images.wondershare.com/filmora/article-images/2023/01/rick-astley-old-photo.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Posted in 2020, this one currently has 438k votes with 99% Upvotes. It was posted by a famous user known on Reddit as[/u/ReallyRickAstley](https://www.reddit.com/user/ReallyRickAstley/).
 
 If you know the famous song "Never Gonna Give You Up, " you know who this is. Well, this is the Reddit account of the artist Rick Astley himself, taking over the platform with a photo of himself he found in 1989.
@@ -236,19 +228,23 @@ If you know the famous song "Never Gonna Give You Up, " you know who this is. We
 
 ![nyc taxi driver calendar](https://images.wondershare.com/filmora/article-images/2023/01/new-york-taxi-driver.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Another funny post in the official /r/funny subreddit itself. At this time, this one has 308k votes, 97% of which are Upvotes.
 
 The image depicts the New York spirit as an excited cab driver shows off his cab in the 2018 New York Taxi Driver calendar.
 
 What's even more interesting is that the driver commented on this Reddit post, letting everyone know that he also got the title "Mr. December" that year.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. [Showing a Game You Mastered to Someone You Care About (/r/gaming)](https://www.reddit.com/r/gaming/comments/ccr8c8/take%5Fyour%5Ftime%5Fyou%5Fgot%5Fthis/)
 
 ![showing a game you mastered reddit post](https://images.wondershare.com/filmora/article-images/2023/01/angry-gamer.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Reddit gets most of its users inside its gaming communities. As a result, these can be some of the hottest topics with countless popular posts.
 
@@ -277,6 +273,10 @@ Some things on Reddit don't have to make sense to get a lot of attention.
 Like this frog, for example. 99% out of the 313k voters on this post upvoted and loved watching this tiny frog take a bath on a hot summer day.
 
 That's all there is to it. No politics, no serious issues, and so on. Just a frog trying to cool off in a bottle cup.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 8\. [Battle for Net Neutrality (/r/books)](https://www.reddit.com/r/books/comments/7en6do/join%5Fthe%5Fbattle%5Ffor%5Fnet%5Fneutrality%5Fwe%5Fneed%5Fto/)
 
@@ -348,19 +348,22 @@ Whatever you decide to do, feel free to reflect on these posts and enjoy reading
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-mastering-a-standout-linkedin-profile-for-2024/"><u>[New] Mastering a Standout LinkedIn Profile for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-detailed-dissection-straightforward-hdr-methods/"><u>[Updated] 2024 Approved Detailed Dissection Straightforward HDR Methods</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-funhouse-laughs-top-10-meme-blueprints-explained/"><u>[Updated] Funhouse Laughs Top 10 Meme Blueprints Explained</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-humorous-craftsmanship-access-without-expense-for-2024/"><u>[Updated] Humorous Craftsmanship Access Without Expense for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-solutions-for-balancing-iphone-hdr-footage-with-advanced-premiere-pro-tools-for-2024/"><u>[Updated] Solutions for Balancing iPhone HDR Footage with Advanced Premiere Pro Tools for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-spinning-stars-olympic-ice-celebrations-for-2024/"><u>[Updated] Spinning Stars Olympic Ice Celebrations for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-the-pros-guide-to-hidden-power-ups-in-vlc-playback-for-2024/"><u>[Updated] The Pro's Guide to Hidden Power-Ups in VLC Playback for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-troubleshooting-tips-for-the-mystery-of-hidden-shorts-thumbnails/"><u>2024 Approved Troubleshooting Tips for the Mystery of Hidden Shorts Thumbnails</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/1723010502044-battlefield-5-pc-stability-issues-resolved-no-more-game-crashes/"><u>Battlefield 5 PC Stability Issues Resolved - No More Game Crashes!</u></a></li>
-<li><a href="https://fox-info.techidaily.com/essential-8-srt-tools-for-streaming-media-files-for-2024/"><u>Essential 8 SRT Tools for Streaming Media Files for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-aquatic-adventures-unveiled-tips-on-captivating-underwater-video-with-a-gopro/"><u>In 2024, Aquatic Adventures Unveiled Tips on Captivating Underwater Video with a GoPro</u></a></li>
-<li><a href="https://win11.techidaily.com/rectifying-windows-1011-store-error-code-0x800704cf/"><u>Rectifying Windows 10/11 Store Error: Code 0X800704CF</u></a></li>
-<li><a href="https://blog-min.techidaily.com/spread-the-word-free-video-sharing-solution-for-ios-users-transform-and-post-clips-on-youtube-effortlessly/"><u>Spread the Word! Free Video Sharing Solution for iOS Users - Transform & Post Clips on YouTube Effortlessly</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/trasformare-file-mod-in-formati-multimediali-compatibili-gratuitamente-con-movavi/"><u>Trasformare File .MOD in Formati Multimediali Compatibili Gratuitamente Con Movavi</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-big-sur-basics-system-and-hardware-checklist/"><u>[New] 2024 Approved Big Sur Basics System & Hardware Checklist</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-seamless-clip-recording-solutions/"><u>[New] 2024 Approved Seamless Clip Recording Solutions</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-next-era-cinema-vrs-role-in-entertainment-for-2024/"><u>[New] Next Era Cinema VR's Role in Entertainment for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-ranked-10-best-low-cost-user-friendly-passport-photo-services/"><u>[New] Ranked 10 Best Low-Cost, User-Friendly Passport Photo Services</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-crafting-illusions-the-art-of-time-and-space-manipulation/"><u>[Updated] 2024 Approved Crafting Illusions The Art of Time & Space Manipulation</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-ion-air-pro-3-visionary-revolutionizing-action-video/"><u>[Updated] 2024 Approved ION Air Pro 3 Visionary - Revolutionizing Action Video</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-peering-into-the-pinnacle-of-4k-monitoring-with-lgs-ultrafine-display/"><u>[Updated] Peering Into the Pinnacle of 4K Monitoring with LG’s UltraFine Display</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/6-simple-steps-to-sidestep-gpt-dialogue-dangers/"><u>6 Simple Steps to Sidestep GPT Dialogue Dangers</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-process-system-isnt-responding-error-on-vivo-y36-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Process System Isnt Responding Error on Vivo Y36 | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-cutting-edge-android-imagery-tweaker/"><u>In 2024, Cutting-Edge Android Imagery Tweaker</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-samsung-galaxy-f15-5g-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Samsung Galaxy F15 5G</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-simplified-recording-of-your-skype-chats-with-pc-and-mac/"><u>In 2024, Simplified Recording of Your Skype Chats with PC & Mac</u></a></li>
+<li><a href="https://fox-info.techidaily.com/navigating-through-samsungs-digital-picture-editing-app/"><u>Navigating Through Samsung's Digital Picture Editing App</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/proven-remedies-to-enhance-your-instagram-videography/"><u>Proven Remedies to Enhance Your Instagram Videography</u></a></li>
+<li><a href="https://win-superb.techidaily.com/simple-steps-to-retrieve-files-from-an-unresponsive-external-hdd/"><u>Simple Steps to Retrieve Files From an Unresponsive External HDD</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-essential-wmp-routine-for-cds-ripping-and-batch-processing/"><u>The Essential WMP Routine for CDs Ripping & Batch Processing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581073381-unlock-language-skills-buy-now-save-big/"><u>Unlock Language Skills - Buy Now, Save Big</u></a></li>
 </ul></div>
 

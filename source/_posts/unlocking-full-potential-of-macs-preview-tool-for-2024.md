@@ -1,7 +1,7 @@
 ---
 title: "Unlocking Full Potential of Mac's Preview Tool for 2024"
-date: 2024-08-28T07:47:56.801Z
-updated: 2024-08-29T07:47:56.801Z
+date: 2024-12-21T17:41:54.140Z
+updated: 2024-12-28T05:32:25.179Z
 tags: 
   - screen-recording
   - ai video
@@ -50,9 +50,6 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -84,8 +81,9 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -115,8 +113,9 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Remove Background in Preview
 
 As it is with some of the advanced image manipulation programs, even the **Preview app** allows you to remove background from a photo, and that too pretty easily. To get this done:
@@ -134,8 +133,9 @@ Once the background portion of the image gets selected (colored in red), without
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Combine Images into One
 
 This process is generally used to place an object present in one image over the background of the other photo. A good example could be to place a picture of a fish on to a second photo that has a sea or river. The **Preview app** lets you do this easily using the following steps:
@@ -153,8 +153,9 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Save Images in Different Formats
 
 The **Preview app** has a built-in image converter as well. To convert an image to a different format with Preview, you must:
@@ -167,9 +168,6 @@ After opening an image, click **File** from the menu bar at the top, and click *
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ### Part 2: FAQs About Preview App on Mac
 
 #### What is the Preview App?
@@ -204,6 +202,10 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -227,4 +229,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-expert-advice-on-logging-google-voice-chats-for-2024/"><u>[New] Expert Advice on Logging Google Voice Chats for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-immersive-video-warfare-samsung-vs-lg-cam-clash-for-2024/"><u>[New] Immersive Video Warfare Samsung VS LG Cam Clash for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-nba-live-your-ultimate-guide-to-15-streaming-methods/"><u>[New] In 2024, NBA Live Your Ultimate Guide to 15 Streaming Methods</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-the-complete-guide-to-cd-conversion-and-burning-with-wmp/"><u>[Updated] 2024 Approved The Complete Guide to CD Conversion & Burning with WMP</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-how-to-retrieve-flawless-copyright-free-images/"><u>[Updated] In 2024, How to Retrieve Flawless, Copyright-Free Images</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-mastering-the-art-of-joining-youtube-clips/"><u>[Updated] In 2024, Mastering the Art of Joining YouTube Clips</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-photo-perfection-highest-rated-phone-tripods-for-2024/"><u>[Updated] Photo Perfection Highest Rated Phone Tripods for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-subtle-symmetry-balancing-visuals-like-a-pro/"><u>[Updated] Subtle Symmetry Balancing Visuals Like a Pro</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-xiaomi-redmi-k70-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Xiaomi Redmi K70? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/exemplary-execution-using-apple-watch-to-open-mac/"><u>Exemplary Execution Using Apple Watch to Open Mac</u></a></li>
+<li><a href="https://driver-error.techidaily.com/1721104168643-fixing-bluetooth-disconnect-in-windows-11-quick-guide-solution-found/"><u>Fixing Bluetooth Disconnect in Windows 11 (Quick Guide) - Solution Found!</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-the-latest-thrustmaster-t300-gamepad-drivers-for-windows-1011-systems/"><u>Get the Latest Thrustmaster T300 Gamepad Drivers for Windows 10/11 Systems</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-can-we-bypass-tecno-camon-20-frp-by-drfone-android/"><u>How Can We Bypass Tecno Camon 20 FRP?</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/innovative-visionary-tech-from-apple-enables-hands-free-iphone-and-ipad-control-through-eye-movements/"><u>Innovative Visionary Tech From Apple Enables Hands-Free iPhone and iPad Control Through Eye Movements</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-sound-sleuths-exceptional-music-detection-software-to-uncover-your-favorite-tunes-on-android/"><u>Updated Sound Sleuths Exceptional Music Detection Software to Uncover Your Favorite Tunes on Android</u></a></li>
+<li><a href="https://fox-info.techidaily.com/virtual-reality-and-panoramic-videos-key-distinctions/"><u>Virtual Reality & Panoramic Videos Key Distinctions</u></a></li>
+</ul></div>
 

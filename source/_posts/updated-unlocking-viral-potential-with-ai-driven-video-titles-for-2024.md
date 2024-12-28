@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unlocking Viral Potential with AI-Driven Video Titles for 2024\""
-date: 2024-08-28T07:42:11.427Z
-updated: 2024-08-29T07:42:11.427Z
+date: 2024-12-24T03:49:43.188Z
+updated: 2024-12-27T22:47:11.779Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,10 @@ Users of YouTube have the option to watch and share videos as well as see and su
 
 When someone views your video in the search results, they will determine whether or not to watch based on the thumbnail and title. Although it may seem easy, creating a YouTube video title is difficult; that is why we have compiled a list of the 4 Best YouTube Title Generators. This step-by-step tutorial for beginners will show you how to boost your YouTube SEO.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. [Weshare.Net Title Generator](https://www.weshare.net/youtube-title-generator/)
 
 The YouTube Name Generating and YouTube Video Description Generator are just two examples of the many generator tools that Weshare provides that are especially made for creating YouTube content. The fact that this tool is user-friendly is its most crucial feature. You don't need to invest a lot of money on the website or the tools to make your own tags. Additionally, it offers you several benefits including rank trackers, keyword tools, and channel audits. That's fantastic since it means you can do all of this with just one tool.
@@ -45,6 +49,10 @@ Visit the official weshare.net website by clicking the link Weshare.net. You wil
 
 ![visit weshare net official](https://images.wondershare.com/filmora/article-images/2022/07/visit-weshare-net-official.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step2 Search for Key Word
 
 In the next step, insert your niche key words within the text box as shown here. You can add two or more words that will depict the crux of your YouTube video. In this way, the search will give you the best relevant title names.
@@ -56,6 +64,10 @@ In the next step, insert your niche key words within the text box as shown here.
 After that, hit the Generate button to proceed. This will open up the list of YouTube titles that would be relevant to your key words. Select the one and use it for your YouTube video.
 
 ![generate video title weshare](https://images.wondershare.com/filmora/article-images/2022/07/generate-video-title-weshare.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. [SocialVideoPlaza](https://www.socialvideoplaza.com/)
 
@@ -87,12 +99,6 @@ Next, press the Generate button to continue. The list of YouTube videos with sui
 
 ![save title social video plaza](https://images.wondershare.com/filmora/article-images/2022/07/save-title-social-video-plaza.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. [Capitalize My Title](https://capitalizemytitle.com/)
 
 Anyone looking to examine the quality of their headlines and adhere to strict formatting guidelines can check out Capitalize My Title (i.e., City, Illinois, New York etc.) By typing in a subject or phrase, the YouTube title generator tool returns 10 potential titles. By selecting "Check Title Score," you can see how each title performed in terms of readability, SEO, and sentiment.
@@ -105,9 +111,6 @@ Visit the official website to get going. From there, you might begin creating mo
 
 ![capitalize my title website](https://images.wondershare.com/filmora/article-images/2022/07/capitalize-my-title-website.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step2 Open Title Analyzer Tool
 
 In the next step, head towards the YouTube title analyzer and get started with the process by heading to the next step.
@@ -120,18 +123,12 @@ The title of a video has to include your keyword in order to make it SEO-friendl
 
 ![capitalize my title key words](https://images.wondershare.com/filmora/article-images/2022/07/capitalize-my-title-key-words.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ##### Step4 Obtain the title
 
 An automatic title generator might be processed in a few clicks and seconds. You can come up with more than that in a short amount of time rather than wasting hours on brainstorming webinar names. Based on the SEO score, get your title in lieu of your niche as shown below:
 
 ![obtain title capitalize my title](https://images.wondershare.com/filmora/article-images/2022/07/obtain-title-capitalize-my-title.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. [SmartWriter](https://www.smartwriter.ai/)
 
 A tool called SmartWriter offers AI-generated customized message services, as well as services for creating YouTube titles. You must first register for a SmartWriter account before using the YouTube Title Generator. Following that, you will input the keyword and video subject details and get a list of potential title alternatives. The title generator function is quite simple to use, and you may get a lot of assistance from the website and other websites online.
@@ -150,18 +147,12 @@ Now, head towards the YouTube title generator as SmartWriter offers a wide varie
 
 ![smart writer youtube title](https://images.wondershare.com/filmora/article-images/2022/07/smart-writer-youtube-title.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step3 Utilize your Key Words
 
 In order to make a video SEO-friendly, the title must include your keyword. But not every phrase you choose will lead to a superb outcome. Using title generators to come up with clever names may help you save a ton of time. Enter your target word, choose your preferred language and area, and then click Generate.
 
 ![youtube title generator smart writer](https://images.wondershare.com/filmora/article-images/2022/07/youtube-title-generator-smart-writer.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step4 Get your Title
 
 In a few clicks and seconds, this title generator processes the selected one. Instead of spending hours coming up with webinar names, you can get more than that in only a few minutes.
@@ -181,6 +172,10 @@ In a few clicks and seconds, this title generator processes the selected one. In
 **Include Numbers When Needed:** The likelihood that someone will interact with material given in a numerical format is higher. Therefore, it's crucial to incorporate numbers in your titles if you want people to click on them. It may be useful to include numbers in headlines when it makes sense to do so. This is based on a time-tested marketing principle that still holds true today.
 
 **Add Relevant Words:** Your video's title should briefly describe its subject matter. When people click on videos that don't live up to their expectations, they feel irate and irritated. They make a mental note to stop watching more of your films as they swiftly leave to find a more suitable video. As soon as Google and YouTube become aware of this conduct, your videos start to fall in the ranks.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -206,9 +201,6 @@ Visit the official weshare.net website by clicking the link Weshare.net. You wil
 
 ![visit weshare net official](https://images.wondershare.com/filmora/article-images/2022/07/visit-weshare-net-official.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ##### Step2 Search for Key Word
 
 In the next step, insert your niche key words within the text box as shown here. You can add two or more words that will depict the crux of your YouTube video. In this way, the search will give you the best relevant title names.
@@ -216,8 +208,9 @@ In the next step, insert your niche key words within the text box as shown here.
 ![weshare video title generator](https://images.wondershare.com/filmora/article-images/2022/07/weshare-video-title-generator.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##### Step3 Get the Title
 
 After that, hit the Generate button to proceed. This will open up the list of YouTube titles that would be relevant to your key words. Select the one and use it for your YouTube video.
@@ -236,9 +229,6 @@ By clicking the link SocialVideoPlaza, you may access the official weshare.net w
 
 ![social video plaza](https://images.wondershare.com/filmora/article-images/2022/07/social-video-plaza.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step2 Find a Key Word
 
 Now, enter your niche's key words in the text box given in the next step. Add two or more words to describe the main idea of your YouTube video. The finest applicable title names will be returned by the search in this manner.
@@ -251,6 +241,10 @@ You may be able to save a ton of time by using title generators to come up with 
 
 ![insert key word social video plaza](https://images.wondershare.com/filmora/article-images/2022/07/insert-key-word-social-video-plaza.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step4 Save the Title
 
 Next, press the Generate button to continue. The list of YouTube videos with suitable keywords will then be shown. Choose one, then apply it to your YouTube video.
@@ -258,11 +252,9 @@ Next, press the Generate button to continue. The list of YouTube videos with sui
 ![save title social video plaza](https://images.wondershare.com/filmora/article-images/2022/07/save-title-social-video-plaza.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
+
 ### 3\. [Capitalize My Title](https://capitalizemytitle.com/)
 
 Anyone looking to examine the quality of their headlines and adhere to strict formatting guidelines can check out Capitalize My Title (i.e., City, Illinois, New York etc.) By typing in a subject or phrase, the YouTube title generator tool returns 10 potential titles. By selecting "Check Title Score," you can see how each title performed in terms of readability, SEO, and sentiment.
@@ -281,27 +273,22 @@ In the next step, head towards the YouTube title analyzer and get started with t
 
 ![open title analyzer tool](https://images.wondershare.com/filmora/article-images/2022/07/open-title-analyzer-tool.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step3 Use Key Words
 
 The title of a video has to include your keyword in order to make it SEO-friendly. However, not every word you use will result in a successful conclusion.
 
 ![capitalize my title key words](https://images.wondershare.com/filmora/article-images/2022/07/capitalize-my-title-key-words.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step4 Obtain the title
 
 An automatic title generator might be processed in a few clicks and seconds. You can come up with more than that in a short amount of time rather than wasting hours on brainstorming webinar names. Based on the SEO score, get your title in lieu of your niche as shown below:
 
 ![obtain title capitalize my title](https://images.wondershare.com/filmora/article-images/2022/07/obtain-title-capitalize-my-title.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. [SmartWriter](https://www.smartwriter.ai/)
 
 A tool called SmartWriter offers AI-generated customized message services, as well as services for creating YouTube titles. You must first register for a SmartWriter account before using the YouTube Title Generator. Following that, you will input the keyword and video subject details and get a list of potential title alternatives. The title generator function is quite simple to use, and you may get a lot of assistance from the website and other websites online.
@@ -327,19 +314,13 @@ In order to make a video SEO-friendly, the title must include your keyword. But 
 ![youtube title generator smart writer](https://images.wondershare.com/filmora/article-images/2022/07/youtube-title-generator-smart-writer.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##### Step4 Get your Title
 
 In a few clicks and seconds, this title generator processes the selected one. Instead of spending hours coming up with webinar names, you can get more than that in only a few minutes.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ## Part 2\. Bonus Tips for YouTube Video Titles
 
 **Utilize Keywords:** Make sure your video title includes important SEO ranking variables since keywords YouTube video results mainly depend on SEO. The SEO keywords you want to rank for should be included in the perfect video names. To find relevant, easily ranked keywords, use a keyword research tool. Additionally, it is best to use competitive but highly searched keywords. Since YouTube is owned by Google, the search engine's ranking formulas are largely the same.
@@ -355,6 +336,10 @@ No advertising on the website.
 **Include Numbers When Needed:** The likelihood that someone will interact with material given in a numerical format is higher. Therefore, it's crucial to incorporate numbers in your titles if you want people to click on them. It may be useful to include numbers in headlines when it makes sense to do so. This is based on a time-tested marketing principle that still holds true today.
 
 **Add Relevant Words:** Your video's title should briefly describe its subject matter. When people click on videos that don't live up to their expectations, they feel irate and irritated. They make a mental note to stop watching more of your films as they swiftly leave to find a more suitable video. As soon as Google and YouTube become aware of this conduct, your videos start to fall in the ranks.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -386,4 +371,16 @@ It is crucial to invest work into producing attention-grabbing titles for your Y
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-types-and-designations-in-ua-world/"><u>[Updated] 2024 Approved Types & Designations in UA World</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-comprehensive-audfreexpress-assessment-users/"><u>[Updated] The Comprehensive AudFreeXpress Assessment Users</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-ultimate-guide-to-7-superior-video-players-on-mac/"><u>[Updated] Ultimate Guide to 7 Superior Video Players on Mac</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/crafting-consumer-connection-reimagining-receiving-for-2024/"><u>Crafting Consumer Connection Reimagining Receiving for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-perfect-your-videos-captions-with-10plus-top-free-converters/"><u>In 2024, Perfect Your Videos' Captions with 10+ Top FREE Converters</u></a></li>
+<li><a href="https://fox-info.techidaily.com/optimizing-mac-ipad-iphone-browsing-via-pip-for-2024/"><u>Optimizing Mac, iPad, iPhone Browsing via PIP for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210685486-9781644116869-tales-and-legends-of-the-devil/"><u>Tales and Legends of the Devil | Free Book</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-honor-magic-6-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Honor Magic 6 Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-6-ways-to-transfer-text-messages-from-motorola-moto-g73-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 6 Ways to Transfer Text Messages from Motorola Moto G73 5G to Other Android Devices | Dr.fone</u></a></li>
+</ul></div>
 

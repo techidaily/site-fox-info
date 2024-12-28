@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Tips for Adding Personalized Audio Effects to Windows 10 Photos\""
-date: 2024-08-23T03:55:49.701Z
-updated: 2024-08-24T03:55:49.701Z
+date: 2024-12-23T21:54:01.501Z
+updated: 2024-12-28T01:12:13.674Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,10 @@ Having Windows 10 Photos app is an advantage for you. This is not like any other
 
 **You may also like:** [How to Trim Video in Windows 10 Photos Easily >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to add filters on Windows 10 Photos App
 
 If you have got Windows 10 Photos app and wish to add filters, though, it is by default a photo viewing app, its editing features are worth to mention. This step by step guide is your perfect savior in that case.
@@ -51,6 +55,10 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5**: Just select one you like. Preview it and then click Done.
 
 ## Part 2: How to add music on Windows 10 Photos App
@@ -65,25 +73,30 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5**: Hit the ‘Done’ button.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -107,4 +120,22 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-comprehensive-guide-to-perfecting-facetime-call-screen-captures/"><u>[New] In 2024, Comprehensive Guide to Perfecting FaceTime Call Screen Captures</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-instantize-dynamic-images-in-photoshop/"><u>[New] In 2024, Instantize Dynamic Images in Photoshop</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-pros-picks-5-best-low-frame-rate-recorders/"><u>[New] In 2024, Pros' Picks 5 Best Low Frame Rate Recorders</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-subtitles-revolution-srt-to-sub-upgrade/"><u>[New] Subtitles Revolution SRT to SUB Upgrade</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-digital-artistry-stripping-background-in-photos-simplified/"><u>[Updated] 2024 Approved Digital Artistry Stripping Background in Photos Simplified</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-ideal-timer-solutions-for-your-special-day-on-androidios/"><u>[Updated] Ideal Timer Solutions for Your Special Day on Android/iOS</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-panoramic-storytelling-simplified-top-9-tips-for-filmmakers-for-2024/"><u>[Updated] Panoramic Storytelling Simplified Top 9 Tips for Filmmakers for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-simplify-your-tech-life-capture-and-store-youtube-streaming-effortlessly-for-2024/"><u>[Updated] Simplify Your Tech Life Capture and Store YouTube Streaming Effortlessly for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-voice-over-advantage-elevating-video-quality/"><u>[Updated] The Voice-Over Advantage Elevating Video Quality</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-podcasts-vs-youtube-making-an-informed-media-decision/"><u>2024 Approved Podcasts Vs. YouTube Making an Informed Media Decision</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/crucial-top-5-compact-action-recorder-recommendations/"><u>Crucial Top 5 Compact Action Recorder Recommendations</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-srt-conversion-made-easy-a-step-by-step-approach/"><u>In 2024, SRT Conversion Made Easy A Step-by-Step Approach</u></a></li>
+<li><a href="https://fox-info.techidaily.com/mobile-entertainment-made-easy-download-funimate-apk-for-2024/"><u>Mobile Entertainment Made Easy Download Funimate APK for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-mac-quicktime-video-editing-101-tips-and-tricks-for-2024/"><u>New Mac QuickTime Video Editing 101 Tips and Tricks for 2024</u></a></li>
+<li><a href="https://win-online.techidaily.com/top-12-utahanuti-pokryvek-pro-chromium-podkladovy-filmova-nahravka/"><u>Top 12 Utahanutí Pokrývek Pro Chromium-Podkladový Filmová Nahrávka</u></a></li>
+</ul></div>
 

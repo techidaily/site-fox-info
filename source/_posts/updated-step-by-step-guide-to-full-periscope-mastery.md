@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step Guide to Full Periscope Mastery\""
-date: 2024-08-28T07:47:25.489Z
-updated: 2024-08-29T07:47:25.489Z
+date: 2024-12-21T18:44:46.622Z
+updated: 2024-12-27T19:08:33.289Z
 tags: 
   - screen-recording
   - ai video
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641
 
  Mar 27, 2024• Proven solutions
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Knowing the functions and settings
 
  Periscope is a Twitter special application for live streaming needs and the best part is it works on mobile platforms. Viewers can add comments on videos and they can also forward “hearts” to streamers as a token of appreciation for their impressive work. The app is actually very interaction with four major tabs:
@@ -38,17 +42,33 @@ thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641
 
 ![use-periscope-1 ](https://images.wondershare.com/filmora/article-images/use-periscope-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  2\. **The second tab** on application is used to display list of public broadcasts on global level and users are free to join all of them. They are developed on the basis of your geographical location.
 
 ![use-periscope-2 ](https://images.wondershare.com/filmora/article-images/use-periscope-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  3\. **The third tab** again contains the information about list of live public broadcasts in list format.
 
 ![use-periscope-3 ](https://images.wondershare.com/filmora/article-images/use-periscope-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  4\. **The fourth tab** is designed to assist users with easy search for followers. It also displays settings for your own profile and allows users to make basic adjustments for followers.
 
 ![use-periscope-4 ](https://images.wondershare.com/filmora/article-images/use-periscope-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to watch Periscope Video?
 
@@ -64,9 +84,6 @@ thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641
 
 ![use-periscope-5 ](https://images.wondershare.com/filmora/article-images/use-periscope-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Broadcast on Periscope?
 
  As per the default setting, broadcasts stay public that means anyone can watch what you have uploaded. But in case if you want to prioritize your audience then Periscope application offers easy personalization. Use private broadcast feature to invite selected audience on your broadcasts. This broadcast setting icon is actually a small camera like shape that can be used from first as well as second tab easily.
@@ -75,30 +92,14 @@ thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641
 
 ![use-periscope-6 ](https://images.wondershare.com/filmora/article-images/use-periscope-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
  Now you are at broadcast screen where you have to enter name or title of your broadcast event. Users can adjust their location preferences while converting broadcasts from private to public or vice versa view. Adjust the chat options and finally you will reach at your Twitter link. If you want to capture feeds from webcam then it can be switched easily by simply double tapping on device screen. Once all these controls have been adjusted then your app provides an event summery, you can approve it or edit before making your post live. It will also provide you details about how many hearts you have received from viewers.
 
 ![use-periscope-7 ](https://images.wondershare.com/filmora/article-images/use-periscope-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
  Once your broadcast becomes live then it will stay online for next 24 hours and all viewers and followers will be able to replay, watch as well as share the information with other users. The collection of hearts as viewer’s response may go on.
 
 ![use-periscope-8 ](https://images.wondershare.com/filmora/article-images/use-periscope-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Tips to get more followers or viewers on Periscope
 
  There is no doubt to say that Periscope is a wonderful tool if you want to make your career as a live streaming and want to grow size of your followers fast. Below are few important tips to gain more followers/viewers on Periscope:
@@ -119,9 +120,6 @@ No advertising on the website.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -145,4 +143,22 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-innovative-digital-editing-software-without-cost/"><u>[New] 2024 Approved Innovative Digital Editing Software Without Cost</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-elevating-the-chilly-selecting-five-warm-video-backgrounds/"><u>[New] Elevating the Chilly Selecting Five Warm Video Backgrounds</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-financial-arrangements-in-buying-guides-online/"><u>[New] Financial Arrangements in Buying Guides Online?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-gamers-signature-look-essential-template-tips-for-channels/"><u>[New] In 2024, Gamers' Signature Look Essential Template Tips for Channels</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-pictorial-insight-mastery-of-vsco-tools/"><u>[New] In 2024, Pictorial Insight Mastery of VSCO Tools</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-top-5-essential-mac-live-streaming-apps/"><u>[New] In 2024, Top 5 Essential Mac Live Streaming Apps</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-glowing-with-hd-does-it-serve-the-scope-of-hdr-well/"><u>[Updated] 2024 Approved Glowing with HD Does It Serve the Scope of HDR Well?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-optimal-settings-for-watching-nba-live-streams/"><u>[Updated] 2024 Approved Optimal Settings for Watching NBA LIVE STREAMs</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-thorough-examination-of-dji-inspire-1/"><u>[Updated] Thorough Examination of DJI Inspire 1</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-honor-x7b-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1724766284588-mac/"><u>限定無料 Mac 使いやすい最新アプリで大人気ソフトウェア獲得 - クリスマス特別キャンペーン!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/can-antique-dvd-discs-hold-value-discover-creative-uses-for-your-obsolete-video-library/"><u>Can Antique DVD Discs Hold Value? Discover Creative Uses for Your Obsolete Video Library</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/iphone-ready-video-transformation-a-step-by-easy-guide-for-free-conversion-tools/"><u>IPhone-Ready Video Transformation: A Step-by-Easy Guide for Free Conversion Tools</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/reviving-stalled-audio-channels-proven-fixes-for-streaming-issues/"><u>Reviving Stalled Audio Channels: Proven Fixes for Streaming Issues</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-basics-of-picture-in-picture-in-ff/"><u>The Basics of Picture-in-Picture in FF</u></a></li>
+</ul></div>
 

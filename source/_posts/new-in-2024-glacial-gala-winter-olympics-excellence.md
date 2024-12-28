@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Glacial Gala  Winter Olympics Excellence\""
-date: 2024-12-15T16:05:50.659Z
-updated: 2024-12-22T16:08:09.118Z
+date: 2024-12-24T19:44:17.218Z
+updated: 2024-12-27T23:55:15.012Z
 tags: 
   - screen-recording
   - ai video
@@ -27,14 +27,10 @@ The grand opening ceremony was held on 4th February and the grand closing will b
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Lindsey Jacobellis Gives US Its First Beijing Olympics Gold
@@ -53,17 +49,21 @@ Nathan Chen of the United States set a world-record score in men's figure skatin
 
 Chen won the gold medal in men's figure skating with a combined score of 332.60 in the short program and free skate competitions. The defending champion Yuzuru Hanyu was not even in the top three and did not manage to win any medal which is naturally a major disappointment. On the contrary, Chen was elated and said that his performance is close to his best and that we could see even better performance going ahead.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Nina O'Brien Suffered a Terrifying Crash
 
 Injuries are part of sports events but some injuries are gruesome and are results of terrifying crashes. Team USA alpine racer Nina O'Brien was the victim of a terrifying crash this year at Winter Olympics. During her second run at the women's giant slalom event, she suffered a gruesome leg injury.
 
 ![nina obrien](https://images.wondershare.com/filmora/article-images/nina-obrien-suffered-a-terrifying-crash.jpg)
 
-She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
 
 ## 4\. US-Born Eileen Gu Wins Gold for China
 
@@ -71,11 +71,11 @@ Born in America, Eileen Gu represented China at Winter Olympics and managed to w
 
 ![eileen gu wins gold](https://images.wondershare.com/filmora/article-images/us-born-eileen-gu-wins-gold-for-china.jpg)
 
-Eileen Gu's father is American while her mother is Chinese and she belongs to San Francisco. Yet, she represented China in the Winter Olympics which has sparked controversies. She has been representing China since 2019\. She wishes to represent China going forward and she has become a fan favorite in China.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Eileen Gu's father is American while her mother is Chinese and she belongs to San Francisco. Yet, she represented China in the Winter Olympics which has sparked controversies. She has been representing China since 2019\. She wishes to represent China going forward and she has become a fan favorite in China.
 
 ## 5\. Van der Poel Breaks the World Record
 
@@ -85,15 +85,15 @@ Nil Van der Poel broke his own record to win the Olympic gold medal. The 25-year
 
 Following the victory, he stated that he was sure to win the gold with eight laps remaining. However, he went not just for the gold but the world record with the remaining four laps. Patrick Roest from the Netherlands won the silver and the third spot went to Davide Ghittio of Italy.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Yan Wengang Wins China's First Medal in Sliding Sport
 
 Yan Wengang becomes the first medalist from China in a sliding sport. In a four-run total time of 4:01.77, he secured himself a bronze medal. The gold and silver went to Christopher Grotheer and Alex Jung of Germany. With the victory of Wengwang, there was a good feat for China as the nation sent its first skeleton athlete to the Olympics only 4 years ago.
 
 ![yan wen gang](https://images.wondershare.com/filmora/article-images/yan-wen-gang.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The competitiveness of Wengwang has made him the first medalist for China in men's skeleton. The 24-year-old Tianjin native was happy as well as disappointed after the competition. With a fighting spirit, he gave everything he had in the last heat. His victory makes only the second time when a non-North American or non-European stood on the Olympic podium for skeleton.
 
@@ -103,6 +103,10 @@ The competitiveness of Wengwang has made him the first medalist for China in men
 
 ![chloe kim](https://images.wondershare.com/filmora/article-images/chloe-kim.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 With the triumph, she joins Shaun White to be the only snowboarders to successfully defend their Olympic title. Following the victory, she was overwhelmed and emotional. Despite having the worst practice before the final, Kim went on to create history.
 
 ## 8\. Ukrainian Athlete Shows ‘No War' Sign During Skeleton Event
@@ -110,10 +114,6 @@ With the triumph, she joins Shaun White to be the only snowboarders to successfu
 We are all aware of the tensions between Ukraine and Russia are at their peak and there are many experts who believe the countries are on the verge of declaring war. Even though The Winter Olympics should have ideally been an apolitical event, Ukrainian skeleton athlete Vladyslav Heraskevych flashed a sign that read “No War in Ukraine” to spark a political controversy.
 
 ![ukrainian athlete](https://images.wondershare.com/filmora/article-images/ukrainian-athlete.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
 
@@ -125,15 +125,15 @@ US skater Vincent Zhou has tested positive for coronavirus and therefore, he is 
 
 Zhou is considering the silver win as a consolation prize but he could not showcase his brilliance at the singles competitions. However, he said that he would prepare for the Winter Olympics in Milan and make a bigger comeback the world has not seen yet.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 10\. Russian Figure Skater Tests Positive for Banned Substance
 
 Doping scandals have become a part of the Olympics and this year is no different. According to International Testing Agency, Russian skater Kamila Valieva failed the doping test. On further examination, she tested positive for a performance-enhancing banned substance. She was told that she could not train, compete and participate during the Olympic Winter Games.
 
 ![russian figure skater](https://images.wondershare.com/filmora/article-images/russian-figure-skater.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 However, due to some miscommunication, she was allowed to be a participant in the team figure skating competition. She led the team to win gold but the medal is yet to be awarded due to the big confusion regarding the timeline of her drug test, suspension order, and miscommunication. The issue has become a controversial Beijing winter Olympics highlights.
 
@@ -156,17 +156,20 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-photoframe-prospectus-essential-list-of-software-sites-and-tools/"><u>[New] In 2024, Photoframe Prospectus Essential List of Software Sites & Tools</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-virtual-realm-rigging-for-vr/"><u>[Updated] 2024 Approved Virtual Realm Rigging for VR</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-strategize-execute-inspire-the-ultimate-guide-to-instagram-marketing/"><u>[Updated] In 2024, Strategize, Execute, Inspire The Ultimate Guide to Instagram Marketing</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-discovering-elite-camera-operators-best-practices/"><u>2024 Approved Discovering Elite Camera Operators' Best Practices</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-effortlessly-integrate-your-apple-podcasts-collection/"><u>2024 Approved Effortlessly Integrate Your Apple Podcasts Collection</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-live-methods-for-quieter-track-output/"><u>2024 Approved Live Methods for Quieter Track Output</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-unleash-creativity-in-videos-with-quick-trims-on-windows-11/"><u>2024 Approved Unleash Creativity in Videos with Quick Trims on Windows 11</u></a></li>
-<li><a href="https://fox-info.techidaily.com/become-a-communication-connoisseur-with-these-hidden-whatsapp-techniques/"><u>Become a Communication Connoisseur with These Hidden WhatsApp Techniques</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-vivo-y100t-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Vivo Y100t Is Unlocked</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-full-scale-of-precision-a-review-of-asus-pa32us-capabilities/"><u>In 2024, The Full Scale of Precision A Review of Asus PA32U's Capabilities</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1723002201575-quick-remedy-for-origin-crash-error-effortless-troubleshooting-guide-inside/"><u>Quick Remedy for Origin Crash Error – Effortless Troubleshooting Guide Inside!</u></a></li>
-<li><a href="https://win-answers.techidaily.com/winning-against-common-errors-why-civilization-6-wont-start-on-windows-10/"><u>Winning Against Common Errors: Why Civilization 6 Won't Start on Windows 10?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-audio-layers-for-professional-videography-premiere-pro-edition/"><u>[New] Audio Layers for Professional Videography Premiere Pro Edition</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ecoding-the-mysteries-of-effective-youtube-keywords/"><u>[New] Decoding the Mysteries of Effective YouTube Keywords</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-elevating-your-4k-entertainment-tvs-vs-projection-technology/"><u>[New] Elevating Your 4K Entertainment TVs vs Projection Technology</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-adventure-in-sync-reviewing-the-panasonic-hx-a1-cam-for-2024/"><u>[Updated] Adventure in Sync Reviewing the Panasonic HX-A1 Cam for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-unlocking-digital-expression-the-joy-of-creating-metaverse-memes/"><u>[Updated] In 2024, Unlocking Digital Expression The Joy of Creating Metaverse Memes</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-using-big-data-techniques-to-revolutionize-market-research-insights/"><u>[Updated] In 2024, Using Big Data Techniques to Revolutionize Market Research Insights</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-mastering-minecraft-the-best-practices-to-record-gameplay/"><u>[Updated] Mastering Minecraft The Best Practices to Record Gameplay</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-minimca-houses-best-abode-guides-for-new-players/"><u>[Updated] MiniMCA Houses Best Abode Guides for New Players</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-thrilling-adventures-captured-pro-hero5-and-super-sj7-for-2024/"><u>[Updated] Thrilling Adventures Captured Pro Hero5 & Super SJ7 for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-oppo-a18-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Oppo A18 to Roku | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/high-ranking-12-cameras-onboard-gps-for-motion-capture-for-2024/"><u>High-Ranking 12 Cameras Onboard GPS for Motion Capture for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-poco-x5-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Poco X5? | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-turning-talk-into-top-tier-podcasts-writing-and-samples-included/"><u>In 2024, Turning Talk Into Top-Tier Podcasts Writing & Samples Included</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/reacting-to-self-viewer-errors-on-popular-social-networks/"><u>Reacting to Self-Viewer Errors on Popular Social Networks</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-lenovo-wi-fi-connection-failures-due-to-driver-problems/"><u>Troubleshooting Lenovo Wi-Fi Connection Failures Due to Driver Problems</u></a></li>
 </ul></div>
 

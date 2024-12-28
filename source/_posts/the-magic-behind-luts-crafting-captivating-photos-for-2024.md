@@ -1,7 +1,7 @@
 ---
 title: "\"The Magic Behind LUTs  Crafting Captivating Photos for 2024\""
-date: 2024-12-18T16:03:58.364Z
-updated: 2024-12-22T16:03:30.924Z
+date: 2024-12-26T17:25:22.967Z
+updated: 2024-12-27T19:09:35.440Z
 tags: 
   - screen-recording
   - ai video
@@ -44,7 +44,7 @@ LUTs also aid in the organization of your post-production processes. You must kn
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How will LUTs change your photography?
@@ -60,7 +60,7 @@ Warm or cold tones and bold or washed-out styles are all options provided by the
 Photographers may now utilize the same techniques that film, and television editors have used for years to achieve the excellent new aesthetics seen in blockbusters. With quick LUT looks, you can now apply LUTs to your photographs to make your editing work stand out.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to use LUTs using Photoshop CC?
@@ -71,6 +71,10 @@ LUTs come pre-installed with programs, but you may also purchase them online and
 
 ![how to use luts using Photoshop cc](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Choose Adjustment Layer
 
 1. Opt for Color Lookup.
@@ -80,7 +84,7 @@ Choose Adjustment Layer
 ![how to use luts using Photoshop cc - load 3d lut](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-2.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 load 3d lut
@@ -98,10 +102,6 @@ LUTs come pre-installed in Photoshop, and you can use them as adjustment layers.
 3. To do so, go to the 'Adjustments' tab and select the 'Color Lookup' button.
 4. Select the 'Load 3D LUT' button, then navigate to the directory where you unpacked the LUT files.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Here's the second one
 
 1. Open the LUT folder, which changes the version to your version.
@@ -118,10 +118,6 @@ Grow Together
 
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Closing Thoughts:
 
 LUTs are extremely useful since they allow photographers to save time by using the same LUTs or a set of LUTs for several photographs. Instead of making individual modifications to your photographs, you may color grade them all with the same LUTs. This gives a series a more unified vibe. You can even put them up as Actions in Photoshop.
@@ -131,6 +127,10 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](#)
 
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Closing Thoughts:
 
@@ -162,20 +162,24 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-unveiling-secrets-to-amazing-photo-collages-for-2024/"><u>[New] Unveiling Secrets to Amazing Photo Collages for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-essential-12-flipscreen-cam-titles-for-optimal-vlogging/"><u>[Updated] 2024 Approved Essential 12 Flipscreen Cam Titles for Optimal Vlogging</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-elite-gimbal-solutions-youtube-creators-stabilizing-allies-for-2024/"><u>[Updated] Elite Gimbal Solutions YouTube Creators' Stabilizing Allies for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-10-best-youtube-to-gif-makers-how-to-create-gif-from-youtube-video/"><u>[Updated] In 2024, 10 Best YouTube To GIF Makers How to Create GIF From YouTube Video?</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-top-dslrs-for-photo-animation-studios/"><u>[Updated] In 2024, Top DSLRs for Photo Animation Studios</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-navigating-the-free-path-of-fcp/"><u>[Updated] Navigating the Free Path of FCP</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/2024-approved-integrating-your-apple-tv-and-social-media-watch-facebook-now/"><u>2024 Approved Integrating Your Apple TV & Social Media Watch Facebook Now</u></a></li>
-<li><a href="https://article-helps.techidaily.com/galaxy-s8-review-bringing-movies-to-life-with-4k-for-2024/"><u>Galaxy S8 Review - Bringing Movies to Life with 4K for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/gmail-not-working-on-realme-c53-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Realme C53 7 Common Problems & Fixes | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-itel-a60-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Itel A60 | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-streamlining-your-video-editing-with-device-filters/"><u>In 2024, Streamlining Your Video Editing with Device Filters</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-unleash-zooms-full-potential-with-essential-3-methods/"><u>In 2024, Unleash Zoom's Full Potential with Essential 3 Methods</u></a></li>
-<li><a href="https://fox-info.techidaily.com/intense-meetings-perfect-your-screen-focus-in-msteams-for-2024/"><u>Intense Meetings Perfect Your Screen Focus in MSTEAMS for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/mastering-close-up-views-in-minecraft-for-2024/"><u>Mastering Close-Up Views in Minecraft for 2024</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/new-2024-approved-what-is-ai-voice-over-wondershare-virbo-glossary/"><u>New 2024 Approved What Is AI Voice Over? | Wondershare Virbo Glossary</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-elevate-your-online-presence-making-exceptional-facebook-reels/"><u>[New] 2024 Approved Elevate Your Online Presence Making Exceptional Facebook Reels</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-expert-tips-mixing-visual-filters-and-melodies-in-windows-10-photos/"><u>[New] 2024 Approved Expert Tips Mixing Visual Filters & Melodies in Windows 10 Photos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-upgrade-to-professionalism-the-most-advanced-9-filter-techniques-for-2024/"><u>[New] Upgrade to Professionalism The Most Advanced 9 Filter Techniques for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-craft-memes-for-comedy-using-adobe-for-2024/"><u>[Updated] Craft Memes for Comedy Using Adobe for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-from-amateurs-to-pros-mastering-mac-audio-in-audacity/"><u>[Updated] From Amateurs to Pros Mastering Mac Audio in Audacity</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-hand-tracking-insights-and-types/"><u>[Updated] Hand Tracking Insights and Types</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-pro-tips-for-time-lapping-your-samsung-camera/"><u>[Updated] In 2024, Pro Tips for Time-Lapping Your Samsung Camera</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-complete-pacera-free-audio-liberation-handbook-for-2024/"><u>[Updated] The Complete Pacera Free Audio Liberation Handbook for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/adventure-seekers-choice-black-hero5-or-star-sj7/"><u>Adventure Seekers Choice Black Hero5 or Star SJ7?</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-nubia-z50-ultra-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Nubia Z50 Ultra? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/echo-chamber-best-online-spots-for-free-skype-music/"><u>Echo Chamber Best Online Spots for Free Skype Music</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/exclusive-screen-time-delight-with-these-top-offline-games-for-2024/"><u>Exclusive Screen Time Delight with These Top Offline Games for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-use-special-features-virtual-location-on-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Sony Xperia 5 V? | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-exploring-dynamic-range-in-photos-auto-hdr-and-smart-hdr-modules/"><u>In 2024, Exploring Dynamic Range in Photos Auto HDR and Smart HDR Modules</u></a></li>
+<li><a href="https://fox-info.techidaily.com/mastering-the-art-of-insight-discovering-your-off-facebook-activities-for-2024/"><u>Mastering the Art of Insight Discovering Your Off-Facebook Activities for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/powerful-lenovo-laptop-surprises-with-unmatched-processing-speed-and-robustness-perfect-for-hardcore-users-zdnet-review/"><u>Powerful Lenovo Laptop Surprises With Unmatched Processing Speed & Robustness, Perfect for Hardcore Users [ZDNET Review]</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/topmost-replacement-for-clipgrab-discover-the-ultimate-allvidsoft-solution-for-mac-and-windows-users/"><u>Topmost Replacement for ClipGrab: Discover the Ultimate AllVidSoft Solution for Mac & Windows Users</u></a></li>
+<li><a href="https://fox-info.techidaily.com/ultimate-guide-premium-plugins-boosting-ae-projects/"><u>Ultimate Guide Premium Plugins Boosting AE Projects</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/xbox-live-breakdown-top-four-strategies-to-record-gameplay/"><u>Xbox Live Breakdown Top Four Strategies to Record Gameplay</u></a></li>
 </ul></div>
 

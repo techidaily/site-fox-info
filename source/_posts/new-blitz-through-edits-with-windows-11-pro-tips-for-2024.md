@@ -1,7 +1,7 @@
 ---
 title: "[New] Blitz Through Edits with Windows 11 Pro Tips for 2024"
-date: 2024-08-28T07:46:08.233Z
-updated: 2024-08-29T07:46:08.233Z
+date: 2024-12-26T01:15:46.008Z
+updated: 2024-12-27T22:09:49.376Z
 tags: 
   - screen-recording
   - ai video
@@ -31,6 +31,10 @@ The Photos app in Windows 10 is one of the best and with the addition of the dra
 * [**Part1: How to Draw On Photos App in Windows 10**](#part1)
 * [**Part2: How to Draw on Photos Online**](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Draw On Photos App in Windows 10
 
 When you can add a personal touch to your videos and photos, it becomes all the way more special. Many times, it becomes essential to add a note to explain a video in a better way. Here are the steps to draw on photos in Windows 10 –
@@ -39,6 +43,10 @@ When you can add a personal touch to your videos and photos, it becomes all the 
 * Select the **Edit and Create** option and click on Draw
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/draw-on-photos-in-windows-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * You can see a Windows Ink Toolbar, select your preferred pen from the options available
 * Select the size and color of the fonts you wish to use from a range of palette
@@ -49,6 +57,10 @@ When you can add a personal touch to your videos and photos, it becomes all the 
 * You can also find an eraser tool with various sizes of erasers that allows you to erase your entire drawing or a part of it as per your choice when required
 
 When you draw on the image or video, the ink can be attached to a particular object or person within the video. As you move the camera angle or the object, the ink stays or moves along. You just need to select the anchor icon and link it to the object in the video.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Draw on Photos Online
 
@@ -67,11 +79,12 @@ Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lu
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/editing-drawings-on-windows-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * To save your drawing on the image, you must click on Apply after each action you make with the tool
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 The Photos app has an interface that is restructured with dark theme options and new drawing and editing features making it a great tool. If you want to draw on Photos in Windows 10, follow the above steps and make your actions easier. If you want to have more options to edit videos with drawing in Windows 10, why not choose [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)? You can edit your video with various drawing and text style.
@@ -79,13 +92,11 @@ The Photos app has an interface that is restructured with dark theme options and
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -109,4 +120,24 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-awesome-iphone-selfie-solutions-spot-8-now/"><u>[New] Awesome iPhone Selfie Solutions - Spot #8 Now</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-reducing-volume-stealthily-on-computers-os-x-and-windows-for-2024/"><u>[New] Reducing Volume Stealthily on Computers (OS X & Windows) for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-rotate-iphone-pics-sideways-and-upside-down-made-easy/"><u>[New] Rotate iPhone Pics Sideways & Upside Down Made Easy</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-unleash-potential-precision-zooming-for-professional-videoleap-footage/"><u>[Updated] 2024 Approved Unleash Potential Precision Zooming for Professional VideoLeap Footage</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-dynamic-hues-the-artists-toolkit-for-change/"><u>[Updated] Dynamic Hues The Artist's Toolkit for Change</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-efficiently-edit-your-tiktok-age-settings-for-2024/"><u>[Updated] Efficiently Edit Your TikTok Age Settings for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-game-changing-trick-enter-mac-apple-watch-style/"><u>[Updated] Game-Changing Trick Enter Mac, Apple Watch Style</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-contrast-and-composition-theory-in-design/"><u>[Updated] In 2024, Contrast and Composition Theory in Design</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-mirthful-mastery-no-monetary-boundaries/"><u>[Updated] Mirthful Mastery, No Monetary Boundaries</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/6-proven-ways-to-unlock-honor-x9b-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Honor X9b Phone When You Forget the Password</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/automate-your-leads-with-cookiebot-the-powerful-conversion-optimizer/"><u>Automate Your Leads with Cookiebot: The Powerful Conversion Optimizer</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Tecno Spark 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Huawei Nova Y71? | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-guffaw-generator-pictorial-editor/"><u>In 2024, Guffaw Generator Pictorial Editor</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Infinix Smart 8 HD? | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/mediatek-unveils-ai-capabilities-for-mobile-devices-will-you-harness-the-power-of-intelligent-tasks-on-your-phone-discover-more-zdnet/"><u>MediaTek Unveils AI Capabilities for Mobile Devices – Will You Harness the Power of Intelligent Tasks on Your Phone? Discover More | ZDNet</u></a></li>
+<li><a href="https://win11.techidaily.com/overcoming-windows-error-31-restoring-network-functionality/"><u>Overcoming Windows Error 31: Restoring Network Functionality</u></a></li>
+</ul></div>
 

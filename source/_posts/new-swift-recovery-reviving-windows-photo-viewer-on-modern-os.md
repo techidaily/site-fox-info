@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Swift Recovery  Reviving Windows Photo Viewer on Modern OS\""
-date: 2024-08-28T07:44:56.378Z
-updated: 2024-08-29T07:44:56.378Z
+date: 2024-12-20T17:07:44.419Z
+updated: 2024-12-27T19:43:36.679Z
 tags: 
   - screen-recording
   - ai video
@@ -55,7 +55,15 @@ Here is why they want to restore Windows Photo Viewer –
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 1 to restore Windows Photo Viewer
 
@@ -69,9 +77,6 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Method 2 to get Windows Photo Viewer back
 
 Here comes another way to restore Windows Photo Viewer on your computer. If your computer has been upgraded to Windows 10 from an older version, then Windows Photo Viewer might be lying around somewhere. You can retrieve it to view images.
@@ -87,18 +92,17 @@ Here is the detailed guide –
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ### Conclusion
 
 From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
@@ -106,14 +110,11 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -137,4 +138,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-affordable-skycabinet-mass-data-hoarding-on-a-budget/"><u>[New] 2024 Approved Affordable SkyCabinet Mass Data Hoarding on a Budget</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-insiders-guide-to-creating-stunning-iphone-hdr-photos/"><u>[New] 2024 Approved The Insider's Guide to Creating Stunning iPhone HDR Photos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-editors-deep-dive-into-pixelcut-pro-latest-features-in-review-for-2024/"><u>[New] Editor's Deep Dive Into PixelCut Pro - Latest Features in Review for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-exploiting-b-roll-for-visual-impact-on-projects/"><u>[New] In 2024, Exploiting B Roll for Visual Impact on Projects</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-mastering-the-art-of-iphone-macro-and-micro-imaging-for-2024/"><u>[New] Mastering the Art of iPhone Macro & Micro Imaging for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-economical-action-recording-next-level-performance-under-200/"><u>[Updated] 2024 Approved Economical Action Recording - Next Level Performance Under $200</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-five-star-sierra-video-processing-tools/"><u>[Updated] 2024 Approved Five-Star Sierra Video Processing Tools</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-advances-in-photography-with-lut-technology-for-2024/"><u>[Updated] Advances in Photography with LUT Technology for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-conveniently-captivated-by-ifunnys-humor-hub/"><u>[Updated] Conveniently Captivated by iFunny's Humor Hub</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-implementing-gradual-diminishing-techniques-on-soundtracks-with-audacity-for-2024/"><u>[Updated] Implementing Gradual Diminishing Techniques on Soundtracks with Audacity for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-screensnap-it-all-high-quality-netflix-on-mac/"><u>2024 Approved ScreenSnap It All High-Quality Netflix on Mac</u></a></li>
+<li><a href="https://program-issues.techidaily.com/far-cry-nagged-by-unending-load-solutions-and-workaround/"><u>Far Cry Nagged by Unending Load - Solutions and Workaround</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Samsung Galaxy A54 5G | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-app-on-xperia-10-v-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Recover Deleted Photos from Android Gallery App on Xperia 10 V</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-photomontage-artisans-blueprint/"><u>In 2024, The PhotoMontage Artisan's Blueprint</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-top-10-affordable-and-easy-online-passport-pics-tools/"><u>In 2024, Top 10 Affordable & Easy Online Passport Pics Tools</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-samsung-galaxy-z-fold-5-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Samsung Galaxy Z Fold 5 Phone</u></a></li>
+<li><a href="https://win-able.techidaily.com/login-now-available-on-origin-service-interruption-resolved/"><u>Login Now Available on Origin: Service Interruption Resolved</u></a></li>
+<li><a href="https://fox-info.techidaily.com/redefining-the-viewing-experience-top-alternatives-to-periscope/"><u>Redefining the Viewing Experience Top Alternatives to Periscope</u></a></li>
+</ul></div>
 

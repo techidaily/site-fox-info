@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Wallet-Friendly High-Definition Spherical Video Capture\""
-date: 2024-08-28T07:48:39.997Z
-updated: 2024-08-29T07:48:39.997Z
+date: 2024-12-25T17:07:18.144Z
+updated: 2024-12-27T16:32:54.094Z
 tags: 
   - screen-recording
   - ai video
@@ -42,6 +42,10 @@ The 360fly 4k is a slightly more expensive option, retailing around $500\. Unlik
 
 Check this video to watch the 360fly 4k unboxing review:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. [Giroptic](https://www.giroptic.com/intl/en/)
 
 Giroptic also makes a 360-degree camera, simply named the Giroptic 360cam, that retails for about $500\. This camera uses 3 fisheye lenses and combines images into a 360-degree whole in real-time. It has three built-in microphones to capture sound and a gyroscope and accelerometer to stabilize images for videos, photo bursts, and other types of footage. It offers slightly less resolution for video, about 2K at 30fps, but 4K for still images. The 360cam app, for iOS, lets you remotely control the camera over Wi-Fi, but also lets you view, edit and share photos and videos.
@@ -50,18 +54,12 @@ Giroptic also makes a 360-degree camera, simply named the Giroptic 360cam, that 
 
 Have a quick review on Giroptic from this video:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 4\. [Kodak PixPro SP360 4K](https://kodakpixpro.com/Americas/cameras/vrcamera/sp3604k/)
 
 Kodak, one of the older names in photography, offers the Kodak PixPro SP360 4K Action Cam. It relies on a dome-shaped, fixed focus 235-degree lens to capture 360-degree video. Starting at $449 from Kodak, this camera isn't excessively expensive, though it's also not the cheapest offering. It shoots 2880x2880 video at 30 fps. It can also shoot stills at resolutions up to 8MP. While not the best image quality among the camera offerings, Kodak's camera is tough – resistant to water, dust, and shocks – making it a good choice if you find yourself on adventures where being careful with your precious camera isn't always your first priority.
 
 A wonderful day with PixPro SP360 4K:
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. [LG360 cam](http://www.lg.com/us/mobile-accessories/lg-LGR105.AVRZTS-360-cam)
 
 The LG360 cam retails for around $200, making it one of the cheapest phones on the market, and was designed to work with the company's G5 smartphone, though it also works with an iPhone. It captures 2K, 360-degree video, and 5.1 channel surround sound, as well as allowing you to use only one of its two lenses for 180-degree image capture. It's a small camera with no built-in display, but the companion app acts as a remote control and lets you view your recording in real-time.
@@ -75,8 +73,9 @@ The ALLie Camera retails for $499 and uses two fisheye lenses to take its 4096x2
 Check a detailed review about Allie Camera from this video
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 7\. [Panono](https://www.panono.com/)
 
 Panono, a spherical camera retailing for around $549 is unique in using 36 lenses to take 108 MP photos and videos, avoiding the use of wide-angle lenses. It can be thrown safely, as well as supporting a universal mounting system. Final stitching together of the many images into a coherent photo or video requires sending the files to a cloud device, but the image quality more than makes up for it.
@@ -84,8 +83,9 @@ Panono, a spherical camera retailing for around $549 is unique in using 36 lense
 Check this video to see how to take 360 pictures with Panono:
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 8\. [Centr](https://www.centr.org/)
 
 Centr, a 360-degree cam funded on Kickstarter, retails for $399 and uses 4 110-degree lenses to capture its video. It has built-in image stitching technology, meaning that users don't need to use a desktop app or a cloud service to view the final video. It takes 20 MP photos and 4K video at 60 fps.
@@ -93,8 +93,9 @@ Centr, a 360-degree cam funded on Kickstarter, retails for $399 and uses 4 110-d
 Check a detailed review about Centr 360 camera:
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 9\. [Bublcam](https://www.bublcam.com/)
 
 One of the most expensive cameras in this line-up at around $800, Bublcam uses 4 110-degree lenses to take spherical photos and videos. Taking 14 MP images and 1080p video, it's a hit with photographers for image quality. In addition to this, it has stabilization features activated when the camera is in motion, to keep shaky camera work from ruining your video.
@@ -110,8 +111,9 @@ Finally, Nikon's upcoming Key Mission 360 camera is built for action. It's a poc
 See more details about Nikon Key Mission 360 camera from this video:
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 These 10 options are only some of the 360-degree cameras that are upcoming or already on the consumer market. Most of them cost a bit more than a new phone and shoot a pretty nice video. While the video and images can be enjoyed on your computer screen, VR headsets come highly recommended for getting the full effect. So get out there and try this new way of capturing experiences to share with your friends and family. The world awaits.
@@ -141,4 +143,16 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-virtual-frontier-flicks-the-most-inspiring-sci-fi-metaverse-movies/"><u>[New] In 2024, Virtual Frontier Flicks The Most Inspiring Sci-Fi Metaverse Movies</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-mastering-soundscapes-expert-insights-on-audio-post-production-in-garageband/"><u>[Updated] 2024 Approved Mastering Soundscapes Expert Insights on Audio Post-Production in GarageBand</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-free-and-fast-the-ultimate-list-of-mac-screen-recorders/"><u>[Updated] Free and Fast The Ultimate List of Mac Screen Recorders</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-hidden-world-exploring-vlc-player-extras/"><u>[Updated] In 2024, The Hidden World Exploring VLC Player Extras</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-techniques-for-maximizing-gopro-battery-life/"><u>[Updated] Techniques for Maximizing GoPro Battery Life</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-role-of-creative-commons-in-youtube-content-sharing/"><u>[Updated] The Role of Creative Commons in YouTube Content Sharing</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-remove-and-reset-face-id-on-iphone-15-pro-by-drfone-ios/"><u>How to Remove and Reset Face ID on iPhone 15 Pro</u></a></li>
+<li><a href="https://fox-links.techidaily.com/transform-your-browsing-with-ms-edges-pip-for-2024/"><u>Transform Your Browsing with MS Edge's PIP for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/update-your-d-link-drivers-on-windows-step-by-step-guide-and-troubleshooting/"><u>Update Your D-Link Drivers on Windows: Step-by-Step Guide and Troubleshooting</u></a></li>
+</ul></div>
 

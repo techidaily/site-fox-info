@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Dissecting the Technical Specifications of DJI Phantom 3\""
-date: 2024-12-17T16:09:37.376Z
-updated: 2024-12-22T16:11:26.012Z
+date: 2024-12-24T16:37:22.393Z
+updated: 2024-12-28T04:55:54.463Z
 tags: 
   - screen-recording
   - ai video
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 ![phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Complete review for DJ Phantom 3 Standard
@@ -85,7 +85,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 ![phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard-controller.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  By using specially designed control sticks you can easily move the motors in desired direction. On the other side, the advanced application provides easy controls to flight modes, GPS, signal strength and battery level monitoring. The bottom portion of application indicates speed, altitude, heading and other location based details. Map will help users to gain full control over live view details and it will update the hybrid or satellite based location information on the go.
@@ -97,7 +97,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 ![phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard-camera.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Phantom 3 Standard is able to capture videos with three different modes: HD, HHD and 2.7 K resolution level; whereas, you can enjoy stills with 12MP capabilities. All the resulting videos of Phantom device use to be of excellent quality with crystal clear details and all movements are reflected with very smooth and clean fashion. The great news is here that phantom 3 offers intuitive control video settings and one can make easy adjustments to avail soft, real and fuzzy videos.
@@ -105,7 +105,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -133,19 +133,24 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-quick-youtube-snippets-explained-simply/"><u>[Updated] 2024 Approved Quick YouTube Snippets Explained Simply</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-audiences-favorite-top-action-recording-tools/"><u>2024 Approved Audience's Favorite Top Action Recording Tools</u></a></li>
-<li><a href="https://fox-info.techidaily.com/box-opening-marketing-mastery-for-2024/"><u>Box-Opening Marketing Mastery for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/client-reviews-the-heart-of-modern-marketing-strategies/"><u>Client Reviews The Heart of Modern Marketing Strategies</u></a></li>
-<li><a href="https://fox-info.techidaily.com/crafting-captivating-images-using-leading-lines-iphone/"><u>Crafting Captivating Images Using Leading Lines (iPhone)</u></a></li>
-<li><a href="https://fox-info.techidaily.com/crafting-conversational-content-for-your-subscribers-for-2024/"><u>Crafting Conversational Content for Your Subscribers for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/deletion-dynamics-removing-a-business-page-from-social-media/"><u>Deletion Dynamics: Removing a Business Page From Social Media</u></a></li>
-<li><a href="https://fox-info.techidaily.com/discover-8-premium-filters-to-upgrade-your-cam-feeds/"><u>Discover 8 Premium Filters to Upgrade Your Cam Feeds</u></a></li>
-<li><a href="https://fox-info.techidaily.com/discover-comprehensive-free-graphics-websites-today-for-2024/"><u>Discover Comprehensive Free Graphics Websites Today for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-vivo-s18e-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Vivo S18e | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-elevate-efficiency-discover-the-top-8-social-media-schedulers/"><u>In 2024, Elevate Efficiency Discover the Top 8 Social Media Schedulers</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/in-2024-get-your-twitter-video-feed-ready-aspect-ratio-key/"><u>In 2024, Get Your Twitter Video Feed Ready Aspect Ratio Key</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-asus-rog-phone-8-pro-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Asus ROG Phone 8 Pro Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/nba-2k21s-green-error-solved-expert-tips-inside/"><u>NBA 2K21's Green Error Solved - Expert Tips Inside!</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-elevate-online-media-selecting-the-best-5-quality-boosters/"><u>[New] Elevate Online Media Selecting the Best 5 Quality Boosters</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-prime-portals-for-digital-type-art/"><u>[New] In 2024, Prime Portals for Digital Type Art</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-snapcutsolutions-reviews-extensive-critique/"><u>[New] In 2024, SnapCutSolutions Reviews – Extensive Critique</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-thorough-evaluation-hero4-black-innovations/"><u>[New] In 2024, Thorough Evaluation Hero4 Black Innovations</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-pinnacle-of-picture-perfection-with-video-enhance-v22/"><u>[New] Pinnacle of Picture Perfection with Video Enhance V2.2</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-the-complete-story-on-dji-phantom-4s-performance/"><u>[New] The Complete Story on DJI Phantom 4'S Performance</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-top-5-budget-friendly-camcorders-with-hd-quality-for-2024/"><u>[New] Top 5 Budget-Friendly Camcorders with HD Quality for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-ultimate-6-digital-backdrop-eradicators-boosting-image-clarity/"><u>[Updated] In 2024, Ultimate 6 Digital Backdrop Eradicators Boosting Image Clarity</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/comprehensive-instructions-setting-up-your-brother-l2absolutely-here-are-five-new-seo-friendly-titles-similar-to-brother-mfc-l2700dw-driver-download-and-ins193/"><u>Comprehensive Instructions: Setting Up Your Brother L2absolutely! Here Are Five New SEO-Friendly Titles Similar to Brother MFC-L2700DW Driver Download & Install for Windows</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-your-pc-when-windows-10-refuses-to-power-off-solution/"><u>How to Fix Your PC When Windows 10 Refuses to Power Off - SOLUTION</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-get-the-newest-drivers-for-your-msi-b350-toms-tomahawk-on-windows-11-and-windows-7-systems/"><u>How to Get the Newest Drivers for Your MSI B350 TOM'S TOMAHAWK on Windows 11 and Windows 7 Systems</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-stop-mount-and-blade-2-bannerlord-from-frequently-crashing/"><u>How To Stop Mount & Blade 2: Bannerlord From Frequently Crashing</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-how-to-see-someones-location-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, How to See Someones Location on Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-pace-perfection-snappy-windows-11-image-tips/"><u>In 2024, Pace Perfection Snappy Windows 11 Image Tips</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-pioneering-publishing-platforms-fb-and-its-video-distribution-insights/"><u>In 2024, Pioneering Publishing Platforms FB and Its Video Distribution Insights</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/premium-applications-for-animating-3d-scenes-for-2024/"><u>Premium Applications for Animating 3D Scenes for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/supercharge-graphics-on-windows-10-with-latest-amd-radeon-hd-6950-update/"><u>Supercharge Graphics on Windows 10 with Latest AMD Radeon HD 6950 Update</u></a></li>
+<li><a href="https://fox-info.techidaily.com/unlocking-potential-in-audio-design-with-magix-fusion-x/"><u>Unlocking Potential in Audio Design with Magix Fusion X</u></a></li>
 </ul></div>
 
