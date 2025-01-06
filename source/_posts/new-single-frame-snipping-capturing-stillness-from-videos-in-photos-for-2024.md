@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Single-Frame Snipping  Capturing Stillness From Videos in Photos for 2024\""
-date: 2024-12-24T22:33:39.480Z
-updated: 2024-12-27T22:27:10.303Z
+date: 2025-01-02T19:12:02.827Z
+updated: 2025-01-06T19:02:43.740Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,10 @@ In this article, you will learn how to save photo from Windows 10 Photos app and
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to save photo from Windows 10 Photos app
 
 In this part of the article, we are going to discuss, how you would save photo from video with Windows 10 Photos app. The Photos app has numerous features for you, and the editing tools would simply amaze you. You can use the Windows Ink to write on the images or capture stills from a video for that matter. Let’s see, how to save photo from video using Windows 10 Photos app –
@@ -51,6 +55,10 @@ Creating a living image:
 * Right-click within the player > Edit and create > Save photos.
 
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Now, you can see the living picture by tapping ‘Play’ button.
 
@@ -70,7 +78,7 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 We are explaining the solutions here –
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Check the update
@@ -78,16 +86,12 @@ We are explaining the solutions here –
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
 
@@ -101,22 +105,18 @@ Here comes the guide –
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -143,20 +143,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-elite-zoonotic-themes-and-structures-for-2024/"><u>[New] Elite Zoonotic Themes and Structures for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-ideal-free-webcam-video-grabber-solution/"><u>[New] Ideal Free Webcam Video Grabber Solution</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-money-mastery-made-simple-reddits-13-best-income-streams-for-2024/"><u>[New] Money Mastery Made Simple Reddit's 13 Best Income Streams for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-navigating-android-for-immersive-vr-experiences/"><u>[Updated] 2024 Approved Navigating Android for Immersive VR Experiences</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-win-mac-and-beyond-best-8-tools-that-transform-sub-to-universal-srtr-standards/"><u>[Updated] 2024 Approved Win, Mac & Beyond Best 8 Tools that Transform SUB to Universal SRTR Standards</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-smart-way-to-scale-and-slash-iphone-videos/"><u>[Updated] In 2024, The Smart Way to Scale & Slash iPhone Videos</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-learn-to-sound-unique-how-to-alter-vocal-identity-on-the-battlefield-free-for-2024/"><u>[Updated] Learn to Sound Unique How to Alter Vocal Identity on the Battlefield (Free) for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discovering-the-best-value-in-tablets-the-2020-lenovo-tab-m10s-lush-high-definition-view/"><u>Discovering the Best Value in Tablets: The 2020 Lenovo Tab M10's Lush High-Definition View</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/1722966541687-effortless-guide-updating-your-sound-driver-software-today/"><u>Effortless Guide: Updating Your Sound Driver Software Today!</u></a></li>
-<li><a href="https://games-able.techidaily.com/exploring-indispensable-gaming-accessory-traits/"><u>Exploring Indispensable Gaming Accessory Traits</u></a></li>
-<li><a href="https://program-issues.techidaily.com/gaming-smoothly-tips-to-improve-frame-rates-for-a-seamless-forza-horizon-n-experience-on-pc/"><u>Gaming Smoothly: Tips to Improve Frame Rates for a Seamless Forza Horizon N Experience on PC</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-smooth-techniques-painless-ios-screen-recordings/"><u>In 2024, Smooth Techniques Painless iOS Screen Recordings</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-art-of-film-capturing-essential-camera-movements-for-novices/"><u>In 2024, The Art of Film Capturing Essential Camera Movements for Novices</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/reinstating-old-school-windows-photo-viewer-on-modern-win10-for-2024/"><u>Reinstating Old-School Windows Photo Viewer on Modern Win10 for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-key-to-engaging-intros-in-podcast-scripts/"><u>The Key to Engaging Intros in Podcast Scripts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-mastering-video-craft-decoding-filmora-questions/"><u>[New] 2024 Approved Mastering Video Craft Decoding Filmora Questions</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-heart-of-video-magic-10-key-edits-in-filmora/"><u>[New] 2024 Approved The Heart of Video Magic 10 Key Edits in Filmora</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-exploring-picture-in-picture-features-on-sierras-operating-systems/"><u>[New] Exploring Picture in Picture Features on Sierra's Operating Systems</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-unveiling-high-definition-with-lgs-31mu97-b-digital-cinema-screen/"><u>[New] Unveiling High Definition with LG's 31MU97-B Digital Cinema Screen</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-rhythm-in-reels-the-essentials-of-iphone-video-making/"><u>[Updated] 2024 Approved Rhythm in Reels The Essentials of iPhone Video Making</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-googles-augmented-reality-stickers-an-in-depth-look-and-alternatives/"><u>[Updated] Google's Augmented Reality Stickers An In-Depth Look and Alternatives</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-ultimate-guide-to-creating-fluid-edits-for-2024/"><u>[Updated] The Ultimate Guide to Creating Fluid Edits for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/a-guide-poco-x6-pro-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Poco X6 Pro Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/act-fast-upgrade-before-windows-11s-21h2-and-nh2-stops-getting-security-patches-what-you-need-to-know/"><u>Act Fast: Upgrade Before Windows 11'S 21H2 & Nh2 Stops Getting Security Patches - What You Need to Know!</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-dynamic-camera-setup-best-microphone-list/"><u>In 2024, Dynamic Camera Setup Best Microphone List</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-network-locked-vivo-v27-pro-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Vivo V27 Pro Phone?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-s24-ultra-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy S24 Ultra Phone without Google Account?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/optimal-voice-processing-software-solutions-for-2024/"><u>Optimal Voice Processing Software Solutions for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-videos-from-poco-c51-by-fonelab-android-recover-video/"><u>Possible solutions to restore deleted videos from Poco C51</u></a></li>
+<li><a href="https://fox-info.techidaily.com/pros-and-cons-of-hero-series-vs-polaroids-video-editors/"><u>Pros & Cons of Hero Series Vs. Polaroid's Video Editors</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-oppo-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Oppo Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-ultimate-guide-to-10-leading-pc-vr-headsets/"><u>The Ultimate Guide to 10 Leading PC VR Headsets</u></a></li>
 </ul></div>
 

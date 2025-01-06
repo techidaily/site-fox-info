@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Comprehensive Guide to Fisheye Panoramas"
-date: 2024-12-24T04:26:54.305Z
-updated: 2024-12-27T18:14:22.442Z
+date: 2025-01-04T18:35:57.603Z
+updated: 2025-01-06T19:12:45.818Z
 tags: 
   - screen-recording
   - ai video
@@ -31,12 +31,16 @@ thumbnail: https://thmb.techidaily.com/81ce373281fd9aff14dae5d82f0fff51572cdd8c2
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Shooting 360 degrees panoramas with fisheye lens
 
  The process of shooting panoramas with fisheye lenses involves a number of considerations and they are as follows-:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1. The equipment and setup
@@ -46,11 +50,11 @@ thumbnail: https://thmb.techidaily.com/81ce373281fd9aff14dae5d82f0fff51572cdd8c2
 ![Panohead for Fisheye lens](https://images.wondershare.com/filmora/article-images/panohead-for-fishlens.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2. Leveling and rotating
@@ -71,10 +75,6 @@ thumbnail: https://thmb.techidaily.com/81ce373281fd9aff14dae5d82f0fff51572cdd8c2
 
  In normal photography, it always pays to remember what to include and what to exclude in your shots. When it comes to shooting 360s, it becomes more complicated since everything is included. For you to take successful 360s with fisheye therefore, you need to consider keenly where you stand. The fisheye lens will introduce a lot of space between you and the subject, hence you must consider how close or far away you are from the subject so that the pieces of the compositional puzzle will fall in place smoothly both in the horizontal and vertical planes.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Stitching 360 degrees panoramas after shooting
 
  To stitch 360s taken by fisheye lenses after shooting, you will need panorama software like [Autopano Pro](http://www.kolor.com/) or [PTGui](https://www.ptgui.com/). For Autopano Pro, you begin by importing the images into the software and ensuring that the EXIF are displayed correctly on the program. With the right settings in place, the next step is to launch the direct stitching feature if you don’t want to go the manual way. Once the stitching is done, it will be important to present the output online. This can be done using [Pano2VR](http://www.ggnome.com/pano2vr) or you could simply upload the finished panoramas to [360cities](https://www.360cities.net/) for online viewing.
@@ -82,6 +82,10 @@ thumbnail: https://thmb.techidaily.com/81ce373281fd9aff14dae5d82f0fff51572cdd8c2
  You might be also interested in:
 
 [How to stitch GoPro clips into 360 videos >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What's fisheye lenses
 
@@ -92,10 +96,6 @@ thumbnail: https://thmb.techidaily.com/81ce373281fd9aff14dae5d82f0fff51572cdd8c2
  The fisheye lenses are used for a myriad of applications, especially in digital photography. They can also be used for re-projecting images captured by a fisheye lens or computer generated graphics onto hemispherical screens. Additionally, the lenses can be used in scientific photography such as studying canopy geometry, recording meteors and aurora, calculating near-ground solar radiation as well as in peepholes to offer a wide field of view to the users.
 
 ![create 360 photos with fisheye lens](https://images.wondershare.com/filmora/article-images/fisheye-lens-image.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Conclusion
 
@@ -128,18 +128,15 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-cutting-edge-capture-selecting-top-smartphone-cameras-in-high-res-video/"><u>[New] 2024 Approved Cutting Edge Capture Selecting Top Smartphone Cameras in High-Res Video</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-customizing-your-pixels-melodic-identity/"><u>[New] In 2024, Customizing Your Pixel's Melodic Identity</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-earn-on-the-go-snapchats-money-tips/"><u>[Updated] 2024 Approved Earn on the Go Snapchat's Money Tips</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-harnessing-the-power-of-stories-in-fb-networks/"><u>[Updated] 2024 Approved Harnessing the Power of Stories in FB Networks</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-visual-ventures-exploring-affordable-tiktok-beauty-behind-bars/"><u>[Updated] 2024 Approved Visual Ventures Exploring Affordable TikTok Beauty Behind Bars</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-fine-tuning-your-frames-with-videoleap/"><u>[Updated] Fine-Tuning Your Frames with Videoleap</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-comprehensive-guide-to-fisheye-panoramas/"><u>[Updated] In 2024, Comprehensive Guide to Fisheye Panoramas</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-tips-on-how-skip-edgenuity-videos/"><u>2024 Approved Tips on How Skip Edgenuity Videos</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-130-music-get-deleted-pictures-back-with-ease-and-safety-by-fonelab-android-recover-pictures/"><u>How to 130 Music Get Deleted Pictures Back with Ease and Safety?</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-vivo-v29e-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Vivo V29e Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Samsung Galaxy A54 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-most-popular-image-stickering-apps-iosandroid-edition/"><u>In 2024, Most Popular Image Stickering Apps – iOS/Android Edition</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/overcoming-the-most-frequent-youtube-short-hurdles-for-2024/"><u>Overcoming the Most Frequent YouTube Short Hurdles for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-unmarred-stock-images-legal-and-ethical-tips/"><u>[New] 2024 Approved Unmarred Stock Images Legal & Ethical Tips</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-unlocking-creativity-incorinasive-use-of-luts-in-video-editing/"><u>[New] Unlocking Creativity Incorinasive Use of LUTs in Video Editing</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-essential-tips-for-effective-fb-live-split-screens/"><u>[Updated] 2024 Approved Essential Tips for Effective FB Live Split Screens</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-inside-asuss-proart-pa-329q-a-full-review-of-a-top-tier-workstation-monitor/"><u>[Updated] Inside Asus’s ProArt PA 329Q A Full Review of a Top-Tier Workstation Monitor</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-reimagined-analysis-new-developments-in-sonys-s6500-bdhd/"><u>[Updated] Reimagined Analysis New Developments in Sony's S6500 BD/HD</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-speedy-visual-scan-of-your-pictures-on-win11-for-2024/"><u>[Updated] Speedy Visual Scan of Your Pictures on Win11 for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-transform-your-ideas-into-videos-with-the-power-of-movie-maker-windows-11-edition/"><u>2024 Approved Transform Your Ideas Into Videos with the Power of Movie Maker, Windows 11 Edition</u></a></li>
+<li><a href="https://fox-info.techidaily.com/learn-to-edit-the-avalanche-reducing-clutter-in-your-tiktok-drafters-for-2024/"><u>Learn to Edit the Avalanche Reducing Clutter in Your TikTok Drafters for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/preventing-and-fixing-days-gone-crashes-expert-advice-for-gamers/"><u>Preventing and Fixing 'Days Gone' Crashes : Expert Advice for Gamers</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-files-back-from-vivo-y78-5g-by-fonelab-android-recover-data/"><u>Simple ways to get lost files back from Vivo Y78 5G</u></a></li>
 </ul></div>
 
