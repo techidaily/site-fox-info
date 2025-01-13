@@ -1,7 +1,7 @@
 ---
 title: "Safety Features Evaluated in Syma X8C for 2024"
-date: 2024-12-31T16:24:02.046Z
-updated: 2025-01-06T18:44:55.197Z
+date: 2025-01-07T18:09:59.823Z
+updated: 2025-01-13T04:11:02.852Z
 tags: 
   - screen-recording
   - ai video
@@ -38,7 +38,7 @@ thumbnail: https://thmb.techidaily.com/d10946fd797c909f3b766507ccc413e54b73231c6
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Pros and Cons of Syma X8C
@@ -99,7 +99,7 @@ thumbnail: https://thmb.techidaily.com/d10946fd797c909f3b766507ccc413e54b73231c6
 ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
@@ -109,13 +109,13 @@ thumbnail: https://thmb.techidaily.com/d10946fd797c909f3b766507ccc413e54b73231c6
 ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -125,7 +125,7 @@ thumbnail: https://thmb.techidaily.com/d10946fd797c909f3b766507ccc413e54b73231c6
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -153,24 +153,18 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-step-by-step-incorporating-new-fonts-into-after-effects/"><u>[New] 2024 Approved Step-by-Step Incorporating New Fonts Into After Effects</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-optimal-graphics-setup-for-high-res-editing/"><u>[New] Optimal Graphics Setup for High Res Editing</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-the-complete-srt-encyclopedia-key-facts-explored-for-2024/"><u>[New] The Complete SRT Encyclopedia Key Facts Explored for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-the-metaverse-versus-multi-meva-unraveling-their-differences/"><u>[New] The Metaverse Versus Multi-Meva Unraveling Their Differences</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-unveiling-techniques-for-harmonious-crossfades-in-tracks-for-2024/"><u>[New] Unveiling Techniques for Harmonious Crossfades in Tracks for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-mold-amusement-pictures-for-giphy-platform/"><u>[Updated] 2024 Approved Mold Amusement Pictures for Giphy Platform</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-streamline-your-iphone-jpegpng-to-pdf-file-processing/"><u>[Updated] 2024 Approved Streamline Your iPhone JPEG/PNG to PDF File Processing</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-the-global-communicators-guide-to-the-best-19-translation-apps-for-2024/"><u>[Updated] The Global Communicator’s Guide to the Best 19 Translation Apps for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-the-photographers-route-to-perfectly-trimmed-web-pics/"><u>[Updated] The Photographer's Route to Perfectly Trimmed Web Pics</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-unlock-your-reddit-potential-practical-tips-for-mastery/"><u>2024 Approved Unlock Your Reddit Potential - Practical Tips for Mastery</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-unzip-excitement-funimate-pros-apk-unwrapped/"><u>2024 Approved Unzip Excitement - Funimate Pro's APK Unwrapped</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/1722214496762-enhance-chatgpt-conversations-with-our-user-friendly-chrome-extension-quick-and-effective-prompting-made-easy/"><u>Enhance ChatGPT Conversations with Our User-Friendly Chrome Extension – Quick and Effective Prompting Made Easy</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-nokia-g22-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Nokia G22 Phone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-motorola-razr-40-ultra-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Motorola Razr 40 Ultra Phone FRP Lock</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-streamlining-ad-revenue-for-youtube-channels-post-monetization/"><u>In 2024, Streamlining Ad Revenue for YouTube Channels Post-Monetization</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-the-authoritative-periscope-users-bible/"><u>In 2024, The Authoritative Periscope User's Bible</u></a></li>
-<li><a href="https://win-superb.techidaily.com/the-founding-of-the-peoples-republic-of-china-1949-an-overview-insights-by-yl-computing-and-software-solutions/"><u>The Founding of the People's Republic of China, 1949: An Overview - Insights by YL Computing & Software Solutions</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ideo-venture-a-vloggers-journey-to-judicious-gains/"><u>The Video Venture A Vlogger's Journey to Judicious Gains</u></a></li>
-<li><a href="https://discover-help.techidaily.com/understanding-digiartys-refund-procedure-for-winxdvd-software-products/"><u>Understanding Digiarty's Refund Procedure for WinXDVD Software Products</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-journey-through-ipodverse-mastering-iphones-podcast-downloads/"><u>[New] 2024 Approved Journey Through iPodverse Mastering iPhone's Podcast Downloads</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-data-handling-done-right-fastest-5-ways-to-move-files-onto-your-computer/"><u>[New] Data Handling Done Right Fastest 5 Ways To Move Files Onto Your Computer</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-how-to-get-high-end-editing-power-for-free/"><u>[New] How to Get High-End Editing Power for Free?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-quick-guide-posting-podcast-on-instagram-for-2024/"><u>[New] Quick Guide Posting Podcast on Instagram for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-building-a-professional-online-brand-as-a-game-vlogger/"><u>2024 Approved Building a Professional Online Brand as a Game Vlogger</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-maximizing-facebook-fame-8-premier-apps-for-like-boosting/"><u>2024 Approved Maximizing Facebook Fame 8 Premier Apps for Like Boosting</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-top-5-cozy-winter-scenes-for-video-aesthetics/"><u>2024 Approved Top 5 Cozy Winter Scenes for Video Aesthetics</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/t-youtube-file-access-tips/"><u>Direct YouTube File Access Tips</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/expert-analysis-on-electronics-welcome-to-toms-hardware-haven/"><u>Expert Analysis on Electronics - Welcome to Tom's Hardware Haven</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-best-online-vaults-exclusive-ringtone-archives/"><u>In 2024, Best Online Vaults Exclusive Ringtone Archives</u></a></li>
+<li><a href="https://fox-info.techidaily.com/instant-appeal-in-photos-embrace-these-top-10-composition-strategies/"><u>Instant Appeal in Photos Embrace These Top 10 Composition Strategies</u></a></li>
+<li><a href="https://fox-info.techidaily.com/steps-to-establish-a-viable-youtube-sponsor-relationship-for-2024/"><u>Steps to Establish a Viable YouTube Sponsor Relationship for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-unleash-your-creativity-top-5-reaction-video-makers/"><u>Updated In 2024, Unleash Your Creativity Top 5 Reaction Video Makers</u></a></li>
 </ul></div>
 

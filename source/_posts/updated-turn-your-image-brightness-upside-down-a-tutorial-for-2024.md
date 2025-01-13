@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Turn Your Image Brightness Upside Down  A Tutorial for 2024\""
-date: 2025-01-04T16:56:26.872Z
-updated: 2025-01-06T16:56:37.435Z
+date: 2025-01-06T04:07:55.942Z
+updated: 2025-01-13T04:37:35.064Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,10 @@ The Invert option is commonly used to invert a scanned film negative to color, b
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/ms-paint-invert-color.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Open the photo you’d like to invert with MS Paint, and then choose the **Select All option** from the **Select Menu**. **Right-click** on the picture and click on the **Invert Color** option. The colors in the image will be automatically inverted, so you can then head over to the **Save As submenu** in the **File menu** to select the file format of the new photo.
 
 If you are using Windows XP or an earlier version of the Windows OS, you can invert colors in a photo by clicking on the **Invert Colors option** in the **Image menu**. Even though MS Paint lets you invert image colors easily, it is still better to use a more powerful image editor to edit your photos.
@@ -59,7 +63,7 @@ Clicking on the **Adjust Color feature** will bring up the color adjustment pane
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can experiment with the values you assign to each of these sliders in order to get a more visually pleasing result.
@@ -73,7 +77,7 @@ You can experiment with the values you assign to each of these sliders in order 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/pinetools-invert-image-colors.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The platform’s homepage contains a number of categories of tools such as **Colors, Numbers, Text and Lists or Images**. Clicking on the **Images category** will grant you the access to all photo editing tools PineTools offers, so you just have to click on the **Invert Colors** options to start the process of inverting a photo online. Once the **Invert Colors window** loads, you can click on the **Choose File button** to select a photo you’d like to invert. When the upload is completed, simply click on the **Invert button** located near the bottom of the screen and the platform will automatically invert the colors in your photo. To save the watermark-free image with inverted colors you just have to click on **PNG, JPEG or WEBP file** formats that are displayed above the preview of the picture.
@@ -87,7 +91,7 @@ The platform’s homepage contains a number of categories of tools such as **Col
 ![ Covert color](https://images.wondershare.com/filmora/article-images/imageconverter-tjshome.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In addition to a rich selection of effects you can apply to images, tjshome also lets you browse through **Funny Dumb Laws, Famous Quotes or Funny Status Messages** categories. Click on the **Image Filter** category in order to view all effects the platform offers. Make sure that the **Reverse Colors/Negate effect** is selected, and then scroll further down the page to **upload the photo you’d like to invert.** When the upload process is completed, you can check the Make **Public checkbox** if you want to add your photo to the tjshome’s gallery. Click on the **Submit** button, and then proceed to save the picture to your computer. This platform lets you invert images in three easy steps, but if you want to have more control over the process, it is better to use a more powerful photo editor.
@@ -99,10 +103,6 @@ In addition to a rich selection of effects you can apply to images, tjshome also
 **Compatibility:** macOS, Windows
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/ps-convert-color.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 After you open a photo in Adobe Photoshop, you can invert it in just a few clicks. **Expand the Image menu** and the go-to **Adjustments submenu** where you can find the **Invert option**. Alternatively, you can use the **CTRL+I** shortcut if you are a PC user or a **Command+I** if you are using a Mac computer. Moreover, Photoshop lets you **mask parts of a photo** which enables you to precisely define an area of an image you’d like to invert. Other photo editing tools like **Curves, Brightness/Contrast or Photo Filter** can make an image with inverted colors look more convincing. Keep in mind that working with multiple layers requires a lot of patience because failing to mask an object properly can produce some unwanted side issues.
 
@@ -139,7 +139,7 @@ Inverting colors in a photo is not a complicated process, but finding creative w
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -167,24 +167,21 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-a-comprehensible-list-of-mac-snippers-ranked/"><u>[New] 2024 Approved A Comprehensible List of Mac Snippers Ranked</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-your-guide-to-earning-online-the-top-13-no-skill-approaches/"><u>[New] 2024 Approved Your Guide to Earning Online - The Top 13 No-Skill Approaches</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-windows-10-voice-memos-explained/"><u>[New] In 2024, Windows 10 Voice Memos Explained</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/recise-codex-of-conduct-in-the-digital-realm/"><u>[New] Precise Codex of Conduct in the Digital Realm</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-stabilize-and-capture-find-the-best-tripods-for-gopro/"><u>[New] Stabilize and Capture Find the Best Tripods for GoPro</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-strategy-for-google-podcast-uploads/"><u>[New] The Ultimate Strategy for Google Podcast Uploads</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-tips-and-tricks-for-clearing-cluttered-backdrops-in-figma-for-2024/"><u>[New] Tips and Tricks for Clearing Cluttered Backdrops in Figma for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-alphabetical-arrangement-of-cine-capture-models/"><u>[Updated] Alphabetical Arrangement of Cine-Capture Models</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-fresh-film-views-ranked-alternatives-1-7-for-2024/"><u>[Updated] Fresh Film Views Ranked Alternatives #1-7 for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-conveniently-altering-resolution-on-ios-devices/"><u>[Updated] In 2024, Conveniently Altering Resolution on iOS Devices</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-skin-care-secrets-unveiled-for-2024/"><u>[Updated] Skin Care Secrets Unveiled for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210970492-9781088227718-candle-magic-for-beginners/"><u>Candle Magic For Beginners | Free Book</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-nokia-130-music-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Nokia 130 Music | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-mobile-laughs-and-memes/"><u>In 2024, Mobile Laughs & Memes</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-playwrights-tactics-creating-compelling-dialogues/"><u>In 2024, Playwrights' Tactics Creating Compelling Dialogues</u></a></li>
-<li><a href="https://fox-info.techidaily.com/navigating-itunes-to-listen-to-podcasts/"><u>Navigating iTunes to Listen to Podcasts</u></a></li>
-<li><a href="https://fox-info.techidaily.com/symphony-of-sights-picture-plus-sound-videography-for-2024/"><u>Symphony of Sights Picture + Sound Videography for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/top-hd-video-cameras-unveiled/"><u>Top HD Video Cameras Unveiled</u></a></li>
-<li><a href="https://driver-error.techidaily.com/winserial-fix-broken-usb-to-serial-links/"><u>Winserial: Fix Broken USB to Serial Links</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-altitude-achieved-a-critical-look-at-gopro-karma/"><u>[New] 2024 Approved Altitude Achieved A Critical Look at GoPro Karma</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-a-curated-compilation-of-online-videoaudio-magicians-for-2024/"><u>[New] A Curated Compilation of Online Video/Audio Magicians for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-beyond-basics-why-hdr-dominates-in-video-editing-workflows-for-2024/"><u>[New] Beyond Basics Why HDR Dominates in Video Editing Workflows for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-comparative-analysis-of-game-streaming-software-obs-vs-shadowplay/"><u>[New] Comparative Analysis of Game Streaming Software OBS Vs. ShadowPlay</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-hit-the-mark-video-that-skyrockets-in-popularity/"><u>[New] In 2024, Hit the Mark Video that Skyrockets in Popularity</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-overcoming-windows-11-photo-app-anomalies-with-ease/"><u>[New] In 2024, Overcoming Windows 11 Photo App Anomalies with Ease</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-ultimate-iphone-close-up-photographic-guide/"><u>[New] In 2024, Ultimate iPhone Close-Up Photographic Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-ultimate-action-cameras-guidebook-for-winter-sports-for-2024/"><u>[New] Ultimate Action Cameras Guidebook for Winter Sports for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-save-space-and-time-with-fb-video-conversion-tools/"><u>[Updated] In 2024, Save Space & Time with FB Video Conversion Tools</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-leveraging-keywords-for-peak-marketing-results/"><u>[Updated] Leveraging Keywords for Peak Marketing Results</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-a-diy-approach-downloading-and-personalizing-your-whatsapp-ringtone/"><u>2024 Approved A DIY Approach Downloading & Personalizing Your WhatsApp Ringtone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-bose-qc35-ii-ultimate-quiet-audio-experience/"><u>Exploring Bose QC35 II - Ultimate Quiet Audio Experience</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-realme-c53withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Realme C53with/without a PC</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-zany-zooms-a-list-of-10-hilarious-short-youtube-video-scenes/"><u>In 2024, Zany Zooms A List of 10 Hilarious, Short YouTube Video Scenes</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-trim-cut-and-edit-divx-videos-for-free-top-tools/"><u>New In 2024, Trim, Cut, and Edit Divx Videos for Free Top Tools</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-playback-problems-with-windows-11-sound-devices-easy-steps-to-follow/"><u>Solving Playback Problems with Windows 11 Sound Devices - Easy Steps to Follow</u></a></li>
 </ul></div>
 
