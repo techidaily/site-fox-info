@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Sprint Secrets - Olympic Edition '22\""
-date: 2024-12-24T02:43:33.686Z
-updated: 2024-12-27T17:49:41.801Z
+date: 2025-01-11T23:22:54.502Z
+updated: 2025-01-19T00:01:56.033Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with contr
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
 ## Part 1\. Introduce some highlights in short track speed skating with images
@@ -41,24 +45,16 @@ Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
@@ -69,17 +65,25 @@ Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter
 
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -94,10 +98,6 @@ To create such a highlight video on any sports event, there are certain videos e
 **Motion Tracking** – Using motion tracking, you can track the movement of a particular object or athlete in a video. This helps to attach certain elements such as clipart, text, icon to that particular athlete throughout the video for easy identification by the viewers.
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -150,20 +150,20 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-5-pinterest-video-downloads-no-cost-and-fast-access-online/"><u>[New] 5 Pinterest Video Downloads – No Cost & Fast Access Online</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-shot-perfecting-made-simple-the-best-cinematic-practices-for-2024/"><u>[New] Shot Perfecting Made Simple The Best Cinematic Practices for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-camera-compendium-best-in-class-filmmaking-gear/"><u>[Updated] 2024 Approved Camera Compendium Best in Class Filmmaking Gear</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-cutting-edge-professional-cameras-a-360-overview-2023/"><u>[Updated] The Cutting-Edge Professional Cameras - A 360° Overview, 2023</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-best-quick-windows-gallery-app/"><u>2024 Approved Best Quick Windows Gallery App</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/accelerate-channels-youtubes-top-collaborative-growth-tips-for-2024/"><u>Accelerate Channels YouTube's Top Collaborative Growth Tips for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-contacts-from-lava-storm-5g-by-fonelab-android-recover-contacts/"><u>Best Android Data Recovery - Retrieve Lost Contacts from Lava Storm 5G.</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-best-ai-photo-editor/"><u>In 2024, Best AI Photo Editor</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-samsung-galaxy-a54-5gwithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Samsung Galaxy A54 5Gwith/without a PC</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-iphoneandroid-stabilization-elite-photo-tripods/"><u>In 2024, IPhone/Android Stabilization Elite Photo Tripods</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-navigating-win11-a-detailed-look-at-zoom-functions/"><u>In 2024, Navigating Win11 A Detailed Look at Zoom Functions</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209850316-9781615001279-observations-from-another-planet/"><u>Observations from Another Planet | Free Book</u></a></li>
-<li><a href="https://fox-info.techidaily.com/unleashing-creative-potential-in-gopro-4k-edits/"><u>Unleashing Creative Potential in GoPro 4K Edits</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/windows-live-movie-maker-tutorial-creating-stunning-slow-motion-videos-for-2024/"><u>Windows Live Movie Maker Tutorial Creating Stunning Slow Motion Videos for 2024</u></a></li>
-<li><a href="https://win-docs.techidaily.com/samye-effektivnye-seo-konsultanty-v-amsterdame-na-2024-god-seo-powersuite-rekomendovany/"><u>Самые Эффективные SEO Консультанты В Амстердаме На 2024 Год – SEO PowerSuite Рекомендованы!</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-labyrinth-luminaries-top-10-roguelike-highlights/"><u>[New] 2024 Approved Labyrinth Luminaries Top 10 Roguelike Highlights</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-deciphering-the-technicalities-of-recmeister-screen-recording/"><u>[Updated] Deciphering the Technicalities of Recmeister Screen Recording</u></a></li>
+<li><a href="https://fox-info.techidaily.com/cinematic-craftsman-corner-qanda-hub/"><u>Cinematic Craftsman Corner Q&A Hub</u></a></li>
+<li><a href="https://fox-info.techidaily.com/complete-guide-to-windows-movie-maker-60-downloading/"><u>Complete Guide to Windows Movie Maker 6.0 Downloading</u></a></li>
+<li><a href="https://fox-info.techidaily.com/compre-written-in-clear-language-this-ultimate-guide-explores-all-facets-of-using-the-iphone-xs-animoji-feature-for-2024/"><u>Compre Written in Clear Language, This Ultimate Guide Explores All Facets of Using the iPhone X's Animoji Feature for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/cutting-edge-techniques-for-video-production-in-windows-photos/"><u>Cutting-Edge Techniques for Video Production in Windows Photos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/cutting-edge-title-design-in-after-effects/"><u>Cutting-Edge Title Design in After Effects</u></a></li>
+<li><a href="https://fox-info.techidaily.com/easy-to-follow-action-cam-buyers-blueprint-23/"><u>Easy-to-Follow Action Cam Buyers’ Blueprint '23</u></a></li>
+<li><a href="https://fox-info.techidaily.com/elevate-your-photo-editing-with-lunapic-pro-tips-for-2024/"><u>Elevate Your Photo Editing with Lunapic Pro Tips for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-tecno-spark-go-2023-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Tecno Spark Go (2023) For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-infinix-zero-5g-2023-turbo-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Infinix Zero 5G 2023 Turbo to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/lenovo-t520-how-to-seamlessly-update-drivers-in-no-time/"><u>Lenovo T520 - How to Seamlessly Update Drivers in No Time</u></a></li>
+<li><a href="https://win-community.techidaily.com/the-pros-and-cons-of-outsourcing-registry-cleanup-tasks-expert-advice-by-yl-computing-experts/"><u>The Pros and Cons of Outsourcing Registry Cleanup Tasks – Expert Advice by YL Computing Experts</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-poco-m6-5g-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Poco M6 5G to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/ultimate-smartphone-camera-recording-tools-iphoneandroid-edition-for-2024/"><u>Ultimate Smartphone Camera Recording Tools - iPhone/Android Edition for 2024</u></a></li>
 </ul></div>
 

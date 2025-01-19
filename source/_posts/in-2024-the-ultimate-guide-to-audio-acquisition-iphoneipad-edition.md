@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, The Ultimate Guide to Audio Acquisition  IPhone/iPad Edition\""
-date: 2025-01-06T20:18:14.793Z
-updated: 2025-01-12T21:25:40.282Z
+date: 2025-01-13T23:27:34.076Z
+updated: 2025-01-18T16:08:15.064Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ However, as the name suggests, Apple Podcasts is available to a niche group, i.e
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. Are Apple Podcasts Free to Download?
 
 One of the first points of concern for users when it comes to **Apple Podcasts how to download** is the cost of the app itself. On that note, it is important to mention that the app for iPad, iPhone, and iPod Touch users is free to access. Lots of different shows are available for cost-less listening.
@@ -34,6 +38,10 @@ One of the first points of concern for users when it comes to **Apple Podcasts h
 However, some of the podcasters with shows on Apple Podcasts do offer premium episodes, shows, and channels. People can subscribe to their channels with a specified fee that the creator sets on a monthly or yearly payment schedule.
 
 Users that want to access these premium/bonus episodes, ad-free listening, get faster access to their archives and get a first look at new shows can opt for the subscription. The costs can vary as per the channels, with some offering a 7-day trial and USD 3.99 per month or other offers.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. How to Download Apple Podcasts on an iPhone/iPad
 
@@ -85,10 +93,6 @@ Step3 Inside the Podcasts app, browse through podcasts to find the one you want 
 
 ![browse through podcasts](https://images.wondershare.com/filmora/article-images/2023/04/browse-through-podcasts.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4 Hold the cursor over the episode of your choice and then press the Download button. Otherwise, you can click on the three-dotted/More icon and then download it.
 
 ![click on three dotted icon](https://images.wondershare.com/filmora/article-images/2023/04/download-apple-podcasts-on-pc.jpg)
@@ -113,6 +117,10 @@ Step6 If you want to download one episode, tap on the Get button placed close to
 
 ![tap on the get button](https://images.wondershare.com/filmora/article-images/2023/04/download-podcasts-from-itunes-store-on-pc-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4\. Where Do Apple Podcast Downloads Go?
 
 Now that you know the right steps to download Apple Podcasts on different devices, the question comes- where to access them? The downloaded episodes of the podcast show you save will go into the Downloaded tab of the app. This happens for both PC and mobile users.
@@ -122,10 +130,6 @@ If you save one podcast episode through the app, it will automatically go into t
 ## Part 5\. Why Can't I Download Podcasts on Apple Podcasts?
 
 While there are distinct steps available in the context of how to **download Apple Podcasts**, some users may notice that this is hard to achieve. There are reasons why that is the case. Based on the cause and condition, you can also take steps to fix the problem.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Issue 1: Temporary glitches
 
@@ -142,10 +146,6 @@ Otherwise, you should double-tap on the Home button.
 Step2 Choose the app card for Apple Podcasts app. Swipe it up and choose the force quit option. Wait for some time, and then start the app again.
 
 ![choose the app card](https://images.wondershare.com/filmora/article-images/2023/04/force-quit-apple-podcast.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Issue 2: Server-side issues
 
@@ -177,10 +177,6 @@ Step3 Disable the "Block Downloads Over Cellular" option if already enabled.
 
 ![disable the block downloads over the cellular option](https://images.wondershare.com/filmora/article-images/2023/04/disable-the-block-downloads-over-the-cellular-option.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Issue 4: Bad network connection error
 
 Sometimes, the main cause of the failure to download Apple podcast episodes occurs due to connection issues directly. In this case, users continuously notice problems while trying to download their Podcasts app.
@@ -208,10 +204,6 @@ Step2 Click on the General option and choose iPhone Storage. Then, go to Podcast
 Step3 Under this section, click on the Offload App button.
 
 ![click on the offload app button](https://images.wondershare.com/filmora/article-images/2023/04/offload-apple-podcasts.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step4 Return to the Home screen and choose the Podcasts app to re-download.
 
@@ -227,10 +219,6 @@ It is possible to download the Apple Podcasts easily and then download the episo
 
 While the iPad and iPhone devices are the most common mediums to download and access Apple Podcast benefits, users can also download them on computers. However, there are distinct steps available for different operating systems, like macOS and Windows PC devices.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 1: Download Podcasts through Podcast App on Mac
 
 You can download the Apple Podcasts app on your macOS device and use it to download Apple podcast episodes.
@@ -244,12 +232,16 @@ Step3 Inside the Podcasts app, browse through podcasts to find the one you want 
 ![browse through podcasts](https://images.wondershare.com/filmora/article-images/2023/04/browse-through-podcasts.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step4 Hold the cursor over the episode of your choice and then press the Download button. Otherwise, you can click on the three-dotted/More icon and then download it.
 
 ![click on three dotted icon](https://images.wondershare.com/filmora/article-images/2023/04/download-apple-podcasts-on-pc.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 2: Download Podcasts from the iTunes Store on PC
 
@@ -263,10 +255,6 @@ Step3 At the right side of the webpage, click on Store.
 
 ![click on store](https://images.wondershare.com/filmora/article-images/2023/04/download-podcasts-from-itunes-store-on-pc.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4 Tap on Return. All results will come up next.
 
 Step5 See a preview of the item you will download by clicking the Preview button or moving your cursor over it. Then, choose the podcast you will download by pressing Subscribe.
@@ -274,6 +262,14 @@ Step5 See a preview of the item you will download by clicking the Preview button
 Step6 If you want to download one episode, tap on the Get button placed close to the episode name.
 
 ![tap on the get button](https://images.wondershare.com/filmora/article-images/2023/04/download-podcasts-from-itunes-store-on-pc-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4\. Where Do Apple Podcast Downloads Go?
 
@@ -284,10 +280,6 @@ If you save one podcast episode through the app, it will automatically go into t
 ## Part 5\. Why Can't I Download Podcasts on Apple Podcasts?
 
 While there are distinct steps available in the context of how to **download Apple Podcasts**, some users may notice that this is hard to achieve. There are reasons why that is the case. Based on the cause and condition, you can also take steps to fix the problem.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Issue 1: Temporary glitches
 
@@ -316,6 +308,10 @@ Open the System Status page from Apple's official website via your chosen browse
 ![open the system status page](https://images.wondershare.com/filmora/article-images/2023/04/fix-evaluate-system-status-insights.jpg)
 
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Note:** If there are issues in the services like App Store (for Apple Podcasts, this will appear since there is no separate listing for apps) or Apple ID. In case some appear, wait some time. the services will come back online automatically eventually.
 
@@ -364,10 +360,14 @@ Step3 Under this section, click on the Offload App button.
 ![click on the offload app button](https://images.wondershare.com/filmora/article-images/2023/04/offload-apple-podcasts.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step4 Return to the Home screen and choose the Podcasts app to re-download.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -397,24 +397,21 @@ It is possible to download the Apple Podcasts easily and then download the episo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-demystifying-the-purpose-of-slug-lines-in-screenplay/"><u>[New] 2024 Approved Demystifying the Purpose of Slug Lines in Screenplay</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-exclusive-win-audio-experience-for-2024/"><u>[New] Exclusive Win Audio Experience for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-precision-and-excellence-a-guide-to-professional-audacity-recordings/"><u>[New] Precision and Excellence A Guide to Professional Audacity Recordings</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-the-full-spectrum-analysis-of-lgs-high-definition-screen-for-2024/"><u>[New] The Full Spectrum Analysis of LG’s High-Definition Screen for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-examining-the-effectiveness-of-selfie-validation-on-instagram/"><u>[Updated] 2024 Approved Examining the Effectiveness of Selfie Validation on Instagram</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-galactic-gateway-top-10-sci-fi-movies-that-transcend-reality/"><u>[Updated] Galactic Gateway Top 10 Sci-Fi Movies that Transcend Reality</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-enhance-your-mobile-experience-with-inshots-music-features/"><u>[Updated] In 2024, Enhance Your Mobile Experience with InShot's Music Features</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-exploring-virtual-reality-lgs-360-degree-experience/"><u>[Updated] In 2024, Exploring Virtual Reality LG's 360-Degree Experience</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-high-fidelity-transformation-choosing-the-best-video-converters/"><u>[Updated] In 2024, High Fidelity Transformation Choosing the Best Video Converters</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-techniques-for-turning-youtube-hosted-tweets-into-audio-files/"><u>[Updated] Techniques for Turning YouTube-Hosted Tweets Into Audio Files</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Poco X5 Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/essential-guide-converting-youtube-videos-to-mpegmp4/"><u>Essential Guide Converting YouTube Videos to MPEG/MP4</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-expert-advice-enhancing-control-over-snapchat-video-speed/"><u>In 2024, Expert Advice Enhancing Control Over Snapchat Video Speed</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-tecno-spark-10-pro-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Tecno Spark 10 Pro Location by Number | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-ten-strategies-for-controlling-a-twitch-broadcast/"><u>In 2024, Ten Strategies for Controlling a Twitch Broadcast</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-vault-in-the-sky-for-every-picture-free-and-paid-alternatives-explored/"><u>In 2024, Vault in the Sky for Every Picture Free & Paid Alternatives Explored</u></a></li>
-<li><a href="https://fox-info.techidaily.com/the-evolution-of-drone-remote-control-systems-syma-x8c-for-2024/"><u>The Evolution of Drone Remote Control Systems – Syma X8C for 2024</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/the-ultimate-guide-to-highpoints-rocket-1608a-add-in-card-revolutionary-drive-capacity-and-performance-upgrade/"><u>The Ultimate Guide to HighPoint's Rocket 1608A Add-In Card – Revolutionary Drive Capacity & Performance Upgrade</u></a></li>
-<li><a href="https://windows11.techidaily.com/troubleshooting-pen-pad-issues-on-windows-os/"><u>Troubleshooting: Pen Pad Issues on Windows OS</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-capturing-the-world-in-hd-with-yis-4k-camera/"><u>[New] 2024 Approved Capturing the World in HD with YI's 4K Camera</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-discover-comedy-tear-fusion-in-these-highest-rated-memetic-accounts/"><u>[New] Discover Comedy-Tear Fusion in These Highest Rated Memetic Accounts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-creating-time-bending-hyperlapse-films/"><u>[New] In 2024, Creating Time-Bending Hyperlapse Films</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-tips-to-amplify-your-character-with-easy-pubg-alterations/"><u>[Updated] 2024 Approved Tips to Amplify Your Character with Easy PUBG Alterations</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-top-30-metaverse-meme-creation-tips-and-trends/"><u>[Updated] 2024 Approved Top 30 Metaverse Meme Creation Tips & Trends</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-avoiding-common-pitfalls-in-rl-gameplay-recordings-for-2024/"><u>[Updated] Avoiding Common Pitfalls in RL Gameplay Recordings for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-converting-tweeted-videos-into-playable-mp3-tracks-for-2024/"><u>[Updated] Converting Tweeted Videos Into Playable MP3 Tracks for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-grandiose-know-it-all-challenges-online/"><u>[Updated] Grandiose KNOW-It All Challenges Online</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-bring-back-missing-watch-playlist-icon/"><u>[Updated] In 2024, Bring Back Missing Watch Playlist Icon</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-navigate-away-from-windows-10-photos-app-failures-with-precision/"><u>[Updated] Navigate Away From Windows 10 Photos App Failures with Precision</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-anime-based-short-clips-top-20-ideas-on-tiktok/"><u>In 2024, Anime-Based Short Clips Top 20 Ideas on TikTok</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-on-your-iphone-6-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code On your iPhone 6</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/score-big-on-gadgets-get-ready-for-amazons-blockbuster-deals-of-2024/"><u>Score Big on Gadgets: Get Ready for Amazon's Blockbuster Deals of 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-8-streamers-choice-high-quality-cameras-reviewed-for-2024/"><u>Top 8 Streamer's Choice High-Quality Cameras Reviewed for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-animate-like-a-pro-top-8-software-options-for-mac-and-windows-for-2024/"><u>Updated Animate Like a Pro Top 8 Software Options for Mac and Windows for 2024</u></a></li>
 </ul></div>
 

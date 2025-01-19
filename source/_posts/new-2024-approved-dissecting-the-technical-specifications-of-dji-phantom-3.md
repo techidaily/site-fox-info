@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Dissecting the Technical Specifications of DJI Phantom 3\""
-date: 2025-01-02T19:04:33.736Z
-updated: 2025-01-06T18:09:21.637Z
+date: 2025-01-12T23:13:19.807Z
+updated: 2025-01-18T17:17:11.548Z
 tags: 
   - screen-recording
   - ai video
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 ![phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Complete review for DJ Phantom 3 Standard
@@ -85,7 +85,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 ![phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard-controller.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  By using specially designed control sticks you can easily move the motors in desired direction. On the other side, the advanced application provides easy controls to flight modes, GPS, signal strength and battery level monitoring. The bottom portion of application indicates speed, altitude, heading and other location based details. Map will help users to gain full control over live view details and it will update the hybrid or satellite based location information on the go.
@@ -97,7 +97,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 ![phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard-camera.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Phantom 3 Standard is able to capture videos with three different modes: HD, HHD and 2.7 K resolution level; whereas, you can enjoy stills with 12MP capabilities. All the resulting videos of Phantom device use to be of excellent quality with crystal clear details and all movements are reflected with very smooth and clean fashion. The great news is here that phantom 3 offers intuitive control video settings and one can make easy adjustments to avail soft, real and fuzzy videos.
@@ -105,7 +105,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -133,22 +133,19 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-essential-20-copyright-free-pubg-display-packs/"><u>[New] 2024 Approved Essential 20 Copyright-Free PUBG Display Packs</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-key-frames-per-second-in-superior-slow-motion-imaging/"><u>[New] 2024 Approved Key Frames per Second in Superior Slow Motion Imaging</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-4-solutions-for-iphone-hdr-video-washed-out-in-premiere-pro-for-2024/"><u>[New] 4 Solutions for iPhone HDR Video Washed-Out in Premiere Pro for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-the-most-acclaimed-cloud-services-on-android-platform/"><u>[New] The Most Acclaimed Cloud Services on Android Platform</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-enhancing-income-through-the-science-of-youtube-trailer-creation/"><u>[Updated] 2024 Approved Enhancing Income Through the Science of YouTube Trailer Creation</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-maximize-viewing-experience-best-4k-downloader-apps/"><u>[Updated] 2024 Approved Maximize Viewing Experience Best 4K Downloader Apps</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-audio-memo-fundamentals-a-complete-guidebook-for-2024/"><u>[Updated] Audio Memo Fundamentals A Complete Guidebook for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-educators-manual-for-integrating-videos-in-instruction/"><u>[Updated] Educator's Manual for Integrating Videos in Instruction</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-essential-gear-for-capturing-skisnowboarding-moments-for-2024/"><u>[Updated] Essential Gear for Capturing Ski/Snowboarding Moments for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-integrating-vsco-into-social-media-strategy/"><u>[Updated] In 2024, Integrating VSCO Into Social Media Strategy</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-artisans-blueprint-achieving-3d-text-mastery/"><u>[Updated] The Artisan's Blueprint Achieving 3D Text Mastery</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1726027901031-2024avi/"><u>2024年リッチメディア形式の動画プレーヤーを活用して「AVIファイル」をスムーズに再生する方法</u></a></li>
-<li><a href="https://network-issues.techidaily.com/decrease-fallout-4-crashes-in-windows/"><u>Decrease Fallout 4 Crashes in Windows</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/get-more-bang-for-your-buck-with-the-highly-praised-arcshell-ar-5/"><u>Get More Bang for Your Buck with the Highly Praised ArcShell AR- 5.</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-oppo-a59-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Oppo A59 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/top-5-essentials-preparing-to-purchase-a-secondhand-ipad/"><u>Top 5 Essentials: Preparing to Purchase a Secondhand iPad</u></a></li>
-<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-oppo-reno-10-pro-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Oppo Reno 10 Pro 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-coders-showdown-which-codec-will-dominate-video-quality-for-2024/"><u>[New] Coders' Showdown Which Codec Will Dominate Video Quality for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-elevating-your-tiktok-presence-a-comprehensible-guide-to-bg-updates-for-2024/"><u>[New] Elevating Your TikTok Presence A Comprehensible Guide to BG Updates for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-experience-the-thrill-of-kinemaster-and-rank-10-online-alternatives-alike/"><u>2024 Approved Experience the Thrill of KineMaster and Rank 10 Online Alternatives Alike</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-perfecting-skies-top-11-must-have-dji-accessories/"><u>2024 Approved Perfecting Skies Top 11 Must-Have DJI Accessories</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-premium-screens-at-their-peak-top-10-listings-for-4k-monitors/"><u>2024 Approved Premium Screens at Their Peak Top #10 Listings for 4K Monitors</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-pushing-boundaries-in-motion-photography/"><u>2024 Approved Pushing Boundaries in Motion Photography</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-the-ultimate-guide-to-professional-photo-coloring/"><u>2024 Approved The Ultimate Guide to Professional Photo Coloring</u></a></li>
+<li><a href="https://fox-info.techidaily.com/advanced-techniques-sending-subtitles-to-instagram-linkedin/"><u>Advanced Techniques Sending Subtitles to Instagram, LinkedIn</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-contacts-from-itel-p40plus-by-fonelab-android-recover-contacts/"><u>How to Rescue Lost Contacts from Itel P40+?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-end-your-videos-professionally-with-these-free-tools-top-6/"><u>In 2024, End Your Videos Professionally with These Free Tools (Top 6)</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-xiaomi-redmi-note-13-pro-5g-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Xiaomi Redmi Note 13 Pro 5G?</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/step-by-step-installing-intel-integrated-graphic-driver-updates-for-windows-os-v10-and-11/"><u>Step by Step: Installing Intel Integrated Graphic Driver Updates for Windows OS v10 and 11</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-essential-8-in-virtual-reality-gaming-for-2024/"><u>The Essential 8 in Virtual Reality Gaming for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-how-to-create-closed-captions-in-final-cut-pro-x-2023-update/"><u>Updated In 2024, How to Create Closed Captions in Final Cut Pro X (2023 Update)</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, The Art of Customizing Windows Photos App  Intertwining Visuals & Audio\""
-date: 2024-12-03T20:21:53.067Z
-updated: 2024-12-06T21:19:58.534Z
+date: 2025-01-16T19:14:26.850Z
+updated: 2025-01-18T23:20:00.570Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,10 @@ Having Windows 10 Photos app is an advantage for you. This is not like any other
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to add filters on Windows 10 Photos App
 
 If you have got Windows 10 Photos app and wish to add filters, though, it is by default a photo viewing app, its editing features are worth to mention. This step by step guide is your perfect savior in that case.
@@ -51,7 +55,7 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
@@ -61,7 +65,7 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5**: Just select one you like. Preview it and then click Done.
@@ -82,14 +86,10 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 5**: Hit the ‘Done’ button.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -99,7 +99,7 @@ From the above article, we conclude that Windows 10 Photos app is an amazing app
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -127,16 +127,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-winning-tv-recorder-strategies-no-cost-no-hassle/"><u>[Updated] 2024 Approved Winning TV Recorder Strategies (No-Cost, No Hassle)</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-a-symphony-for-photos-on-digital-platforms-for-2024/"><u>[Updated] A Symphony for Photos on Digital Platforms for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-harnessing-the-power-of-light-in-iphone-hdr-photography/"><u>[Updated] Harnessing the Power of Light in iPhone HDR Photography</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-top-10-innovative-ai-based-podcast-name-generators/"><u>[Updated] In 2024, Top 10 Innovative AI-Based Podcast Name Generators</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-ions-bold-step-forward-with-pro-3-a-comprehensive-camera-review/"><u>[Updated] ION's Bold Step Forward with Pro 3 - A Comprehensive Camera Review</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-video-sizing-anomalies-what-causes-imovie-to-crop-in-2024/"><u>[Updated] Video Sizing Anomalies What Causes iMovie to Crop, In 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/1-intelligent-alternative-stardock-desktopgt-the-ideal-choice-for-seasoned-tech-enthusiasts/"><u>1. Intelligent Alternative: Stardock DesktoPGT - The Ideal Choice for Seasoned Tech Enthusiasts</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-vivo-x90s-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Vivo X90S | Dr.fone</u></a></li>
-<li><a href="https://os-tips.techidaily.com/mastering-video-recording-with-your-apple-watch-a-step-by-step-guide/"><u>Mastering Video Recording with Your Apple Watch: A Step-by-Step Guide</u></a></li>
-<li><a href="https://fox-info.techidaily.com/navigating-the-maze-of-fs-mode-in-ppro-for-2024/"><u>Navigating the Maze of FS Mode in PPro for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/solving-the-problem-of-non-launchable-star-wars-jedi-fallen-order/"><u>Solving the Problem of Non-Launchable Star Wars Jedi: Fallen Order</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-superior-suggestions-elite-iphone-ringtones-developers/"><u>[New] Superior Suggestions Elite iPhone Ringtones Developers</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-top-6-translation-devices-for-media-files/"><u>[Updated] Top 6 Translation Devices for Media Files</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-create-effective-youtube-advertisements-on-a-budget/"><u>2024 Approved Create Effective YouTube Advertisements on a Budget</u></a></li>
+<li><a href="https://fox-info.techidaily.com/capture-the-light-filmographys-five-essential-camera-techniques-of-24-for-2024/"><u>Capture the Light Filmography's Five Essential Camera Techniques of '24 for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/comprehending-drone-systems-mechanics-and-applications-explained-for-2024/"><u>Comprehending Drone Systems Mechanics and Applications Explained for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/core-6-social-media-tools-for-corporate-engagement/"><u>Core 6 Social Media Tools for Corporate Engagement</u></a></li>
+<li><a href="https://fox-info.techidaily.com/custom-logo-blueprints-draw-your-identity-from-free-formats-for-2024/"><u>Custom Logo Blueprints Draw Your Identity From Free Formats for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/deep-dive-into-the-android-specific-lightroom-app/"><u>Deep Dive Into the Android-Specific Lightroom App</u></a></li>
+<li><a href="https://fox-info.techidaily.com/effortless-techniques-to-turn-off-youtube-video-previews/"><u>Effortless Techniques to Turn Off YouTube Video Previews</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-vivo-v29e-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Vivo V29e? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/live-methods-for-quieter-track-output-for-2024/"><u>Live Methods for Quieter Track Output for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Vivo X Fold 2 | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/supercharged-visuals-nvidias-direct-download/"><u>Supercharged Visuals - NVIDIA's Direct Download</u></a></li>
 </ul></div>
 
