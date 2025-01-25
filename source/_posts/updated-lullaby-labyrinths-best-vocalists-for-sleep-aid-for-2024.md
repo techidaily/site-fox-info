@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Lullaby Labyrinths  Best Vocalists For Sleep Aid for 2024\""
-date: 2024-08-15T19:49:31.020Z
-updated: 2024-08-16T19:49:31.020Z
+date: 2025-01-20T19:42:44.217Z
+updated: 2025-01-25T05:47:19.046Z
 tags: 
   - screen-recording
   - ai video
@@ -39,16 +39,13 @@ ASMR, on the other hand, maybe more sophisticated than this idea predicts. While
 ![asmr help you sleep](https://images.wondershare.com/filmora/article-images/2022/11/asmr-for-sleep-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Best ASMR Channels for Sleep
 
 Although not everyone, most individuals tend to experience ASMR for the first time between the ages of 5 and 10, though some people experience it later in life. Although ASMR is a relatively recent phenomenon, individuals have been experiencing it for quite some time. Here are the best **ASMR channels for sleep** in terms of different categories.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### 1\. Talking ASMR
 
 **ASMR Glow**: Glow has developed into a formidable but unassuming force, taken into account. She is not only supposed to be one of the most talented **ASMR for sleep** performers but also a makeup artist and a YouTuber who sometimes offers celebrity-inspired tutorials. With 1.5 million subscribers, ASMR Glow explores some of the most popular relaxations and sleep triggers, such as mic scratching, slow tapping, finger fluttering, and light triggers.
@@ -56,22 +53,17 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 **Subscribers**: 1.44M+
 
 ![asmr glow](https://images.wondershare.com/filmora/article-images/2022/11/asmr-for-sleep-3.jpg)
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Pure Unintentional ASMR**: This YouTube channel is quickly becoming one of the most well-known examples of unintended ASMR on the Internet. If you regularly consume involuntary **ASMR sleep videos**, you probably already know about this channel on YouTube. By John Butler, this is definitely the BEST unintended ASMR voice ever recorded. It has now been re-edited to maximize ASMR tingles.
 
 **Subscribers:** 226k
 
 ![pure unintentional asmr](https://images.wondershare.com/filmora/article-images/2022/11/asmr-for-sleep-4.jpg)
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. No talking ASMR
 
 **MassageASMR:** Simply taking in the word "MassageASMR" puts us in a calmer and more collected state. His YouTube account, which has videos of massages in addition to more standard ASMR experiences and role-plays exams, thankfully does not let viewers down. You are going to get provoked but healthily. The ASMR 10 Hours of Tapping, Crinkle, and Trigger Sounds is ideal for falling asleep.
@@ -80,14 +72,15 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![massageasmr](https://images.wondershare.com/filmora/article-images/2022/11/asmr-for-sleep-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **WhispersRed**: Emma Smith, a person who had survived PTSD, created the pseudonym of WhispersRed after being inspired by GentleWhispering and started spreading musical love. She was the first ASMR performer to conduct the practice of ASMR live in a theater. In addition, she was trained as a sound therapist and a Reiki practitioner. Go to her channel, and you'll quickly discover that you are in the capable hands of a female **ASMR sleep video** artist. The ASMR 3.5 hours of relaxing sound with no talking will help you calm your nerve after a stressful day.
 
 **Subscribers**: 947K+
 
 ![whispersred](https://images.wondershare.com/filmora/article-images/2022/11/asmr-for-sleep-6.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 
 ### 3\. ASMR with rare triggers
 
@@ -113,9 +106,6 @@ YouTube's autoplay function makes it much simpler to choose what to watch next o
 
 ![turn off youtube auto play](https://images.wondershare.com/filmora/article-images/2022/11/asmr-for-sleep-9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Stop finding the best sleeping position and focus on the ASMR
 
 Instead of finding a good sleeping posture, watch **an ASMR sleep video**. According to how ASMR works, it does improve sleep. ASMR tends to boost brain regions related to dopamine and oxytocin, which promote tranquility and sleep. 82% of ASMR users utilize the feeling to rest. Most people use ASMR for relaxation. Bedtime is the most popular time for individuals to consume ASMR material, with 81% of respondents preferring listening or watching before falling asleep. Only 6% of respondents prefer morning ASMR.
@@ -123,14 +113,15 @@ Instead of finding a good sleeping posture, watch **an ASMR sleep video**. Accor
 ![best sleeping position](https://images.wondershare.com/filmora/article-images/2022/11/asmr-for-sleep-10.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-## Part 4: FAQs
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## Part 4: FAQs
+
 ### Why do I take so long to get to the point where I can fall asleep?
 
 Caffeine use, stress, working irregular shifts, and traveling are all factors that might make it difficult to fall asleep. Sleep issues may also keep individuals awake at night. Your healthcare physician should be able to assist you in determining the cause of your prolonged difficulty falling or staying asleep.
@@ -156,17 +147,9 @@ Thus, you finally have the answer to **does ASMR help you sleep.** Yes, ASMR is 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 ![asmr glow](https://images.wondershare.com/filmora/article-images/2022/11/asmr-for-sleep-3.jpg)
+
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Pure Unintentional ASMR**: This YouTube channel is quickly becoming one of the most well-known examples of unintended ASMR on the Internet. If you regularly consume involuntary **ASMR sleep videos**, you probably already know about this channel on YouTube. By John Butler, this is definitely the BEST unintended ASMR voice ever recorded. It has now been re-edited to maximize ASMR tingles.
@@ -175,6 +158,10 @@ Thus, you finally have the answer to **does ASMR help you sleep.** Yes, ASMR is 
 
 ![pure unintentional asmr](https://images.wondershare.com/filmora/article-images/2022/11/asmr-for-sleep-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. No talking ASMR
 
 **MassageASMR:** Simply taking in the word "MassageASMR" puts us in a calmer and more collected state. His YouTube account, which has videos of massages in addition to more standard ASMR experiences and role-plays exams, thankfully does not let viewers down. You are going to get provoked but healthily. The ASMR 10 Hours of Tapping, Crinkle, and Trigger Sounds is ideal for falling asleep.
@@ -182,8 +169,9 @@ Thus, you finally have the answer to **does ASMR help you sleep.** Yes, ASMR is 
 **Subscribers**: 882K+
 
 ![massageasmr](https://images.wondershare.com/filmora/article-images/2022/11/asmr-for-sleep-5.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **WhispersRed**: Emma Smith, a person who had survived PTSD, created the pseudonym of WhispersRed after being inspired by GentleWhispering and started spreading musical love. She was the first ASMR performer to conduct the practice of ASMR live in a theater. In addition, she was trained as a sound therapist and a Reiki practitioner. Go to her channel, and you'll quickly discover that you are in the capable hands of a female **ASMR sleep video** artist. The ASMR 3.5 hours of relaxing sound with no talking will help you calm your nerve after a stressful day.
@@ -191,13 +179,11 @@ Thus, you finally have the answer to **does ASMR help you sleep.** Yes, ASMR is 
 **Subscribers**: 947K+
 
 ![whispersred](https://images.wondershare.com/filmora/article-images/2022/11/asmr-for-sleep-6.jpg)
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. ASMR with rare triggers
 
 **ASMR Zeitgeist:** Zeitgeist is like sensory artist and scientist wrapped into one since they are always open to accepting new and experimental approaches. Two years ago, he published an article titled "ASMR for People Who Don't Get Tingles" to convert skeptics. Since then, it has had over 11 million views and an overwhelming number of good comments, which has convinced many previously skeptical people. If you're having trouble dozing due to insomnia, you should check out ASMR NEXT LEVEL for Brain Melting Tingles and Deep Sleep.
@@ -210,9 +196,6 @@ Thus, you finally have the answer to **does ASMR help you sleep.** Yes, ASMR is 
 
 So, now that you know what ASMR is and **why does ASMR make you sleepy**, here are some tips you can use in your daily life to maximize the positive effects of these sleep videos.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. Turn off notifications, including vibration
 
 A late-night phone call will undoubtedly wake you up. The solution is to mute phones before bed. Even silent phone vibrations might disrupt sleep. (30 dB might interrupt sleep) Even if you don't wake up, it may create a lighter sleep period, leaving you unrested. Before bed, set "do not disturb." During the stated time, it mutes calls, emails, and notifications—no ringing or buzzing. The content continues without warning. In an emergency, you may customize the mode to accept specific calls.
@@ -220,16 +203,14 @@ A late-night phone call will undoubtedly wake you up. The solution is to mute ph
 ![turn off notification](https://images.wondershare.com/filmora/article-images/2022/11/asmr-for-sleep-8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Turn off YouTube autoplay
 
 YouTube's autoplay function makes it much simpler to choose what to watch next on the platform. When you turn on autoplay, the following relevant video in the playlist will begin playing automatically when the previous video finishes playing. It continues playing videos, so you don't have to choose a new video to view once the one you're watching stops playing. To maximize **ASMR sleep**, you can switch off autoplay and avoid the discomfort of having to search for the back button to halt unwanted music frantically.
 
 ![turn off youtube auto play](https://images.wondershare.com/filmora/article-images/2022/11/asmr-for-sleep-9.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 ### 3\. Stop finding the best sleeping position and focus on the ASMR
 
@@ -237,18 +218,12 @@ Instead of finding a good sleeping posture, watch **an ASMR sleep video**. Accor
 
 ![best sleeping position](https://images.wondershare.com/filmora/article-images/2022/11/asmr-for-sleep-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 4: FAQs
 
 ### Why do I take so long to get to the point where I can fall asleep?
 
 Caffeine use, stress, working irregular shifts, and traveling are all factors that might make it difficult to fall asleep. Sleep issues may also keep individuals awake at night. Your healthcare physician should be able to assist you in determining the cause of your prolonged difficulty falling or staying asleep.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Why is it that I keep getting awake in between sleep?
 
 Some factors contributing to improper sleep include:
@@ -291,4 +266,16 @@ Thus, you finally have the answer to **does ASMR help you sleep.** Yes, ASMR is 
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-picture-paradise-expertly-selected-plugins-and-sites-for-frame-upgrades/"><u>[New] In 2024, Picture Paradise Expertly Selected Plugins & Sites for Frame Upgrades</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-powerdirector-unleashed-in-depth-2024-analysis-and-guide/"><u>[New] PowerDirector Unleashed In-Depth 2024 Analysis and Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2023-play-facebook-videos-on-tv-in-2024/"><u>[Updated] 2023 | Play Facebook Videos on TV, In 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-perfecting-the-art-of-silence-increase-in-audacity/"><u>[Updated] 2024 Approved Perfecting the Art of Silence Increase in Audacity</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-breakthrough-tools-an-analysis-of-the-top-10-cost-effective-video-design-schools-on-youtube-for-2024/"><u>[Updated] Breakthrough Tools An Analysis of the Top 10 Cost-Effective Video Design Schools on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-starting-out-building-your-youtube-presence-and-earning-for-2024/"><u>[Updated] Starting Out Building Your YouTube Presence & Earning for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-smart-users-guide-to-enhancing-technology-for-2024/"><u>[Updated] The Smart User's Guide to Enhancing Technology for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-the-smart-users-guide-to-enhancing-technology/"><u>2024 Approved The Smart User's Guide to Enhancing Technology</u></a></li>
+<li><a href="https://driver-install.techidaily.com/install-canon-mx870-driver-for-windows-10-7-and-8/"><u>Install Canon MX870 Driver for Windows 10, 7 & 8</u></a></li>
+</ul></div>
 

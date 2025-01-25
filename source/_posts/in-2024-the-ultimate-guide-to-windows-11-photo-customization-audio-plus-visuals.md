@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, The Ultimate Guide to Windows 11 Photo Customization  Audio + Visuals\""
-date: 2025-01-11T22:59:37.391Z
-updated: 2025-01-18T19:23:20.446Z
+date: 2025-01-24T04:05:45.121Z
+updated: 2025-01-24T19:30:21.223Z
 tags: 
   - screen-recording
   - ai video
@@ -50,10 +50,6 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
 **Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
@@ -63,7 +59,7 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 **Step 5**: Just select one you like. Preview it and then click Done.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to add music on Windows 10 Photos App
@@ -78,18 +74,22 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5**: Hit the ‘Done’ button.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -99,7 +99,7 @@ From the above article, we conclude that Windows 10 Photos app is an amazing app
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -127,18 +127,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-accessible-alternatives-googles-simplicity-versus-samsungs-innovation/"><u>[New] 2024 Approved Accessible Alternatives Google's Simplicity Versus Samsung's Innovation</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-harnessing-the-power-of-color-difference-keying-methods/"><u>[New] In 2024, Harnessing the Power of Color Difference Keying Methods</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-proven-pathways-to-promoting-in-vr-lands/"><u>[New] Proven Pathways to Promoting in VR Lands</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-safely-stream-your-soundtracks-three-methods-from-youtube/"><u>[Updated] In 2024, Safely Stream Your Soundtracks Three Methods From YouTube</u></a></li>
-<li><a href="https://extra-information.techidaily.com/advanced-photography-iphones-leading-object-cutting-tools-revealed/"><u>Advanced Photography IPhone's Leading Object Cutting Tools Revealed</u></a></li>
-<li><a href="https://win11.techidaily.com/eradicating-microsoft-shop-fault-0x80131500/"><u>Eradicating Microsoft Shop Fault #0X80131500</u></a></li>
-<li><a href="https://fox-info.techidaily.com/gtx-gems-the-best-for-high-res-gaming/"><u>GTX Gems The Best for High-Res Gaming</u></a></li>
-<li><a href="https://fox-info.techidaily.com/how-to-manipulate-your-instagram-storys-playback-velocity-for-2024/"><u>How to Manipulate Your Instagram Story's Playback Velocity for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-xs-max-passcode-without-itunes-without-knowing-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone XS Max Passcode without iTunes without Knowing Passcode? | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-navigating-through-numbers-a-full-guide-for-measuring-youtube-success/"><u>In 2024, Navigating Through Numbers A Full Guide for Measuring YouTube Success</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-the-complete-evaluation-of-theta-s-360-vr-camera/"><u>In 2024, The Complete Evaluation of Theta S 360° VR Camera</u></a></li>
-<li><a href="https://fox-info.techidaily.com/step-by-step-process-to-create-impressive-gopro-timelapses/"><u>Step-by-Step Process to Create Impressive GoPro Timelapses</u></a></li>
-<li><a href="https://howto.techidaily.com/why-is-my-infinix-smart-8-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Infinix Smart 8 Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-enthralling-readers-with-these-stellar-5-book-promo-videos/"><u>[New] In 2024, Enthralling Readers with These Stellar 5 Book Promo Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-pushing-boundaries-with-iphones-motion-blur-capabilities-for-2024/"><u>[New] Pushing Boundaries with iPhone’s Motion-Blur Capabilities for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-telegram-marketing-made-simple-for-those-just-starting-out/"><u>[Updated] 2024 Approved Telegram Marketing Made Simple For Those Just Starting Out</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-sonic-spellbook-can-you-alter-your-speech-discover-different-magical-solutions/"><u>[Updated] Sonic Spellbook Can You Alter Your Speech? Discover Different Magical Solutions</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-spring-screenrecorder-simplified-your-ultimate-guide-for-2024/"><u>[Updated] Spring ScreenRecorder Simplified Your Ultimate Guide for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-step-by-step-guide-to-reverse-image-searching-on-instagram-for-2024/"><u>[Updated] Step-by-Step Guide to Reverse Image Searching on Instagram for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/7-ways-to-lock-apps-on-iphone-xs-max-and-ipad-securely-drfone-by-drfone-ios/"><u>7 Ways to Lock Apps on iPhone XS Max and iPad Securely | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/elite-streaming-gear-top-hd-360-cameras-compared/"><u>Elite Streaming Gear Top HD 360° Cameras Compared</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/full-guide-to-bypass-infinix-hot-40-pro-frp-by-drfone-android/"><u>Full Guide to Bypass Infinix Hot 40 Pro FRP</u></a></li>
+<li><a href="https://fake-location.techidaily.com/is-pgsharp-legal-when-you-are-playing-pokemon-on-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>Is pgsharp legal when you are playing pokemon On Xiaomi Civi 3? | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/sonic-shifts-for-strategic-victories-in-free-fire/"><u>Sonic Shifts for Strategic Victories in Free Fire</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-nubia-z50-ultra-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Nubia Z50 Ultra Offline? Troubleshooting Guide | Dr.fone</u></a></li>
 </ul></div>
 

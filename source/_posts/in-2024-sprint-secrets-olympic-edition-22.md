@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Sprint Secrets - Olympic Edition '22\""
-date: 2025-01-11T23:22:54.502Z
-updated: 2025-01-19T00:01:56.033Z
+date: 2025-01-17T23:51:49.287Z
+updated: 2025-01-24T19:23:19.517Z
 tags: 
   - screen-recording
   - ai video
@@ -27,10 +27,6 @@ Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with contr
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
 ## Part 1\. Introduce some highlights in short track speed skating with images
@@ -45,6 +41,10 @@ Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
@@ -54,7 +54,7 @@ Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
@@ -69,21 +69,9 @@ The last leg of competition among skaters before reaching the finishing line at 
 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -98,6 +86,10 @@ To create such a highlight video on any sports event, there are certain videos e
 **Motion Tracking** – Using motion tracking, you can track the movement of a particular object or athlete in a video. This helps to attach certain elements such as clipart, text, icon to that particular athlete throughout the video for easy identification by the viewers.
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -117,6 +109,10 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
 
 Step 3: Go to Import > Import Media Files and bring in all the still footages and short clips you have collected. You can also use the option Import with Instant Cutter Tool to trim the footages and clips for uniformity.
@@ -126,6 +122,10 @@ Step 4: Add all the still footages and clips on the Video Timeline while add aud
 Step 5: Select individual slides and apply Transition, Effects or add Titles and Elements from the top bar.
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -150,20 +150,22 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-labyrinth-luminaries-top-10-roguelike-highlights/"><u>[New] 2024 Approved Labyrinth Luminaries Top 10 Roguelike Highlights</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-deciphering-the-technicalities-of-recmeister-screen-recording/"><u>[Updated] Deciphering the Technicalities of Recmeister Screen Recording</u></a></li>
-<li><a href="https://fox-info.techidaily.com/cinematic-craftsman-corner-qanda-hub/"><u>Cinematic Craftsman Corner Q&A Hub</u></a></li>
-<li><a href="https://fox-info.techidaily.com/complete-guide-to-windows-movie-maker-60-downloading/"><u>Complete Guide to Windows Movie Maker 6.0 Downloading</u></a></li>
-<li><a href="https://fox-info.techidaily.com/compre-written-in-clear-language-this-ultimate-guide-explores-all-facets-of-using-the-iphone-xs-animoji-feature-for-2024/"><u>Compre Written in Clear Language, This Ultimate Guide Explores All Facets of Using the iPhone X's Animoji Feature for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/cutting-edge-techniques-for-video-production-in-windows-photos/"><u>Cutting-Edge Techniques for Video Production in Windows Photos</u></a></li>
-<li><a href="https://fox-info.techidaily.com/cutting-edge-title-design-in-after-effects/"><u>Cutting-Edge Title Design in After Effects</u></a></li>
-<li><a href="https://fox-info.techidaily.com/easy-to-follow-action-cam-buyers-blueprint-23/"><u>Easy-to-Follow Action Cam Buyers’ Blueprint '23</u></a></li>
-<li><a href="https://fox-info.techidaily.com/elevate-your-photo-editing-with-lunapic-pro-tips-for-2024/"><u>Elevate Your Photo Editing with Lunapic Pro Tips for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-tecno-spark-go-2023-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Tecno Spark Go (2023) For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-infinix-zero-5g-2023-turbo-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Infinix Zero 5G 2023 Turbo to Other Android Devices? | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/lenovo-t520-how-to-seamlessly-update-drivers-in-no-time/"><u>Lenovo T520 - How to Seamlessly Update Drivers in No Time</u></a></li>
-<li><a href="https://win-community.techidaily.com/the-pros-and-cons-of-outsourcing-registry-cleanup-tasks-expert-advice-by-yl-computing-experts/"><u>The Pros and Cons of Outsourcing Registry Cleanup Tasks – Expert Advice by YL Computing Experts</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-poco-m6-5g-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Poco M6 5G to iPhone 14/15 | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/ultimate-smartphone-camera-recording-tools-iphoneandroid-edition-for-2024/"><u>Ultimate Smartphone Camera Recording Tools - iPhone/Android Edition for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-mastering-desktop-and-mobile-capturing-team-video-conferences/"><u>[New] 2024 Approved Mastering Desktop & Mobile Capturing Team Video Conferences</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-blueprint-for-thriving-in-virtual-events-stream-success-tips/"><u>[New] Blueprint for Thriving In Virtual Events Stream Success Tips</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-dynamic-photovideo-gimbal-unmatched-stabilization-for-2024/"><u>[New] Dynamic Photo/Video Gimbal Unmatched Stabilization for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-zipping-to-captions-direct-method-for-srt-file-creation/"><u>[New] In 2024, Zipping to Captions Direct Method for .Srt File Creation</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-no-credit-calls-unlocking-free-tools-for-iphone-photo-blurring-for-2024/"><u>[New] No Credit Calls Unlocking Free Tools for iPhone Photo Blurring for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-rhythm-ringtone-converting-tamil-music-into-phone-chimes-for-2024/"><u>[New] Rhythm Ringtone Converting Tamil Music Into Phone Chimes for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-live-without-the-convenience-of-youtube-shorts/"><u>[Updated] 2024 Approved How To Live Without the Convenience of YouTube Shorts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-quantifiable-quirks-yearly-graphed-tidbits-from-yt-2017/"><u>[Updated] Quantifiable Quirks Yearly Graphed Tidbits From YT (2017)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-ultimate-guide-leading-4k-uhd-blu-ray-devices/"><u>[Updated] Ultimate Guide Leading 4K UHD Blu-Ray Devices</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-srs-adjustment-guide-boosting-performance-on-both-platforms/"><u>2024 Approved SRS Adjustment Guide Boosting Performance on Both Platforms</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-honor-magic-5-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Honor Magic 5 Lite? | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-mastering-transitions-kinemasters-step-by-step-tutorial/"><u>In 2024, Mastering Transitions Kinemaster's Step-by-Step Tutorial</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-navigate-the-sea-of-stunning-pexels-imagery-with-ease/"><u>In 2024, Navigate the Sea of Stunning Pexels Imagery with Ease</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/live-streaming-pro-manycam-top-of-the-line-virtual-camera-app/"><u>Live Streaming Pro - ManyCam: Top-of-the-Line Virtual Camera App</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/revisiting-streamers-for-enhanced-experience-for-2024/"><u>Revisiting Streamers for Enhanced Experience for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-supreme-selection-an-honour-roll-of-top-10-reddit-discussions/"><u>The Supreme Selection An Honour Roll of Top 10 Reddit Discussions</u></a></li>
+<li><a href="https://facebook.techidaily.com/transition-to-new-login-credentials-in-facebook/"><u>Transition to New Login Credentials in Facebook</u></a></li>
 </ul></div>
 

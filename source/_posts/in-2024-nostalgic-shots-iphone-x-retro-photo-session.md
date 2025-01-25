@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Nostalgic Shots  IPhone X Retro Photo Session\""
-date: 2025-01-13T00:23:36.506Z
-updated: 2025-01-18T22:01:48.897Z
+date: 2025-01-22T17:38:16.935Z
+updated: 2025-01-25T04:39:24.918Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,10 @@ In this article, we are going to show you how to take photos in Portrait Mode, o
 * [Part 1: For iPhone 7 Plus/8 Plus/X users](#part1)
 * [Part 1: For iPhone 8, 7 or older iPhones users](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### For iPhone 7 Plus/8 Plus/X users
 
  **Using the Portrait Mode on an iPhone**
@@ -49,10 +53,6 @@ The quality of cameras on iPhones has been improving over the years, and Portrai
 However, the Portrait Mode is only featured on iOS 10.1 or some more recent versions of the iOS, so if you want to use the Portrait Mode you need to upgrade your device's iOS. After you launched the camera app, swipe left and look for the Portrait Mode. Once you find the feature, make sure it is marked yellow, in order to start using its tools. The app will display several different lighting options including the Natural Light preset that is essential for creating photos with Portrait Lightning.
 
 ![portrait-mode-iphone](https://images.wondershare.com/filmora/article-images/portrait-mode-iphone.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Image resource: 9to5mac
 
@@ -65,7 +65,7 @@ The iPhone X can also take Portrait selfies thanks to the TrueDepth front camera
 ![portrait-mode-selfie-iphone-x](https://images.wondershare.com/filmora/article-images/portrait-mode-selfie-iphone-x.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image resource: imore
@@ -73,6 +73,10 @@ Image resource: imore
 Launch the Camera app, and swipe to the Portrait option, and then tap on the Camera Swap feature to start using the front camera on your iPhone. Find the Portrait Lightning feature in the camera's Portrait mode, then select one of the options provided by the Portrait Lightning such as Studio Light or Natural light, and proceed to snap a selfie by tapping on the shutter button.
 
 If there is not enough light or if you are too far away from the camera, the app will show messages that remind you to add more light to your shot or hold the camera closer to the subject of the photo. It is worth noting that the app will not let you take a photo until you do everything that messages on the screen demand from you. However, the Portrait Mode doesn't allow you to take several photos at once, but it still produces amazing pictures that can be easily shared on social media.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### For iPhone 8, 7 or older iPhones users
 
@@ -84,10 +88,6 @@ If there is not enough light or if you are too far away from the camera, the app
 
 ![ezy-watermark-lite-photo](https://images.wondershare.com/filmora/article-images/ezy-watermark-lite-photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Older iPhone models may not have a twin-lens system, but with the aid of a camera app such as FabFocus, iPhone photographers can easily take photos with smooth blurry backgrounds. The Automatic Depth of Field and Bokeh options enable you to add as much blur as you want to your photos and create DSLR-like images. The app also contains basic photo editing tools that can be used to touch-up the photo before you share it with your friends.
 
 #### [Tadaa SLR](https://itunes.apple.com/us/app/tadaa-slr/id724662909?mt=8)
@@ -97,6 +97,10 @@ Older iPhone models may not have a twin-lens system, but with the aid of a camer
 **Compatible with:** iOS 8.0 or later
 
 ![iwatermark-watermark-photos](https://images.wondershare.com/filmora/article-images/iwatermark-watermark-photos.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Advertised as the best depth-of-field app for iPhones on the market today, Tadaa SLR sets high photography standards. To make things even better, the app is so easy to use that you just need to set the focal point of the photo and tap on the shutter button to snap a photo. However, Tadaa SLR is only a camera app that doesn't offer a lot of photo editing options.
 
@@ -118,16 +122,12 @@ The term Bokeh comes from the Japanese language and it represents the aesthetic 
 
 ![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -155,24 +155,16 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-record-webcam-video-with-vlc/"><u>[New] Record Webcam Video with VLC</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-step-by-step-review-mastering-the-art-of-picsart-for-2024/"><u>[New] Step-by-Step Review Mastering the Art of PicsArt for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-discover-the-secret-to-character-customization-vocal-variety-in-free-fire/"><u>2024 Approved Discover the Secret to Character Customization Vocal Variety in Free Fire</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-limitless-text-in-format-best-free-psd/"><u>2024 Approved Limitless Text in Format Best FREE PSD</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-master-the-science-and-art-of-attention-grabbing-titles/"><u>2024 Approved Master the Science and Art of Attention-Grabbing Titles</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-proiphone-close-up-techniques-unlocking-creative-vision/"><u>2024 Approved Proiphone Close-Up Techniques Unlocking Creative Vision</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-return-crafting-kit/"><u>2024 Approved Return Crafting Kit</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-scaling-your-channel-a-guide-to-increased-viewership-and-followers/"><u>2024 Approved Scaling Your Channel A Guide to Increased Viewership and Followers</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-unearth-17-methods-a-complete-guide-to-tracking-internet-radio/"><u>2024 Approved Unearth 17 Methods A Complete Guide to Tracking Internet Radio</u></a></li>
-<li><a href="https://fox-info.techidaily.com/achieving-a-natural-sound-curve-dimming-audio-smoothly-for-2024/"><u>Achieving a Natural Sound Curve Dimming Audio Smoothly for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/advanced-techniques-in-aerial-cinematography/"><u>Advanced Techniques in Aerial Cinematography</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/exploring-the-influence-of-ai-conversational-agents-on-creative-writing-and-content/"><u>Exploring the Influence of AI Conversational Agents on Creative Writing and Content</u></a></li>
-<li><a href="https://network-issues.techidaily.com/fatal-blackout-after-driver-switch/"><u>Fatal Blackout After Driver Switch</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-honor-magic-6-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Honor Magic 6</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-the-essentials-of-writing-amazing-end-of-episode-scripts/"><u>In 2024, The Essentials of Writing Amazing End-of-Episode Scripts</u></a></li>
-<li><a href="https://extra-information.techidaily.com/masterpiece-makers-leading-ios-draw-tools/"><u>Masterpiece Makers Leading iOS Draw Tools</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/pureimages-backdrop-refinement-feature-for-2024/"><u>PureImage's Backdrop Refinement Feature for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/swift-strategies-mastering-shader-optimization-challenges-in-star-wars-battlefront-ii/"><u>Swift Strategies: Mastering Shader Optimization Challenges in Star Wars Battlefront II</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/tackling-negative-comments-a-content-creators-mantra-for-2024/"><u>Tackling Negative Comments A Content Creator's Mantra for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-unveil-your-creative-potential-comprehensive-guide-to-powerdirector-pro/"><u>[New] 2024 Approved Unveil Your Creative Potential Comprehensive Guide to PowerDirector Pro</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/onquer-common-youtube-short-setbacks/"><u>[New] Conquer Common YouTube Short Setbacks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-accelerate-your-channel-growth-affordable-subscribers-available/"><u>[Updated] 2024 Approved Accelerate Your Channel Growth - Affordable Subscribers Available</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-steps-to-disable-auto-recommended-podcasts-in-spotify/"><u>[Updated] 2024 Approved Steps to Disable Auto-Recommended Podcasts in Spotify</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-enhance-video-content-with-these-expertly-curated-online-subtitles-editors/"><u>[Updated] Enhance Video Content with These Expertly Curated Online Subtitles Editors</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-nikons-d500-takes-on-4k-clarity-and-quality/"><u>[Updated] In 2024, Nikon's D500 Takes on 4K Clarity and Quality</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-laughlineart-memogallery-for-2024/"><u>[Updated] LaughLineArt MemoGallery for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/buffer-to-broadcast-learn-how-to-convert-your-youtube-viewing-into-a-screenshot-for-free-for-2024/"><u>From Buffer to Broadcast Learn How to Convert Your YouTube Viewing Into a Screenshot for Free for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-cutting-edge-pc-editing-techniques-enhancing-your-youtube-presence/"><u>In 2024, Cutting-Edge PC Editing Techniques Enhancing Your YouTube Presence</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/step-by-step-detecting-memory-problems-in-windows-systems-with-tips-from-yl-software-experts/"><u>Step-by-Step: Detecting Memory Problems in Windows Systems with Tips From YL Software Experts</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/understanding-and-utilizing-the-registry-keys-tab-in-windows-systems/"><u>Understanding and Utilizing the Registry Keys Tab in Windows Systems</u></a></li>
 </ul></div>
 

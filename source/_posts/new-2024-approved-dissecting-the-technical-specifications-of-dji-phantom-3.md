@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Dissecting the Technical Specifications of DJI Phantom 3\""
-date: 2025-01-12T23:13:19.807Z
-updated: 2025-01-18T17:17:11.548Z
+date: 2025-01-18T16:11:48.191Z
+updated: 2025-01-25T03:27:15.409Z
 tags: 
   - screen-recording
   - ai video
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 ![phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Complete review for DJ Phantom 3 Standard
@@ -85,7 +85,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 ![phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard-controller.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  By using specially designed control sticks you can easily move the motors in desired direction. On the other side, the advanced application provides easy controls to flight modes, GPS, signal strength and battery level monitoring. The bottom portion of application indicates speed, altitude, heading and other location based details. Map will help users to gain full control over live view details and it will update the hybrid or satellite based location information on the go.
@@ -97,7 +97,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 ![phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard-camera.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Phantom 3 Standard is able to capture videos with three different modes: HD, HHD and 2.7 K resolution level; whereas, you can enjoy stills with 12MP capabilities. All the resulting videos of Phantom device use to be of excellent quality with crystal clear details and all movements are reflected with very smooth and clean fashion. The great news is here that phantom 3 offers intuitive control video settings and one can make easy adjustments to avail soft, real and fuzzy videos.
@@ -105,7 +105,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -133,19 +133,24 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-coders-showdown-which-codec-will-dominate-video-quality-for-2024/"><u>[New] Coders' Showdown Which Codec Will Dominate Video Quality for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-elevating-your-tiktok-presence-a-comprehensible-guide-to-bg-updates-for-2024/"><u>[New] Elevating Your TikTok Presence A Comprehensible Guide to BG Updates for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-experience-the-thrill-of-kinemaster-and-rank-10-online-alternatives-alike/"><u>2024 Approved Experience the Thrill of KineMaster and Rank 10 Online Alternatives Alike</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-perfecting-skies-top-11-must-have-dji-accessories/"><u>2024 Approved Perfecting Skies Top 11 Must-Have DJI Accessories</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-premium-screens-at-their-peak-top-10-listings-for-4k-monitors/"><u>2024 Approved Premium Screens at Their Peak Top #10 Listings for 4K Monitors</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-pushing-boundaries-in-motion-photography/"><u>2024 Approved Pushing Boundaries in Motion Photography</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-the-ultimate-guide-to-professional-photo-coloring/"><u>2024 Approved The Ultimate Guide to Professional Photo Coloring</u></a></li>
-<li><a href="https://fox-info.techidaily.com/advanced-techniques-sending-subtitles-to-instagram-linkedin/"><u>Advanced Techniques Sending Subtitles to Instagram, LinkedIn</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-contacts-from-itel-p40plus-by-fonelab-android-recover-contacts/"><u>How to Rescue Lost Contacts from Itel P40+?</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-end-your-videos-professionally-with-these-free-tools-top-6/"><u>In 2024, End Your Videos Professionally with These Free Tools (Top 6)</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-xiaomi-redmi-note-13-pro-5g-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Xiaomi Redmi Note 13 Pro 5G?</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/step-by-step-installing-intel-integrated-graphic-driver-updates-for-windows-os-v10-and-11/"><u>Step by Step: Installing Intel Integrated Graphic Driver Updates for Windows OS v10 and 11</u></a></li>
-<li><a href="https://some-tips.techidaily.com/the-essential-8-in-virtual-reality-gaming-for-2024/"><u>The Essential 8 in Virtual Reality Gaming for 2024</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-how-to-create-closed-captions-in-final-cut-pro-x-2023-update/"><u>Updated In 2024, How to Create Closed Captions in Final Cut Pro X (2023 Update)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-effortlessly-schedule-meetings-with-zoom-through-email/"><u>[New] 2024 Approved Effortlessly Schedule Meetings with Zoom Through Email</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-from-monotonous-to-melodic-mastering-personalization-of-androids-audio-alerts/"><u>[New] 2024 Approved From Monotonous to Melodic Mastering Personalization of Android's Audio Alerts</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-pristine-screenshot-tool-free-and-simple/"><u>[New] 2024 Approved Pristine Screenshot Tool - Free and Simple</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-radiant-realities-setting-up-for-standout-videos/"><u>[New] In 2024, Radiant Realities Setting Up for Standout Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-translate-compressed-files-into-subtitle-format-srt/"><u>[New] In 2024, Translate Compressed Files Into Subtitle Format (SRT)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-venturing-into-virtual-studio-technology-vst-world/"><u>[New] Venturing Into Virtual Studio Technology (VST) World</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-10-tips-for-shooting-profesional-youtube-videos-for-2024/"><u>[Updated] 10 Tips For Shooting Profesional YouTube Videos for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-essential-iphone-app-recommendations-for-watermarking-pics/"><u>[Updated] 2024 Approved Essential iPhone App Recommendations for Watermarking Pics</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-breaking-the-freeze-reviving-your-obs-cam/"><u>[Updated] In 2024, Breaking the Freeze Reviving Your OBS Cam</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-closing-your-vlog-right-top-6-free-youtube-outro-tools/"><u>[Updated] In 2024, Closing Your Vlog Right Top 6 Free YouTube Outro Tools</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-volume-control-strategies-in-logic-pro-productions/"><u>[Updated] Volume Control Strategies in Logic Pro Productions</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-auditory-enhancement-strategies-for-video-creators/"><u>2024 Approved Auditory Enhancement Strategies for Video Creators</u></a></li>
+<li><a href="https://common-error.techidaily.com/effective-solutions-to-overcome-secured-connection-problems-in-firefox/"><u>Effective Solutions to Overcome 'Secured Connection' Problems in Firefox</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-5-solutions-for-honor-magic-5-pro-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Honor Magic 5 Pro Unlock Without Password</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-step-by-step-guide-enhancing-snaps-with-zoom-feature/"><u>In 2024, Step-by-Step Guide Enhancing Snaps with Zoom Feature</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-the-serenity-of-silence-premier-asmr-talents/"><u>In 2024, The Serenity of Silence Premier ASMR Talents</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/legal-battles-heat-up-competing-brands-accused-of-copying-cooler-masters-patented-radiator-technology/"><u>Legal Battles Heat Up: Competing Brands Accused of Copying Cooler Master's Patented Radiator Technology</u></a></li>
+<li><a href="https://fox-info.techidaily.com/majestic-visual-chronicles-compiler-suite/"><u>Majestic Visual Chronicles Compiler Suite</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-resolving-valheims-stutters-and-pauses-on-windows-computers/"><u>Troubleshooting: Resolving Valheim's Stutters and Pauses on Windows Computers</u></a></li>
 </ul></div>
 

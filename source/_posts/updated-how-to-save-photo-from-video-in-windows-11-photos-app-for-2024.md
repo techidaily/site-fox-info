@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Save Photo From Video in Windows 11 Photos App for 2024"
-date: 2025-01-17T19:10:22.663Z
-updated: 2025-01-18T21:34:04.664Z
+date: 2025-01-24T07:10:52.918Z
+updated: 2025-01-25T08:20:37.927Z
 tags: 
   - screen-recording
   - ai video
@@ -40,7 +40,7 @@ In this article, you will learn how to save photo from Windows 10 Photos app and
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to save photo from Windows 10 Photos app
@@ -57,7 +57,7 @@ Creating a living image:
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Now, you can see the living picture by tapping ‘Play’ button.
@@ -69,11 +69,11 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
 
-* This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+* This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
 ## Part 2: Why I can’t save photo from video
 
@@ -101,12 +101,12 @@ Here comes the guide –
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -115,7 +115,7 @@ We provided you some knowledge on how to save a photo from video Windows 10 Phot
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,18 +143,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-discovering-the-best-screen-recorder-obs-studio-vs-fraps-for-2024/"><u>[Updated] Discovering the Best Screen Recorder OBS Studio Vs Fraps for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-expert-tips-for-altering-and-personalizing-iphone-ringtones/"><u>[Updated] In 2024, Expert Tips for Altering & Personalizing iPhone Ringtones</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-high-definition-dominance-leading-monitors-for-ps5-hdmi-21/"><u>[Updated] In 2024, High-Definition Dominance Leading Monitors for PS5 (HDMI 2.1)</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-setting-the-scene-ideal-video-aspect-ratios-and-widths-for-youtube/"><u>[Updated] Setting the Scene Ideal Video Aspect Ratios & Widths for YouTube</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-complete-activity-inspection-guide/"><u>2024 Approved Complete Activity Inspection Guide</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-cutting-through-complexity-simplifying-your-approach-to-lut-design/"><u>2024 Approved Cutting Through Complexity Simplifying Your Approach to LUT Design</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-effortless-ios-podcast-acquisition-the-ultimate-guidebook/"><u>2024 Approved Effortless iOS Podcast Acquisition The Ultimate Guidebook</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-excellent-devices-for-frame-by-frame-filmmaking/"><u>2024 Approved Excellent Devices for Frame-by-Frame Filmmaking</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-joyful-journeys-the-ultimate-list-of-familial-classics/"><u>2024 Approved Joyful Journeys The Ultimate List of Familial Classics</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Realme Narzo N55 | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-overcome-easy-anti-cheat-missing-when-starting-games-solutions-unveiled/"><u>How to Overcome 'Easy Anti-Cheat Missing' When Starting Games - Solutions Unveiled!</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlock-iphone-14-pro-when-we-dont-have-apple-id-or-password-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 14 Pro When We Dont Have Apple ID or Password?</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolving-windows-11-boot-loop-problems-for-a-smooth-computer-shutdown/"><u>Resolving Windows 11 Boot Loop Problems for a Smooth Computer Shutdown</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-navigating-the-world-of-drone-races-and-top-fpv-choices/"><u>[New] 2024 Approved Navigating the World of Drone Races & Top FPV Choices</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-vivavideo-review-insights-and-impressions/"><u>[New] 2024 Approved VivaVideo Review Insights and Impressions</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-family-fantasy-films-this-summers-best-10-classics/"><u>[New] In 2024, Family Fantasy Films This Summer's Best 10 Classics</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-no-cost-digital-revenue-prognosticator/"><u>[New] No-Cost Digital Revenue Prognosticator</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-creating-engaging-visual-narratives-from-photographs-using-pixiz-written/"><u>[Updated] Creating Engaging Visual Narratives From Photographs Using Pixiz' Written</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-advanced-tips-for-removing-backgrounds-in-affinity-photo/"><u>[Updated] In 2024, Advanced Tips for Removing Backgrounds in Affinity Photo</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-mastering-the-art-of-focused-cinematography-on-kinemaster/"><u>[Updated] In 2024, Mastering the Art of Focused Cinematography on Kinemaster</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-navigating-youtube-studio-for-effective-video-alterations-for-2024/"><u>[Updated] Navigating YouTube Studio for Effective Video Alterations for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-top-online-tips-creating-title-magic/"><u>In 2024, Top Online Tips Creating Title Magic</u></a></li>
+<li><a href="https://fox-info.techidaily.com/mastering-multimedia-adding-apple-music-to-videos/"><u>Mastering Multimedia Adding Apple Music to Videos</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-sony-xperia-5-v-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Sony Xperia 5 V Phone? Unlock It Now</u></a></li>
+<li><a href="https://win-exclusive.techidaily.com/optimizing-windows-letevel-of-performance-solutions-for-slow-ssds/"><u>Optimizing Windows Letevel of Performance: Solutions for Slow SSDs</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/revive-the-audio-expert-solutions-for-silent-hp-notebook-users/"><u>Revive the Audio: Expert Solutions for Silent HP Notebook Users</u></a></li>
+<li><a href="https://extra-support.techidaily.com/revolutionize-streaming-top-converters-transform-4k-content-for-2024/"><u>Revolutionize Streaming Top Converters Transform 4K Content for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/shadowy-time-lapse-recording-methods-for-2024/"><u>Shadowy Time-Lapse Recording Methods for 2024</u></a></li>
+<li><a href="https://fox-search.techidaily.com/solving-scanner-and-software-integration-problems-a-guide-by-yl-computing/"><u>Solving Scanner & Software Integration Problems: A Guide by YL Computing</u></a></li>
 </ul></div>
 

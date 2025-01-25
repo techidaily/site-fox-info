@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  A Comprehensive Walkthrough  WMP Caption Addition\""
-date: 2025-01-13T20:15:48.431Z
-updated: 2025-01-19T00:39:55.865Z
+date: 2025-01-22T23:12:25.101Z
+updated: 2025-01-25T00:54:02.687Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,10 @@ Windows Media Player is still maintaining its wide popularity among users from e
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Step by Step Guide
 
 The process of adding subtitles to video clips is quite simple; you need to follow these steps: First of all, you need to install Windows media player on your Personal Computer. Prefer to get the latest version, it is easily available over internet and can be downloaded and installed by beginners too. Once your software tool is ready on your system then proceed ahead.
@@ -40,10 +44,6 @@ The process of adding subtitles to video clips is quite simple; you need to foll
 **Step 1:** First of all you need to save your video and subtitle file with same name. It is not possible to manually add subtitles using Window Media Player but it can easily detect all subtitles when both files are saved with same name.
 
 ![ ](https://images.wondershare.com/filmora/article-images/subtitle-wmp-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 2:** Once you are done with the first step then simply open your Window Media Player and move to the Library Mode. Now switch to play, then Lyrics, captions and finally you will reach at subtitles. Hit this option and choose “On if Available”. The same option is also available in the Now Playing Mode where you simply need to right click and this option will appear in drop down menu.
 
@@ -55,31 +55,31 @@ The process of adding subtitles to video clips is quite simple; you need to foll
 
 ![ ](https://images.wondershare.com/filmora/article-images/subtitle-wmp-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 5:** Within very less time application will get opened with a fresh window on your system. Now move to tabs of different video file types then search for the option that says: “Disable Media Foundation for MP4/MKV and AVI etc”. Further, go to the swap tab and then disable window media foundation.
 
 ![ ](https://images.wondershare.com/filmora/article-images/subtitle-wmp-4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 As soon as you will finish all these settings, your subtitles will appear perfectly over video and you can enjoy great synchronism for all content. Window Media player tool is capable enough to make effective adjustments for subtitle placements and it will take just a few minutes to complete all these steps.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Websites for Downloading Subtitles
 
 If you are searching for websites that can help you to download subtitles for your videos then this list can be useful for you:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### [1. Moviesubtitles.com:](http://www.moviesubtitles.org/movies.html)
 
 You will be glad to know that this website offers subtitles in wide range of languages. Users can simply initiate search for latest subtitle files, most popular movies or most download subtitles. All these subtitles packs are available for free and they are usually packed in WinZip file formats.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### [2. Subscene.com:](https://subscene.com/browse/latest/film/1)
 
@@ -96,7 +96,7 @@ One more online platform for downloading wide range of subtitles and the best th
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -124,18 +124,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-efficient-ways-to-delete-previewed-content-from-youtubes-queue/"><u>[New] 2024 Approved Efficient Ways to Delete Previewed Content From YouTube's Queue</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-shine-bright-with-these-simple-android-video-steps/"><u>[New] 2024 Approved Shine Bright with These Simple Android Video Steps</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-hidden-highlight-harvester/"><u>[Updated] Hidden Highlight Harvester</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-capturing-the-cloudline-in-your-backyard-the-revolutionary-dji-spark-unveiled/"><u>2024 Approved Capturing the Cloudline in Your Backyard The Revolutionary DJI Spark Unveiled</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-enlightened-approaches-for-podcast-aesthetics/"><u>2024 Approved Enlightened Approaches for Podcast Aesthetics</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-exploring-imovies-automated-size-control/"><u>2024 Approved Exploring iMovie's Automated Size Control</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-mastering-the-process-essential-techniques-and-strategies-for-green-screen-filmmaking/"><u>2024 Approved Mastering the Process Essential Techniques & Strategies for Green Screen Filmmaking</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-navigating-new-skies-with-syma-x5c-an-experts-take-for-novices/"><u>2024 Approved Navigating New Skies with Syma X5C – An Expert’s Take for Novices</u></a></li>
-<li><a href="https://games-able.techidaily.com/decoding-twitch-platform-features-and-usage-tips/"><u>Decoding Twitch: Platform Features and Usage Tips</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oppo-f23-5g-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Oppo F23 5G To Phone | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/limited-time-offer-snag-the-new-apple-pencil-for-just-95-exclusive-deals-this-labor-day/"><u>Limited-Time Offer: Snag the New Apple Pencil for Just $95 - Exclusive Deals This Labor Day !</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/optimize-online-presence-through-cookiebot-power/"><u>Optimize Online Presence Through Cookiebot Power</u></a></li>
-<li><a href="https://techidaily.com/steam-gaming-community-how-to-send-and-receive-games-effortlessly/"><u>Steam Gaming Community: How to Send and Receive Games Effortlessly</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-how-iphoneandroid-users-add-soundtracks-to-their-profile-for-2024/"><u>[New] How iPhone/Android Users Add Soundtracks to Their Profile for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-capturing-knowledge-three-approaches-with-mac/"><u>[New] In 2024, Capturing Knowledge Three Approaches with Mac</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-aural-tales-the-best-of-radio-plays/"><u>[Updated] Aural Tales The Best of Radio Plays</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-pro-tips-for-streaming-and-screening-netflix-on-mac/"><u>[Updated] In 2024, Pro-Tips for Streaming & Screening Netflix on Mac</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-navigate-the-best-free-photography-enhancers-worldwide/"><u>[Updated] Navigate the Best Free Photography Enhancers Worldwide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-unparalleled-8-webcams-elevate-your-livestream-experience-for-2024/"><u>[Updated] Unparalleled 8 Webcams Elevate Your Livestream Experience for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-ultimate-tiktok-to-mp4-recorder/"><u>2024 Approved Ultimate TikTok to MP4 Recorder</u></a></li>
+<li><a href="https://fox-info.techidaily.com/from-raw-footage-to-final-product-using-windows-10-for-editing-success/"><u>From Raw Footage to Final Product Using Windows 10 for Editing Success</u></a></li>
+<li><a href="https://win-hot.techidaily.com/get-ready-microsoft-announces-paid-windows-10-update-model-starting-next-year-estimated-cost-breakdown/"><u>Get Ready: Microsoft Announces Paid Windows 10 Update Model Starting Next Year - Estimated Cost Breakdown</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-successfully-upgrade-to-windows-10-20h2-with-updated-connexant-drivers/"><u>How to Successfully Upgrade to Windows 10 20H2 with Updated Connexant Drivers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-generate-funny-image-jokes-at-flipfotohub/"><u>In 2024, Generate Funny Image Jokes at FlipFotoHub</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-premium-money-forecasting-aid-for-tiktok-artists/"><u>In 2024, Premium Money Forecasting Aid for TikTok Artists</u></a></li>
+<li><a href="https://fox-info.techidaily.com/optimal-charger-solutions-for-gopro-hero5-genuine-and-imitative-companies-for-2024/"><u>Optimal Charger Solutions for GoPro Hero5 Genuine & Imitative Companies for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/premier-sounds-selections-for-video-creation-for-2024/"><u>Premier Sounds Selections for Video Creation for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/proven-methods-for-conducting-outstanding-interviews-for-2024/"><u>Proven Methods for Conducting Outstanding Interviews for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/unlock-your-potential-with-expert-picked-video-stabilization-tools-for-2024/"><u>Unlock Your Potential with Expert-Picked Video Stabilization Tools for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Xiaomi Redmi K70 | Dr.fone</u></a></li>
 </ul></div>
 

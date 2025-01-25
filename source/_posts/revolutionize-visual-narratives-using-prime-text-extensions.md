@@ -1,7 +1,7 @@
 ---
 title: "Revolutionize Visual Narratives Using Prime Text Extensions"
-date: 2025-01-12T22:49:53.771Z
-updated: 2025-01-18T19:49:51.808Z
+date: 2025-01-23T18:02:37.901Z
+updated: 2025-01-25T06:15:31.919Z
 tags: 
   - screen-recording
   - ai video
@@ -33,10 +33,6 @@ TextDelay is a native plugin, meaning that you will find it already installed on
 
 ![text delay plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-delay-plugin.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## TextExploder
 
 Link: <https://aescripts.com/textexploder/>
@@ -44,6 +40,14 @@ Link: <https://aescripts.com/textexploder/>
 TextExploder is an After Effects plugin that is developed by MamoWorld and it allows you to split the text layers in After Effects into words, lines, characters, and more. These splits are so powerful that you can very easily isolate a single word or even a single letter.
 
 ![text exploder plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-exploder-plugin.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## iExpressions 2
 
@@ -62,7 +66,7 @@ If you want to create the perfect shape behind your text, then TextBox is a good
 ![text box plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-box-plugin.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Font Manager
@@ -74,7 +78,11 @@ Font Manager is an After Effects text plugin that is useful when creating and wo
 ![font manager plugin](https://images.wondershare.com/filmora/article-images/2022/07/font-manager-plugin.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Cartoon Moblur
@@ -85,23 +93,11 @@ This is the most ideal plugin to choose when you want to add motion trail to the
 
 ![cartoon moblur plugin](https://images.wondershare.com/filmora/article-images/2022/07/cartoon-moblur-plugin.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Shadow Studio
 
 If you are looking for shadow styles that will go very well with your project, Shadow Studio is a good plugin to get. It offers you a wide variety of shadow styles including radial, inner, soft, and long shadows. Most people find it an easier and more affordable way to add soft shadows as compared to traditional methods like raytracing. It is also quite easy to use, meaning that shadow effects that would take hours to complete can be done in a matter of minutes.
 
 ![shadow studio plugin](https://images.wondershare.com/filmora/article-images/2022/07/shadow-studio-plugin.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Texts Animation Bundle
 
@@ -111,6 +107,10 @@ This is a bundle of more than 80 different templates to add text effects to any 
 
 ![texts animation bundle plugin](https://images.wondershare.com/filmora/article-images/2022/07/texts-animation-bundle-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Artificial Intelligence Titles
 
 Link: <https://videohive.net/item/ait-artificial-intelligence-titles/22124640?s%5Frank=1>
@@ -119,10 +119,6 @@ The Artificial Intelligence Titles is an After Effects text plugin that is desig
 
 ![artificial intelligence titles plugin](https://images.wondershare.com/filmora/article-images/2022/07/artificial-intelligence-titles-plugin.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Text Library
 
 Link: <https://videohive.net/item/text-library-handy-text-animations/21932974>
@@ -130,6 +126,10 @@ Link: <https://videohive.net/item/text-library-handy-text-animations/21932974>
 This is another great text animation bundle with different options for just about any kind of project. But unlike other plugin bundles that only have a few effects to choose from, Text Library has thousands of templates to choose from. Once you have selected the template that you would like to use, you also get the option to customize the template to suit your project. You can customize the text, size, duration of the animation, and color. It is easy to use and is constantly updated to introduce even more templates with each update.
 
 ![text library plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-library-plugin.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -165,24 +165,15 @@ On its own After Effects comes with so many post-production effects and features
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-jumpstart-your-youtube-channel-growth-with-key-editing-skills-from-sony-vegas/"><u>[New] Jumpstart Your YouTube Channel Growth with Key Editing Skills From Sony Vegas</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-top-windows-film-and-multimedia-production-applications-guide/"><u>[New] Top Windows Film & Multimedia Production Applications Guide</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-elevate-your-gaming-by-recording-ps3-games/"><u>[Updated] 2024 Approved Elevate Your Gaming by Recording PS3 Games</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-unveiling-top-5-essential-android-photo-editing-software/"><u>[Updated] In 2024, Unveiling Top 5 Essential Android Photo Editing Software</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-virtual-worlds-practical-applications/"><u>2024 Approved Virtual World's Practical Applications</u></a></li>
-<li><a href="https://fox-tips.techidaily.com/1728470146926-aomei-backupper/"><u>AOMEI Backupperでシステムイメージ復元プロセスガイド</u></a></li>
-<li><a href="https://fox-info.techidaily.com/combining-youtube-tunes-and-film-vectors-for-2024/"><u>Combining YouTube Tunes and Film Vectors for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/cutting-to-the-beat-making-short-films-on-your-iphone/"><u>Cutting to the Beat Making Short Films on Your iPhone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/deep-dive-into-srt-mechanics-and-performance/"><u>Deep Dive Into SRT Mechanics and Performance</u></a></li>
-<li><a href="https://fox-info.techidaily.com/deep-windows-11-know-how-importing-media-like-a-pro/"><u>Deep Windows 11 Know-How Importing Media Like a Pro</u></a></li>
-<li><a href="https://fox-info.techidaily.com/devices-needed-for-documenting-trips/"><u>Devices Needed for Documenting Trips</u></a></li>
-<li><a href="https://fox-info.techidaily.com/effective-ways-to-modify-tracks-tempo-on-spotify/"><u>Effective Ways to Modify Tracks Tempo on Spotify</u></a></li>
-<li><a href="https://fox-info.techidaily.com/efficiently-cut-out-distractions-in-your-iphone-photography-for-2024/"><u>Efficiently Cut Out Distractions in Your iPhone Photography for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/effortless-image-edit-eliminating-backdrops-in-canvas/"><u>Effortless Image Edit Eliminating Backdrops in Canvas</u></a></li>
-<li><a href="https://fox-info.techidaily.com/elevate-your-photos-decoding-the-best-canva-tips/"><u>Elevate Your Photos Decoding the Best Canva Tips</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/five-iphone-podcast-services-to-streaming/"><u>Five iPhone Podcast Services to Streaming</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Tecno Pova 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/the-professional-path-to-broadcasting-full-dome-content-on-fb/"><u>The Professional Path to Broadcasting Full-Dome Content on FB</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/windows-11s-latest-traits-unveiled/"><u>Windows 11'S Latest Traits Unveiled</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-metaverse-chronicles-a-list-of-the-most-unforgettable-sci-fi-adventures-on-screen/"><u>[New] In 2024, Metaverse Chronicles A List of the Most Unforgettable Sci-Fi Adventures on Screen</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/1716068938201-new-in-2024-seeking-the-best-ps2-games-try-these-5-android-emulators/"><u>[New] In 2024, Seeking the Best PS2 Games? Try These 5 Android Emulators!</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-mastering-motion-effects-in-ai-enhancing-photoshop-images/"><u>[New] Mastering Motion Effects in AI Enhancing Photoshop Images</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-jokesterjigsaw-toolkit-for-2024/"><u>[Updated] JokesterJigsaw Toolkit for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-perfect-your-video-calls-on-zoom/"><u>[Updated] Perfect Your Video Calls on Zoom</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-securely-and-swiftly-acquiring-your-youtube-watch-lists/"><u>[Updated] Securely and Swiftly Acquiring Your YouTube Watch Lists</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-usb-c-revolution-with-lgs-ultra-hd-tv-the-27ud88-for-2024/"><u>[Updated] USB-C Revolution with LG's Ultra HD TV, the 27UD88 for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/analyzing-the-path-less-traveled-by-bruce-katz-and-jennifer-bradley-a-comprehensive-look-at-urban-mobility-in-the-new-city-insights-and-discussions/"><u>Analyzing the 'Path Less Traveled' By Bruce Katz and Jennifer Bradley - A Comprehensive Look at Urban Mobility in 'The New City': Insights & Discussions</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-driven-technology-enhancing-your-websites-performance/"><u>Cookiebot-Driven Technology: Enhancing Your Website's Performance</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-fake-gps-without-root-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Fake GPS Without Root On Oppo A38 | Dr.fone</u></a></li>
 </ul></div>
 

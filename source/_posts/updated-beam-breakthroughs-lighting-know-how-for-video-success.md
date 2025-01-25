@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Beam Breakthroughs  Lighting Know-How for Video Success\""
-date: 2024-08-15T19:51:32.378Z
-updated: 2024-08-16T19:51:32.378Z
+date: 2025-01-23T02:34:47.886Z
+updated: 2025-01-25T07:55:56.818Z
 tags: 
   - screen-recording
   - ai video
@@ -60,6 +60,10 @@ The fill light is used to fill in the shadows created by the key light. It is us
 
 ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
 
 ##### Step4 Use Practical Lights
@@ -68,9 +72,17 @@ Practical lights appear on the camera to add some visual flair. It can be any li
 
 ![use practical lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
 
 ![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
 
@@ -86,6 +98,10 @@ After setting up all the lighting above, you can take a look at the comparison b
 
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **_3) Pro Tips: The light setting_**
 
 We usually set the lights around 50% brightness and a color temperature of 5600K.
@@ -93,9 +109,9 @@ We usually set the lights around 50% brightness and a color temperature of 5600K
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Summary
 
 Hopefully, you learned something about lighting by taking a look at our setup. If you want to know and learn about other lighting tutorials, don’t hesitate to let us know in the comments.
@@ -128,4 +144,22 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-peak-color-alignment-tool-for-2024/"><u>[New] Peak Color Alignment Tool for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-step-by-step-add-vimeo-in-instagram-reels/"><u>[New] Step-by-Step Add Vimeo in Instagram Reels</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-tips-for-constructing-inspirational-day-to-day-visual-narratives/"><u>[New] Tips for Constructing Inspirational Day-to-Day Visual Narratives</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-10-best-mobile-writing-tools-for-iosandroid-images/"><u>[Updated] 10 Best Mobile Writing Tools for iOS/Android Images</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-elite-webcams-transforming-podcast-creation/"><u>[Updated] Elite Webcams Transforming Podcast Creation</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-harness-canons-power-explore-10-basic-free-luts-and-more/"><u>[Updated] Harness Canon's Power Explore 10 Basic Free LUTs and More</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-how-to-make-a-photo-video-with-pixiz-for-2024/"><u>[Updated] How to Make a Photo Video with Pixiz for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-top-handheld-tech-to-eliminate-shaky-screenshot-videos-for-2024/"><u>[Updated] Top Handheld Tech to Eliminate Shaky Screenshot Videos for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/approach-consider-the-non-reactivity-and-safety-of-materials-with-potable-water/"><u>Approach: Consider the Non-Reactivity and Safety of Materials with Potable Water.</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/fixing-disabled-gpu-settings-on-windows-devices-win1011/"><u>Fixing Disabled GPU Settings on Windows Devices (Win10/11)</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/from-amateur-to-expert-crafting-professional-gopro-content-for-2024/"><u>From Amateur to Expert Crafting Professional Gopro Content for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-does-fitbit-charge-6-stack-up-an-authoritative-wearable-tech-review/"><u>How Does Fitbit Charge 6 Stack Up? An Authoritative Wearable Tech Review</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-advanced-photo-manipulation-focus-on-content-not-backdrop/"><u>In 2024, Advanced Photo Manipulation Focus on Content, Not Backdrop</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-expert-tips-and-strategies-to-make-your-podcast-title-stand-out/"><u>In 2024, Expert Tips & Strategies to Make Your Podcast Title Stand Out</u></a></li>
+<li><a href="https://fox-info.techidaily.com/perfect-pick-kids-preferred-drones/"><u>Perfect Pick Kids' Preferred Drones</u></a></li>
+</ul></div>
 

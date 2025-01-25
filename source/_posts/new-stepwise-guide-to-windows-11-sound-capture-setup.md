@@ -1,7 +1,7 @@
 ---
 title: "[New] Stepwise Guide to Windows 11 Sound Capture Setup"
-date: 2025-01-13T19:35:07.159Z
-updated: 2025-01-18T16:19:37.238Z
+date: 2025-01-20T16:18:26.020Z
+updated: 2025-01-24T21:39:09.686Z
 tags: 
   - screen-recording
   - ai video
@@ -41,15 +41,15 @@ Even though there are limited features available in comparison to other audio re
 
 ![record button](https://images.wondershare.com/filmora/article-images/record-button.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ****Step 3:** Click on Stop button to stop the recording. Alternatively, you can use Spacebar or Enter key to stop recording.
 
 ![stop button](https://images.wondershare.com/filmora/article-images/stop-button.jpg)
 
 The recorded audio will be saved automatically in Documents under Sound Recordings folder.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Audacity
 
@@ -63,16 +63,12 @@ Audacity is a completely free audio recording software for Windows 10\. Audacity
 
 ![red record button to start recording](https://images.wondershare.com/filmora/article-images/red-record-button-to-start-recording.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ****Step 4:** To stop recording, click on Black Stop button. Go to File > Export As to save the file in desired file format.
 
 ![black stop button](https://images.wondershare.com/filmora/article-images/black-stop-button.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Quick Sound Recorder Free
@@ -85,11 +81,11 @@ Step 2: Open the app and click on Microphone icon to start recording instantly. 
 
 ![the recording time](https://images.wondershare.com/filmora/article-images/the-recording-time.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 3: To stop recording, click on Stop button and save the recording in MP3 file.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Adobe Audition
 
@@ -125,10 +121,6 @@ Step 2: From Record menu, go to Record Voiceover option.
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 3: From the pop-up box, select the external microphone. Click on Record button to start recording.
 
 Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
@@ -152,7 +144,7 @@ Step 3: From the pop-up box, select the external microphone. Click on Record but
 Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -170,12 +162,16 @@ Step 2: From Record menu, go to Record Voiceover option.
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 3: From the pop-up box, select the external microphone. Click on Record button to start recording.
 
 Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -194,6 +190,10 @@ Step 2: From Record menu, go to Record Voiceover option.
 Step 3: From the pop-up box, select the external microphone. Click on Record button to start recording.
 
 Step 4: When you are done, click on Stop button and export the recorded audio in MP3 format.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -223,20 +223,20 @@ We have how to record audio on Windows 10 using free as well as premium software
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-tips-to-enhance-screen-brightness-of-youtube-videos/"><u>[New] Tips to Enhance Screen Brightness of YouTube Videos</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-evaluating-tunefab-for-video-capture-excellence/"><u>[Updated] In 2024, Evaluating Tunefab for Video Capture Excellence</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-top-titles-essential-hd-video-playback-tools-freepaid/"><u>[Updated] Top Titles Essential HD Video Playback Tools (Free/Paid)</u></a></li>
-<li><a href="https://fox-info.techidaily.com/10-best-free-luts-with-download-links-for-2024/"><u>10 Best Free LUTs with Download Links for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-android-tips-creating-stunning-slow-motion-videos/"><u>2024 Approved Android Tips Creating Stunning Slow Motion Videos</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-discover-the-magic-of-editing-in-60-seconds-with-snapseed/"><u>2024 Approved Discover the Magic of Editing in 60 Seconds with Snapseed</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-excellent-spots-for-tamil-ringtones-acquisition-guide/"><u>2024 Approved Excellent Spots for Tamil Ringtones Acquisition Guide</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-screening-success-10-movies-that-energize-and-empower/"><u>2024 Approved Screening Success 10 Movies That Energize & Empower</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-the-ultimate-zoom-companion-for-snapchat-enthusiasts/"><u>2024 Approved The Ultimate Zoom Companion for Snapchat Enthusiasts</u></a></li>
-<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-nokia-c110-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone Nokia C110 Phone? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-oppo-find-x7-ultra-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from Oppo Find X7 Ultra.</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/finding-cost-effective-buys-on-gopros-for-2024/"><u>Finding Cost-Effective Buys on GoPros for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/hdr-mastery-transforming-your-portrait-journey/"><u>HDR Mastery Transforming Your Portrait Journey</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-the-essential-guide-to-choosing-the-best-3d-video-maker/"><u>New 2024 Approved The Essential Guide to Choosing the Best 3D Video Maker</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/resolving-itunes-wireless-synchronization-issues-on-your-iphone-a-step-by-step-guide/"><u>Resolving iTunes Wireless Synchronization Issues on Your iPhone - A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-a-compreited-list-of-top-5-iphone-apps-revolutionizing-podcasts/"><u>[New] A Compreited List of Top 5 iPhone Apps Revolutionizing Podcasts</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-from-studio-to-stage-stream-your-mp3-tunes-on-youtube-for-2024/"><u>[New] From Studio to Stage Stream Your MP3 Tunes on YouTube for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-full-exploration-of-the-sj7s-high-definition-star-cameras-for-action/"><u>[New] Full Exploration of the SJ7's High-Definition Star Cameras for Action</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-optimal-selection-top-cost-effective-iosandroid-live-streamers/"><u>[New] Optimal Selection Top Cost-Effective iOS/Android Live Streamers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/hake-the-sound-mobile-beats-best-ripplers/"><u>[New] Shake the Sound Mobile Beats' Best Ripplers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-the-ultimate-step-by-step-for-adding-srt-to-mp4-for-2024/"><u>[New] The Ultimate Step-by-Step for Adding SRT to MP4 for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-choosing-prime-top-8-budget-friendly-srt-translator-tools/"><u>[Updated] Choosing Prime Top 8 Budget-Friendly SRT Translator Tools</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-full-guide-to-enhancing-photos-with-facetune-app-for-2024/"><u>[Updated] Full Guide to Enhancing Photos with Facetune App for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-radiant-contrast-synchronizer/"><u>[Updated] In 2024, Radiant Contrast Synchronizer</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-staying-grounded-in-vr-worlds/"><u>[Updated] Staying Grounded in VR Worlds</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-roadmap-for-successful-online-brand-collaborations-on-youtube/"><u>[Updated] The Roadmap for Successful Online Brand Collaborations on Youtube</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/discover-alternative-digital-assets-a-comprehensive-guide-beyond-bitcoin-insights-by-yl-tech/"><u>Discover Alternative Digital Assets: A Comprehensive Guide Beyond Bitcoin - Insights by YL Tech</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-realme-c51-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Realme C51 | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-vertical-video-editing-in-the-cloud-top-web-apps-for-2024/"><u>New Vertical Video Editing in the Cloud Top Web Apps for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/rise-in-the-rankings-essential-seo-for-video-creators-for-2024/"><u>Rise in the Rankings Essential SEO for Video Creators for 2024</u></a></li>
 </ul></div>
 
