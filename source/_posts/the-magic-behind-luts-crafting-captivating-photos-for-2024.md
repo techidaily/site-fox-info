@@ -1,7 +1,7 @@
 ---
 title: "\"The Magic Behind LUTs  Crafting Captivating Photos for 2024\""
-date: 2025-01-23T23:03:37.652Z
-updated: 2025-01-25T02:36:40.841Z
+date: 2025-01-31T17:04:58.488Z
+updated: 2025-02-02T16:39:07.982Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,10 @@ Warm or cold tones and bold or washed-out styles are all options provided by the
 
 Photographers may now utilize the same techniques that film, and television editors have used for years to achieve the excellent new aesthetics seen in blockbusters. With quick LUT looks, you can now apply LUTs to your photographs to make your editing work stand out.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to use LUTs using Photoshop CC?
 
 LUTs come pre-installed with programs, but you may also purchase them online and add them to your software. You may even buy a look from your favorite film or television show. In Photoshop, LUTs are simple to apply. You can begin in Photoshop with the original photo, which is an image that was captured locally, unprocessed, and straight out of the camera.
@@ -64,7 +68,7 @@ LUTs come pre-installed with programs, but you may also purchase them online and
 ![how to use luts using Photoshop cc](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Choose Adjustment Layer
@@ -75,6 +79,10 @@ Choose Adjustment Layer
 
 ![how to use luts using Photoshop cc - load 3d lut](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 load 3d lut
 
 1. When you select one, you'll see how the color and tone of the image change.
@@ -84,7 +92,7 @@ load 3d lut
 LUTs come pre-installed in Photoshop, and you can use them as adjustment layers. As mentioned earlier, they'll alter the image's colors, and some of them will also alter the contrast. But what if you want to add LUTs? To add LUTs to Photoshop, you have two options. The first is really simple; all you have to do is discover the LUT and apply it to that specific project. The alternative is a little more difficult, but it enables you to access your LUTs at all times.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Here's the first method
@@ -93,10 +101,6 @@ LUTs come pre-installed in Photoshop, and you can use them as adjustment layers.
 2. When discussing Photoshop, the project is typically an image, so go ahead and open it. Open a new one by pressing 'Ctrl+O' or importing something from your cloud.
 3. To do so, go to the 'Adjustments' tab and select the 'Color Lookup' button.
 4. Select the 'Load 3D LUT' button, then navigate to the directory where you unpacked the LUT files.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Here's the second one
 
@@ -115,7 +119,7 @@ Grow Together
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Closing Thoughts:
@@ -127,10 +131,6 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](#)
 
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Closing Thoughts:
 
@@ -162,21 +162,24 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-visionary-virtual-worlds-the-top-ten-sci-fi-films-of-the-metaverse-age/"><u>[New] 2024 Approved Visionary Virtual Worlds The Top Ten Sci-Fi Films of the Metaverse Age</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-best-websites-to-download-game-of-thrones-ringtones/"><u>[New] In 2024, Best Websites to Download Game of Thrones Ringtones</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-satirical-shots-reimagined-the-best-onlineiosandroid-tools/"><u>[New] Satirical Shots Reimagined The Best Online/iOS/Android Tools</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-shape-viral-memes-using-adobe/"><u>[New] Shape Viral Memes Using Adobe</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-unlocking-speed-edit-photos-in-windows-11/"><u>[New] Unlocking Speed Edit Photos in Windows 11</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-unnoticed-yet-there-watching-instagram-livestreams-undetected/"><u>[New] Unnoticed Yet There Watching Instagram Livestreams Undetected</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-cutting-ties-with-instagram-users/"><u>[Updated] 2024 Approved Cutting Ties with Instagram Users</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-core-virtual-reality-cinematic-gems-for-2024/"><u>[Updated] Core Virtual Reality Cinematic Gems for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-rippleringers-finding-the-happiest-online-rhythms/"><u>[Updated] RippleRingers Finding the Happiest Online Rhythms</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-skys-dynamic-range-masterpieces-website-roundup-for-2024/"><u>[Updated] Sky's Dynamic Range Masterpieces - Website Roundup for 2024</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/exploring-pc-gear-with-tom-in-depth-reviews-and-insights-on-hardware/"><u>Exploring PC Gear with Tom: In-Depth Reviews & Insights on Hardware</u></a></li>
-<li><a href="https://fox-info.techidaily.com/exploring-yi-4ks-potential-with-an-action-vlogger/"><u>Exploring Yi 4K's Potential with an Action Vlogger</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-xiaomi-redmi-note-12r-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Xiaomi Redmi Note 12R Location Settings | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-silencing-sound-obs-audio-solution/"><u>In 2024, Silencing Sound OBS Audio Solution</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1726027852331-mts/"><u>MTS形式トラブルシューティング: スムーズな再生のヒントと対策</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/the-ultimate-checklist-for-starting-a-live-feed-for-2024/"><u>The Ultimate Checklist for Starting a Live Feed for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-budget-friendly-hd-cameras-for-thrilling-moments/"><u>[New] Budget-Friendly HD Cameras for Thrilling Moments</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-expert-psd-overhaul-techniques-for-2024/"><u>[New] Expert PSD Overhaul Techniques for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-how-to-monetize-your-live-webcam-shows-for-2024/"><u>[New] How to Monetize Your Live Webcam Shows for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-captivating-captions-writing-copy-that-drives-engagement-and-views/"><u>[New] In 2024, Captivating Captions Writing Copy That Drives Engagement and Views</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-probing-into-hdr-effectiveness-with-luminance-writings/"><u>[New] Probing Into HDR Effectiveness with Luminance’ Writings</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-vrs-role-in-shaping-future-films/"><u>[New] VR's Role in Shaping Future Films</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-jpeg-to-gif-with-a-click-ranked-list-of-top-free-converters/"><u>[Updated] 2024 Approved JPEG to GIF with a Click Ranked List of Top Free Converters</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-ustream-showcase-plus-similar-video-sites/"><u>[Updated] 2024 Approved Ustream Showcase + Similar Video Sites</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-audio-alchemy-mixing-techniques-for-sound-fusion-with-davinci-resolve-for-2024/"><u>[Updated] Audio Alchemy Mixing Techniques for Sound Fusion with DaVinci Resolve for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-deciphering-your-social-media-shadows-privacy-on-facebook/"><u>[Updated] In 2024, Deciphering Your Social Media Shadows Privacy on Facebook</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-streamlined-online-gif-conversion-for-videos-top-5/"><u>[Updated] In 2024, Streamlined Online GIF Conversion for Videos (Top 5)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-up-audio-in-youtube-a-step-by-step-guide/"><u>Clear Up Audio in YouTube A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/harmony-in-sounds-legally-downloaded-meditation-chants-and-more-for-2024/"><u>Harmony in Sounds Legally Downloaded Meditation Chants & More for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-discerning-the-good-and-bad-in-virtual-space/"><u>In 2024, Discerning the Good & Bad in Virtual Space</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Apple iPhone X? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigate-verification-vexations-top-tips-to-turbo-charge-installation/"><u>Navigate Verification Vexations: Top Tips to Turbo-Charge Installation</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/secure-your-animated-gifs-with-these-winning-recording-software-on-pc/"><u>Secure Your Animated GIFs with These Winning Recording Software on PC</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/time-warp-with-snapchat-reversing-videos-simplified-for-2024/"><u>Time Warp with Snapchat Reversing Videos Simplified for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/top-3-tactics-transforming-pin-videos-into-mp3-sounds/"><u>Top 3 Tactics Transforming Pin Videos Into MP3 Sounds</u></a></li>
 </ul></div>
 

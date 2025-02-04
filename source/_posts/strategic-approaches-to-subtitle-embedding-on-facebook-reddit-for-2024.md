@@ -1,7 +1,7 @@
 ---
 title: "Strategic Approaches to Subtitle Embedding on Facebook, Reddit for 2024"
-date: 2024-08-08T10:19:22.558Z
-updated: 2024-08-09T10:19:22.558Z
+date: 2025-01-26T16:39:44.661Z
+updated: 2025-02-02T16:23:41.748Z
 tags: 
   - screen-recording
   - ai video
@@ -54,11 +54,12 @@ Step1Sign in to your YouTube channel and locate the 'YouTube Creator Studio'. Th
 
 ![subtitles](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-youtube-video-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2Select the Video that you want to add SRT to. Then click 'Add Language' and select the language you wrote your Subtitle.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![add language](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-youtube-video-2.jpg)
 
 Step3Click Add under the Subtitle section and upload your SRT file through the pop-up that appears on your screen.
@@ -77,25 +78,14 @@ Step2Upload the video you want to add the SRT file to. Then select 'Upload Capti
 
 Step3Click on 'Upload Caption' from the pop-up that appears on your screen. Then choose the SRT file that you want to upload.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![upload caption](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-tweets-2.jpg)
 
 Step4Click Done. Then you'll see the name of the language in your captions is written
 
 Step5Now play the video to preview the subtitle and if you're satisfied, publish your tweet instantly.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ![tweet instantly](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-tweets-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## Part 3: Upload SRT Files to Your Vimeo Video
 
 Vimeo is another platform that's similar to YouTube. It allows users to upload and watch video content online. So, if you're using Vimeo, you can easily add SRT files to your video by following the steps outlined below;
@@ -113,9 +103,9 @@ Step4Once you've successfully uploaded the SRT file, it'll show up under "Enable
 Step5Finally, hit the 'Save' button to complete the operation.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 4: Upload SRT Files to Facebook Videos
 
 Facebook is one of the biggest social media apps, and videos posted on the app have the potential of reaching millions of folks globally. So, if you've been posting videos on Facebook without subtitles, then that has to change because adding SRT to Facebook videos will not only allow your video to be easily understandable without turning on audio but also broaden your social reach.
@@ -126,9 +116,17 @@ Step1Open your Facebook account and locate the Video that you want to add SRT su
 
 ![click on edit](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-facebook-videos-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2Click on "Ädd Captions" and use the "Upload" button to add your SRT file. Your SRT file must be in this format Filename.en\_US.srt.
 
 ![dd captions](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-facebook-videos-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step3Once the SRT file upload is completed, use the Save button to complete the SRT upload operation.
 
@@ -148,9 +146,6 @@ Now let's proceed to the steps on how to edit SRT files with the Filmora video e
 
 Step1Launch the Filmora software on your PC and use the Import button to upload the SRT file from your PC or just drag-n-drop it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![upload the srt file](https://images.wondershare.com/filmora/article-images/2022/09/how-to-edit-srt-for-videos-1.jpg)
 
 Step2Move the uploaded SRT file to the timeline and right-click on it, then select "Advanced Edit" from the pop-up list.
@@ -159,17 +154,15 @@ Step2Move the uploaded SRT file to the timeline and right-click on it, then sele
 
 Step3Edit different aspects of the SRT subtitle ranging from its time code, text, etc., and changing subtitle styles, like text color, shadow, fonts, etc.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![changing subtitle styles](https://images.wondershare.com/filmora/article-images/2022/09/how-to-edit-srt-for-videos-3.jpg)
 
 Step4Once editing is completed, navigate to the timeline of the SRT file and right-click on it, then choose "Export Subtitle file" to complete the action.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![navigate to the timeline](https://images.wondershare.com/filmora/article-images/2022/09/how-to-edit-srt-for-videos-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -183,9 +176,6 @@ However, when you're looking to edit SRT subtitle file, the best thing to do is 
 
 From the overview table above, it's obvious you can easily create one SRT file and easily use it on different social media channels. This saves you the stress of creating different subtitle files for each platform. So, without further ado, let's dive in to find out how to upload and add .srt files to different social media platforms.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 1: Upload SRT Files to YouTube Videos
 
 If you're a YouTube video content creator, but you still don't know the benefit of adding subtitles to your videos, let's give you the top two main hints on how subtitles affect your videos;
@@ -203,9 +193,6 @@ Now you know how subtitles affect your videos, and what the difference between S
 
 Step1Sign in to your YouTube channel and locate the 'YouTube Creator Studio'. Then select 'Subtitles' on the right menu.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![subtitles](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-youtube-video-1.jpg)
 
 Step2Select the Video that you want to add SRT to. Then click 'Add Language' and select the language you wrote your Subtitle.
@@ -215,8 +202,9 @@ Step2Select the Video that you want to add SRT to. Then click 'Add Language' and
 Step3Click Add under the Subtitle section and upload your SRT file through the pop-up that appears on your screen.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Upload SRT Files to Tweets
 
 Before now, Twitter users can only upload SRT files to video via the 'Media Studio', but this feature was not available to all users, making it difficult for some users to add subtitles to their videos.
@@ -237,9 +225,6 @@ Step4Click Done. Then you'll see the name of the language in your captions is wr
 
 Step5Now play the video to preview the subtitle and if you're satisfied, publish your tweet instantly.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![tweet instantly](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-tweets-3.jpg)
 
 ## Part 3: Upload SRT Files to Your Vimeo Video
@@ -252,14 +237,19 @@ Step2Choose the video that you want to add the SRT file to and click on 'Setting
 
 Step3Click 'Advanced' from the Settings page. Then navigate to "Add Caption & Subtitles" > click on "Choose File" to upload your SRT file.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![choose file](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-vimeo-videos-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4Once you've successfully uploaded the SRT file, it'll show up under "Enable Captions & Subtitles". Then verify that 'Status' is turned ON and select your file language and file type is SRT.
 
 Step5Finally, hit the 'Save' button to complete the operation.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: Upload SRT Files to Facebook Videos
 
@@ -273,18 +263,12 @@ Step1Open your Facebook account and locate the Video that you want to add SRT su
 
 Step2Click on "Ädd Captions" and use the "Upload" button to add your SRT file. Your SRT file must be in this format Filename.en\_US.srt.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![dd captions](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-facebook-videos-2.jpg)
 
 Step3Once the SRT file upload is completed, use the Save button to complete the SRT upload operation.
 
 ![complete the srt upload operation](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-facebook-videos-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ## Bonus Tips: Level Up Your Video by Editing SRT Subtitles Before Uploading
 
 If the need to edit your SRT subtitle arises, then [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) software is the right SRT editing tool to help you get the job done without having any issues. This software is popularly known for its outstanding capacity to not only edit SRT file but also edit different aspects of a video file seamlessly.
@@ -299,16 +283,14 @@ Now let's proceed to the steps on how to edit SRT files with the Filmora video e
 
 Step1Launch the Filmora software on your PC and use the Import button to upload the SRT file from your PC or just drag-n-drop it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ![upload the srt file](https://images.wondershare.com/filmora/article-images/2022/09/how-to-edit-srt-for-videos-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step2Move the uploaded SRT file to the timeline and right-click on it, then select "Advanced Edit" from the pop-up list.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![advanced edit](https://images.wondershare.com/filmora/article-images/2022/09/how-to-edit-srt-for-videos-2.jpg)
 
 Step3Edit different aspects of the SRT subtitle ranging from its time code, text, etc., and changing subtitle styles, like text color, shadow, fonts, etc.
@@ -317,10 +299,11 @@ Step3Edit different aspects of the SRT subtitle ranging from its time code, text
 
 Step4Once editing is completed, navigate to the timeline of the SRT file and right-click on it, then choose "Export Subtitle file" to complete the action.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ![navigate to the timeline](https://images.wondershare.com/filmora/article-images/2022/09/how-to-edit-srt-for-videos-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -354,4 +337,21 @@ However, when you're looking to edit SRT subtitle file, the best thing to do is 
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-best-meme-generator-app-downlaod/"><u>[New] 2024 Approved Best Meme Generator App Downlaod</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-ideal-steadicams-for-capturing-quality-uav-visuals/"><u>[New] Ideal Steadicams for Capturing Quality UAV Visuals</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-stealth-mode-a-guide-to-living-large-unlabeled/"><u>[New] In 2024, Stealth Mode A Guide to Living Large, Unlabeled</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-tips-to-add-music-to-whatsapp-status/"><u>[New] In 2024, Tips to Add Music to WhatsApp Status</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-narrative-skies-and-landscapes-in-a-snapshot/"><u>[New] Narrative Skies and Landscapes in a Snapshot</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-finding-the-ideal-soundtrack-for-unboxing-content/"><u>[Updated] Finding the Ideal Soundtrack for Unboxing Content</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-instagrams-temporal-twist-learn-how-to-turn-back-time/"><u>2024 Approved Instagram's Temporal Twist Learn How to Turn Back Time</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-step-by-step-lyric-video-crafting-with-lyric-video-maker/"><u>2024 Approved Step-by-Step Lyric Video Crafting with Lyric Video Maker</u></a></li>
+<li><a href="https://fox-info.techidaily.com/extensive-appraisal-the-essence-of-hero4-black-for-2024/"><u>Extensive Appraisal The Essence of Hero4 Black for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-visual-virtuosity-leading-photo-frames-websites-and-tools/"><u>In 2024, Visual Virtuosity Leading Photo Frames Websites and Tools</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/incredible-tiny-intelligent-voice-assistant-earpiece-unveiled-in-plaud-note-analysis/"><u>Incredible Tiny Intelligent Voice Assistant Earpiece Unveiled in Plaud Note Analysis</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/playful-pedal-powered-pastimes/"><u>Playful Pedal-Powered Pastimes</u></a></li>
+<li><a href="https://fox-info.techidaily.com/tackling-challenges-head-on-essentials-for-onestream-livestreamers/"><u>Tackling Challenges Head-On Essentials for OneStream Livestreamers</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-photographers-guide-to-negative-imaging/"><u>The Photographer’s Guide to Negative Imaging</u></a></li>
+</ul></div>
 

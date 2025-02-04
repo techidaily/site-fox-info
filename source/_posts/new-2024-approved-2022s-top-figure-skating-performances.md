@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  2022'S Top Figure Skating Performances\""
-date: 2025-01-22T22:58:43.190Z
-updated: 2025-01-25T02:56:04.604Z
+date: 2025-01-29T16:57:12.026Z
+updated: 2025-02-02T17:13:39.933Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ Nathan Chen of the United States won the gold medal at the 2022 Beijing Winter O
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1\. Highlights of Figure Skating Olympics Games Beijing2022
@@ -39,45 +39,41 @@ Nathan Chen got the combined score of 332.60 in short program and free skate com
 
 ![nathan chen skating](https://images.wondershare.com/filmora/article-images/nathan-chen-skating.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Nathan Chen of the United States reacts to winning the gold medal at the 2022 Beijing Winter Olympics. He successfully hit five quadruple jumps which helped him outshine others.
 
 ![nathan chen skating gold medal](https://images.wondershare.com/filmora/article-images/nathan-chen-skating-gold-medal.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United States. He receives a combined score of 310.05 points and wins the silver medal at the 2022 Beijing Winter Olympics.
 
 ![yuma kagiyama](https://images.wondershare.com/filmora/article-images/yuma-kagiyama.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shoma Uno of Japan won the bronze medal with a combined score of 293 points and he has become the second Japanese to win a medal at the 2022 Beijing Winter Olympics.
 
 ![shoma uno](https://images.wondershare.com/filmora/article-images/shoma-uno.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Nathan Chen successful triumph has been four years in the making and it is a perfect combination of seven perfect skating minutes. Back at 2018 Olympics, he botched and ended with disappointment. Therefore, Olympics Games Beijing2022 has been redemption for America's best male skater.
 
 ![nathan chen best male skater](https://images.wondershare.com/filmora/article-images/nathan-chen-best-male-skater.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Even though Nathan Chen finished first for men's short program of the team event, United States could not hold to the first position and losing to ROC.
 
 ![russian olympic committee athletes](https://images.wondershare.com/filmora/article-images/russian-olympic-committee-athletes.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Russian Olympic Committee athletes won the gold medal at team event by a margin of 9 points with the combined score of 74\. United States won the silver medal with a combined score of 65 points.
 
 ![japan won the bronze medal](https://images.wondershare.com/filmora/article-images/japan-won-the-bronze-medal.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Japan won the bronze medal with 63 points falling short by 2 points 2 behind the United States. The figure skating competition is held at the Capital Indoor Stadium in Beijing.
 
@@ -100,6 +96,10 @@ For macOS 10.12 or later
 Step 1: Download and install Filmora. Launch Filmora and click on New Project.
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step 2: Go to File > Project Settings and set the parameters as per your requirements.
 
@@ -136,15 +136,19 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-unlocking-top-notch-visuals-a-cost-free-approach/"><u>[New] In 2024, Unlocking Top-Notch Visuals A Cost-Free Approach</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-capturing-the-essence-of-facetime-on-facebook/"><u>[Updated] 2024 Approved Capturing the Essence of FaceTime on Facebook</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-essential-filming-gear-for-novices-and-aspiring-cinematographers/"><u>[Updated] 2024 Approved Essential Filming Gear for Novices and Aspiring Cinematographers</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-essential-steps-to-apply-a-creative-commons-copyright/"><u>[Updated] 2024 Approved Essential Steps to Apply a Creative Commons Copyright</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-filmoras-peers-the-best-slide-show-template-collections/"><u>[Updated] In 2024, Filmora's Peers The Best Slide Show Template Collections</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-senior-friendly-digital-network-spots/"><u>Best Senior-Friendly Digital Network Spots</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/discover-the-quintessential-elements-that-skyrocketed-chatgpt-to-record-breaking-growth/"><u>Discover the Quintessential Elements That Skyrocketed ChatGPT to Record-Breaking Growth</u></a></li>
-<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-oppo-a79-5g-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone Oppo A79 5G Phone? | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-your-one-stop-guide-30-prime-websites-offering-free-vectr-and-graphic-services/"><u>In 2024, Your One-Stop Guide 30 Prime Websites Offering Free Vectr & Graphic Services</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-essential-differences-between-youtube-and-dailymention/"><u>The Essential Differences Between YouTube and DailyMention</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-prime-editor-shortlist-top-10-for-instagram-reel-brilliance/"><u>[New] 2024 Approved The Prime Editor Shortlist Top 10 for Instagram Reel Brilliance</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-cinematic-chronology-best-video-cameras-for-detailed-speed-recording/"><u>[Updated] 2024 Approved Cinematic Chronology Best Video Cameras for Detailed Speed Recording</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-turn-swipes-to-love-powerful-tricks-and-ideas-for-standout-biographies/"><u>[Updated] 2024 Approved Turn Swipes to Love Powerful Tricks and Ideas for Standout Biographies</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-premium-pick-ios-sound-artisans-guidebook/"><u>[Updated] In 2024, Premium Pick IOS Sound Artisans Guidebook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-income-comparison-exercise-monetizing-videos-on-dailymovement-and-youtube/"><u>[Updated] Income Comparison Exercise Monetizing Videos on DailyMovement & YouTube</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-prime-dialogue-designer-space/"><u>[Updated] Prime Dialogue Designer Space</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-effortless-inclusion-of-linktree-in-your-tiktok-bio/"><u>2024 Approved Effortless Inclusion of Linktree in Your TikTok Bio</u></a></li>
+<li><a href="https://win11.techidaily.com/a-fresh-approach-to-managing-settings-in-win11-ui/"><u>A Fresh Approach to Managing Settings in Win11 UI</u></a></li>
+<li><a href="https://fox-where.techidaily.com/advanced-creative-tim-dashboard-template-in-react-featuring-premium-styling-and-bootstrap-enhancements/"><u>Advanced Creative Tim Dashboard Template in React, Featuring Premium Styling and Bootstrap Enhancements</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/enlarge-your-social-media-experience-by-displaying-tiktok-videos-on-the-big-screen/"><u>Enlarge Your Social Media Experience by Displaying TikTok Videos on the Big Screen!</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-newest-realtek-device-driver-software-for-windows-11-systems/"><u>Get the Newest Realtek Device Driver Software for Windows 11 Systems</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/how-to-restore-your-laptop-to-factory-settings-on-windows-10-8-or-7/"><u>How to Restore Your Laptop to Factory Settings on Windows 10, 8 or 7</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-dive-deep-into-color-correction-top-11-resources/"><u>In 2024, Dive Deep Into Color Correction Top 11 Resources</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-prime-methods-for-youtube-content-into-mpeg/"><u>In 2024, Prime Methods for YouTube Content Into MPEG</u></a></li>
 </ul></div>
 

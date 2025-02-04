@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Complete Insights Into Utilizing the Full Potential of Mac's Preview Features"
-date: 2025-01-21T03:49:12.547Z
-updated: 2025-01-25T03:52:32.599Z
+date: 2025-01-28T16:20:01.715Z
+updated: 2025-02-02T17:11:43.727Z
 tags: 
   - screen-recording
   - ai video
@@ -35,15 +35,15 @@ That said, the sections below explain **how to use Preview on Mac** for elementa
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Use Preview to Edit Images \[Complete Guide\]
 
 Being the default image editor for Mac, Apple tried to make the **Preview app** as simple as possible. Therefore, modifying the photos in the program isn’t much complicated as compared to its competitors from different vendors.
 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to View and Edit Photos in Preview on Mac
 
@@ -73,10 +73,6 @@ Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup 
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Crop in Preview
 
 In order to crop a photo in the **Preview app**:
@@ -93,10 +89,6 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -108,6 +100,10 @@ Use the method explained above to open the photo in Preview.
 **Step 2: Rotate the Image**
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Add Text to Image in Preview
 
@@ -126,7 +122,7 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Remove Background in Preview
@@ -161,6 +157,10 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Save Images in Different Formats
 
 The **Preview app** has a built-in image converter as well. To convert an image to a different format with Preview, you must:
@@ -174,7 +174,7 @@ After opening an image, click **File** from the menu bar at the top, and click *
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
@@ -236,24 +236,19 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-personalize-vr-gear-with-homemade-google-headgear/"><u>[New] In 2024, Personalize VR Gear with Homemade Google Headgear</u></a></li>
-<li><a href="https://video-capture.techidaily.com/1716069393316-updated-2024-approved-a-stepwise-approach-for-creating-an-interactive-skype-conversation-among-users-from-multiple-operating-systems/"><u>[Updated] 2024 Approved A Stepwise Approach for Creating an Interactive Skype Conversation Among Users From Multiple Operating Systems.</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-dailymotion-vs-youtube-who-earns-more-from-video-content/"><u>[Updated] 2024 Approved Dailymotion vs YouTube Who Earns More From Video Content?</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-the-compact-guide-to-joining-and-scheduling-zoom-on-your-android-phone/"><u>[Updated] 2024 Approved The Compact Guide to Joining & Scheduling Zoom on Your Android Phone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-boost-engagement-with-free-intro-templates/"><u>[Updated] In 2024, Boost Engagement with Free Intro Templates</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-cutting-edge-editing-a-magix-video-pro-x-evaluation/"><u>[Updated] In 2024, Cutting-Edge Editing A Magix Video Pro X Evaluation</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-expert-review-of-powerdirector-features-and-tips/"><u>[Updated] In 2024, Expert Review of PowerDirector - Features & Tips</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-laughter-in-the-clouds-iphone/"><u>[Updated] In 2024, Laughter in the Clouds (iPhone)</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-tactics-for-integrating-multimedia-into-lessons/"><u>[Updated] In 2024, Tactics for Integrating Multimedia Into Lessons</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-funniest-memes-to-download-iphone/"><u>2024 Approved Funniest Memes to Download (iPhone)</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-samsung-galaxy-s24-ultra-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Samsung Galaxy S24 Ultra Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/6-proven-ways-to-unlock-nubia-red-magic-9-proplus-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Nubia Red Magic 9 Pro+ Phone When You Forget the Password</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/6-proven-ways-to-unlock-vivo-y36i-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Vivo Y36i Phone When You Forget the Password</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/best-coding-machines-2023s-top-5-laptops-for-developers-as-ranked-by-zdnet/"><u>Best Coding Machines: 2023'S Top 5 Laptops for Developers as Ranked by ZDNet</u></a></li>
-<li><a href="https://some-tips.techidaily.com/foolproof-techniques-for-effortlessly-upgrading-to-a-new-iphone-with-tips/"><u>Foolproof Techniques for Effortlessly Upgrading to a New iPhone with Tips</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-depth-examination-samsung-gear-360-virtual-reality-lens/"><u>In-Depth Examination Samsung Gear 360 Virtual Reality Lens</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/screen-ready-images-opting-for-srgb/"><u>Screen Ready Images Opting for Srgb</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/the-ectomycorrhizal-relationship-between-truffles-eg-tuber-melanosporum-and-several-species-of-oak-quercus-spp-where-the-fungi-assist-in-water-and-nutrient-169/"><u>The Ectomycorrhizal Relationship Between Truffles (E.g., Tuber Melanosporum) and Several Species of Oak (Quercus Spp.), Where the Fungi Assist in Water and Nutrient Uptake, While the Trees Provide Sugars for the Fungi's Growth.</u></a></li>
-<li><a href="https://fox-info.techidaily.com/the-ultimate-reddit-trophy-case-top-ten-threads/"><u>The Ultimate Reddit Trophy Case - Top Ten Threads</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-ace-your-fb-video-campaigns-with-these-powerful-tricks/"><u>[New] Ace Your FB Video Campaigns with These Powerful Tricks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-ultimate-quick-view-windows-photos/"><u>[New] In 2024, Ultimate Quick View - Windows Photos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-simplified-approach-to-crafting-professional-time-lapse-videos-in-gopro-studio/"><u>[New] Simplified Approach to Crafting Professional Time Lapse Videos in GoPro Studio</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-strategic-approach-to-dealing-with-youtube-copyright-claims/"><u>[Updated] 2024 Approved Strategic Approach to Dealing With YouTube Copyright Claims</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-experience-all-episodes-offline-with-our-top-10-savers-apps-for-2024/"><u>[Updated] Experience All Episodes Offline with Our Top 10 Savers Apps for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-avatar-genius-the-easy-guide-to-metaverse-creation/"><u>[Updated] In 2024, Avatar Genius The Easy Guide to Metaverse Creation</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-best-five-full-frame-cameras-for-uhd-capture/"><u>[Updated] In 2024, Best Five Full Frame Cameras for UHD Capture</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/enhancing-distance-working-for-engineers-via-virtual-reality-and-digital-twins-the-zdnet-perspective/"><u>Enhancing Distance Working for Engineers via Virtual Reality and Digital Twins - The ZDNet Perspective</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580367068-enhancing-your-life-in-hindi-mondly-highlights-8-key-benefits/"><u>Enhancing Your Life in Hindi: Mondly Highlights 8 Key Benefits!</u></a></li>
+<li><a href="https://fox-info.techidaily.com/fixing-curved-video-gopros-fisheye-issue-for-2024/"><u>Fixing Curved Video GoPro's Fisheye Issue for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/full-unveiling-of-picsart-complete-users-guide/"><u>Full Unveiling of PicsArt Complete User's Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-snapedit-overview-in-depth-editor-review/"><u>In 2024, SnapEdit Overview – In-Depth Editor Review</u></a></li>
+<li><a href="https://win11.techidaily.com/the-comprehensive-blueprint-for-addressing-directdraw-errors-on-windows-1011/"><u>The Comprehensive Blueprint for Addressing DirectDraw Errors on Windows 10/11</u></a></li>
+<li><a href="https://win-forum.techidaily.com/unveiling-the-secrets-finding-out-what-powershell-version-you-have-on-windows-11/"><u>Unveiling the Secrets: Finding Out What PowerShell Version You Have on Windows 11</u></a></li>
 </ul></div>
 

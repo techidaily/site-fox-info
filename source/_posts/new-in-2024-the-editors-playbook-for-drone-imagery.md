@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Editor's Playbook for Drone Imagery"
-date: 2024-08-08T10:24:16.745Z
-updated: 2024-08-09T10:24:16.745Z
+date: 2025-01-28T16:52:49.572Z
+updated: 2025-02-02T16:04:38.117Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/4d7617bc6e515df66cf877ac9aa76e35a27d5b140
 
 # How to Edit Drone Videos
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -33,9 +30,6 @@ So, now you have your new drone in your hands and lots of dreams in your eyes to
 
 New to video editing world? Check this [how to edit video ultimate guide](https://tools.techidaily.com/wondershare/filmora/download/) to learn video editing step by step.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Aerial Video Editing Tips
 
 #### 1\. Select your Footage
@@ -72,10 +66,6 @@ One amazing thing to know about post processing workflow is that it comes with v
 
 #### Step 1: Trimming with Instant Cutter
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ![trimming sliders](https://images.wondershare.com/filmora/guide/6-instant-cutter-trimming-sliders.jpg)
 
 There is no doubt to say that Wondershare Filmora is one of the best tools for easy and advanced editing needs. It contains lots of practical tools to process action cam and drone videos. Its inbuilt instant cutter tool helps users to trim 4K aerial or HD videos with easy drag and drop slider function.
@@ -92,19 +82,21 @@ Gimbals can help you to get rid of shaky videos but in case if you are not able 
 
 #### Step 4: Applying Effect/ Music
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![apply effects](https://images.wondershare.com/filmora/article-images/apply-effects-to-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You will be glad to know that Filmora platform offers more than 500 effects for editing and the list includes filters, overlays, titles, text, transitions and free music content. All of them are capable enough to develop interesting footage for aerial video needs. Further, Filmora also has ability to work with advanced themes like Blockbuster, Holiday, Summer, Spring and Travel.
 
 #### Step 5: Color Correction
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![color correction](https://images.wondershare.com/filmora/article-images/color-adjusting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Note that a too bright or too dark footage is not considered as ideal for professional needs. Also, a good footage does not contain colour casts like orange, blue overlays that vary scene to scene. Wondershare Filmora offers colour correction tool that has easy options to make adjustments for tint, temperature, saturation, contrast and brightness. It is also possible to apply 3D luts into videos so that they can provide Hollywood like sensational feeling.
 
@@ -112,14 +104,23 @@ Note that a too bright or too dark footage is not considered as ideal for profes
 
 ![export](https://images.wondershare.com/filmora/article-images/export-output.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The best part to know about wondershare Filmora editor tool is that it offers support to almost all popular media file formats that are often desired for UAV videos. Some of the most commonly used formats are: MKV, FLV, MOV, AVI, WMV and MP4 etc. One can also upload edited videos directly to Vimeo, Facebook and YouTube to impress viewers.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -144,4 +145,20 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-are-reviews-for-goods-online-monetized-in-2024/"><u>[New] Are Reviews For Goods Online Monetized, In 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-the-garmin-ultra-30-in-action-an-in-depth-exploration-for-2024/"><u>[New] The Garmin Ultra 30 in Action An In-Depth Exploration for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-10-steps-to-perfectly-plated-food-vids/"><u>[Updated] 2024 Approved 10 Steps to Perfectly Plated Food Vids</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-best-in-business-4k-cameras-our-leading-choices-18/"><u>[Updated] 2024 Approved Best in Business 4K Cameras Our Leading Choices (18)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-from-monotonous-to-magical-techniques-for-animate-text-in-insta-stories/"><u>[Updated] 2024 Approved From Monotonous to Magical Techniques for Animate Text in Insta Stories</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-best-sites-for-chromium-phone-tunes/"><u>[Updated] The Best Sites for Chromium Phone Tunes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-4-effective-methods-for-slide-embedding-from-youtube/"><u>2024 Approved 4 Effective Methods for Slide Embedding From YouTube</u></a></li>
+<li><a href="https://network-issues.techidaily.com/delving-into-4k-ultra-definition-and-clarity/"><u>Delving Into 4K Ultra Definition & Clarity</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-vivo-y78plus-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Vivo Y78+</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/reviewers-guide-to-yuneec-typhoon-h-performance-for-2024/"><u>Reviewer’s Guide to Yuneec Typhoon H Performance for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/revolutionizing-communication-why-vivaldis-enhanced-email-platform-reigns-supreme/"><u>Revolutionizing Communication: Why Vivaldi's Enhanced Email Platform Reigns Supreme</u></a></li>
+<li><a href="https://article-tips.techidaily.com/smooth-operation-file-transfer-between-different-os-phones-for-2024/"><u>Smooth Operation File Transfer Between Different OS Phones for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-complete-guide-to-selecting-best-free-srt-translators-online-for-2024/"><u>The Complete Guide to Selecting Best FREE SRT Translators Online for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, The Compact Powerhouse in Flight  DJI Spark's Guide to Aerial Selfies\""
-date: 2024-08-08T10:18:49.914Z
-updated: 2024-08-09T10:18:49.914Z
+date: 2025-01-30T16:44:35.990Z
+updated: 2025-02-02T17:11:08.831Z
 tags: 
   - screen-recording
   - ai video
@@ -34,6 +34,10 @@ Have you gone through DJI Spark videos on YouTube? They are spreading like a vir
 
 [Check at Amazon](https://www.amazon.com/gp/product/B072JTDRTZ/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B072JTDRTZ&linkId=bec9204052e4183cc85b81f2a73bc8d2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## First-hand review for DJI Spark
 
 #### 1\.  Unboxing
@@ -44,10 +48,11 @@ Have you gone through DJI Spark videos on YouTube? They are spreading like a vir
 
  The same old foam box as used by Phantom series and [Inspire 2](https://tools.techidaily.com/wondershare/filmora/download/) drones is going to protect your DJI Spark. It is lightweight too. You can easily pack it inside your travelling bag because the overall weight of this box goes only up to 500 grams where 95grams is the battery weight and 300grams is weight of your tiny aircraft. This is simply the best drone to have fun in a picnic with friends because it will not add extra bourdon to your luggage.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![dji spark box](https://images.wondershare.com/filmora/article-images/dji-spark-box.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ###### #2\. Aircraft size
 
@@ -55,17 +60,14 @@ Have you gone through DJI Spark videos on YouTube? They are spreading like a vir
 
  Let's compare it with DJI Mavic, then you can have an intuitive feeling:
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![spark vs mavic](https://images.wondershare.com/filmora/article-images/spark-vs-mavic.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ###### #3\. Battery
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ![dji spark battery](https://images.wondershare.com/filmora/article-images/dji-spark-battery.jpg)
 
  It can stay in air up to 16 minutes with its 1480mAh LiPo Battery. Yeah, this high end battery makes it powerful enough to let users enjoy long flight time. The total time spent on charging is observed to be one hour and 20 minutes. Here is one interesting news for all buyers, DJI Spark do not limit your charging options. It can be charged with three different modes:
@@ -90,10 +92,11 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  In this mode, you don't need phone or controller to control the drone, it can take off and land in your hand, keep following you when you waving your palm in front of its camera. You make a rectangle in air using your fingers and your intelligent drone will capture a selfie for you. But note that, this feature works only up to 3 meters distance.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![gesture mode](https://images.wondershare.com/filmora/article-images/gesture-mode.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * By App on Smartphone
 
@@ -109,10 +112,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 * By Remote Controller
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![spark remote comtroller](https://images.wondershare.com/filmora/article-images/spark-remote-comtroller.jpg)
 
  Under this mode, the Spark's flight potential will be totally liberated. After connecting the remote controller, the WIFI technology allows for 720p real-time video transmission from up to 2 km away, and the flight speed can reach up to 50km/h. What's more, you can pick up the latest [DJI Goggles](https://tools.techidaily.com/wondershare/filmora/download/) to see a different world.
@@ -125,10 +124,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  DJI Spark took the ease-of-use to the extreme compared with its other drones like Mavic or other brands like GoPro Karma. Combined with so many cool technologies, at just $500, DJI Spark should be listed in the must-buy products for droners.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -153,4 +153,20 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-tiktok-hits-twitters-viral-top-10-list/"><u>[New] In 2024, TikTok Hits Twitter's Viral Top 10 List</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-master-kinemasters-features-with-ease-ranked-by-best-opponent-games/"><u>[Updated] 2024 Approved Master KineMaster's Features with Ease, Ranked by Best Opponent Games</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-ultimate-unison-unit-for-voice-broadcasting/"><u>[Updated] 2024 Approved Ultimate Unison Unit for Voice Broadcasting</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-a-comprehensive-guide-to-focusing-on-your-iphone-camera/"><u>[Updated] A Comprehensive Guide to Focusing on Your iPhone Camera</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-mastering-mic-levels-on-a-mac-for-2024/"><u>[Updated] Mastering Mic Levels on a Mac for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-open-srt-soundtrack-on-windowsmacos-for-2024/"><u>[Updated] Open SRT Soundtrack on Windows/macOS for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/beyond-zoom-the-intricacies-of-iphone-xs-lens-tech/"><u>Beyond Zoom The Intricacies of iPhone X's Lens Tech</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/exploring-the-boundaries-of-mobile-connectivity-with-metro-by-t-mobile/"><u>Exploring the Boundaries of Mobile Connectivity with Metro by T-Mobile</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Honor 90 Lite? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Motorola Moto G24? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-vivo-v27e-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Vivo V27e | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-vivo-g2-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Vivo G2</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-vanish-3-battle-disguise-4-steps-up/"><u>In 2024, Vanish 3 Battle Disguise 4 Steps Up</u></a></li>
+</ul></div>
 

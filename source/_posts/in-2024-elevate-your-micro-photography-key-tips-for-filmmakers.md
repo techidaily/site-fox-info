@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Elevate Your Micro Photography  Key Tips for Filmmakers\""
-date: 2024-08-08T10:20:56.176Z
-updated: 2024-08-09T10:20:56.177Z
+date: 2025-02-01T16:37:45.250Z
+updated: 2025-02-02T16:13:39.417Z
 tags: 
   - screen-recording
   - ai video
@@ -33,8 +33,9 @@ Shooting macro video is an art form because it requires balancing the technicali
 Any person having a photography background can learn the nuances of the macro video quickly as macro photohgraphy is usually a part of their subject and macro video is an extension of the same.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6 Tips For Making Macro Video
 
 The difference between the macro video and the macro photo mainly depends on the light acquisition.
@@ -67,13 +68,14 @@ Try to get great visual perspectives or angles by bracing the camera on the tree
 
 ![Tripod](https://images.wondershare.com/filmora/article-images/oconnor-ultimate-1030d-fluid-head-30l-cf-tripod.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 3\. Background
 
 The background of your macro video always remains blurred as you shoot it closely. But, the background color is visible so, choosing it correctly is vital. The color of the background must compliment your composition’s color and must be chosen creatively.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![background](https://images.wondershare.com/filmora/article-images/separate-the-foreground-from-background.jpg)
 
 #### 4\. DSLR Cameras
@@ -84,9 +86,6 @@ If you are a Canon user, you may opt for the 180 mm macro, 100 mm macro or the 6
 
 You may also add an extension tube which basically splits the focal distance in two equal halves and make the image size bigger but it decreases the depth of the field.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![dslr camera](https://images.wondershare.com/filmora/article-images/dslr-camera-full-rig.jpg)
 
 #### 5\. Depth of Field
@@ -97,10 +96,11 @@ What is an aperture? It is the opening of the lens. The smaller the opening of t
 
 But, you must remember that when the opening of the lens is small, the light required is more. There must be an equal balance.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![depth of field](https://images.wondershare.com/filmora/article-images/depth-of-field.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 6\. Composition
 
@@ -108,19 +108,21 @@ When you have low lights, ensuring a correct perspective on the subject with max
 
 For instance, in order to keep a snail always in focus, you may choose to shoot it while it crawls perpendicular to the camera. If you shoot while it crawls towards you, only a part of the snail remains in focus at a certain point of time.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ![composition](https://images.wondershare.com/filmora/article-images/composition.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 Once you can master the above tips for making the macro video, you can easily shoot small objects like a pro. A videographer’s experience and creativity can be matched even by you if you can easily grasp the techniques, practice it, and implement creatively while making your macro videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -145,4 +147,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-av1-decoded-a-novices-introduction/"><u>[New] In 2024, AV1 Decoded A Novice's Introduction</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-incorporate-soundscape-into-visual-discussions/"><u>[New] Incorporate Soundscape Into Visual Discussions</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-metaverse-madness-top-tips-for-crafting-hitsome-memes/"><u>[New] Metaverse Madness Top Tips for Crafting Hitsome Memes</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-mini-2-and-air-2s-luts-free-trial-then-paid-upgrade-for-2024/"><u>[New] Mini 2 & Air 2S LUTS - Free Trial, Then Paid Upgrade for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-elevate-your-video-summary-aesthetics-neons-included/"><u>[Updated] 2024 Approved Elevate Your Video Summary Aesthetics - Neons Included</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-dji-aerial-palette-changes-get-20-free-with-pay-options-available/"><u>[Updated] DJI Aerial Palette Changes - Get 20 FREE with Pay Options Available</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-foremost-funny-image-maker-for-2024/"><u>[Updated] Foremost Funny Image Maker for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-how-to-make-instagram-highlight-covers-for-2024/"><u>[Updated] How to Make Instagram Highlight Covers for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-capturing-stunning-hdr-scenes-with-photoshop-mastery/"><u>[Updated] In 2024, Capturing Stunning HDR Scenes with PhotoShop Mastery</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-step-by-step-guide-how-to-add-video-filters-in-zoom-for-2024/"><u>[Updated] Step-by-Step Guide How to Add Video Filters in Zoom for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/comment-regler-la-largeur-des-histoires-sur-instagram-pour-une-meilleure-visibilite/"><u>Comment Régler La Largeur Des Histoires Sur Instagram Pour Une Meilleure Visibilité</u></a></li>
+<li><a href="https://article-helps.techidaily.com/free-iphones-masterclass-perfect-your-pictures-with-simple-edits/"><u>FREE iPhones Masterclass Perfect Your Pictures with Simple Edits</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-calendar-on-iphone-se-2022-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover lost Calendar on iPhone SE (2022) | Stellar</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-crafting-visual-tales-the-essential-guide-to-text-effects/"><u>In 2024, Crafting Visual Tales The Essential Guide to Text Effects</u></a></li>
+<li><a href="https://fox-info.techidaily.com/pioneering-techniques-for-superior-fullscreen-presentation-in-premiere-for-2024/"><u>Pioneering Techniques for Superior Fullscreen Presentation in Premiere for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-battle-of-giants-examining-how-googles-palm-2-stacks-against-openais-gpt-4/"><u>The Battle of Giants: Examining How Google's PaLM 2 Stacks Against OpenAI's GPT-4</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/trusted-methods-for-transferring-songs-onto-a-flash-drive/"><u>Trusted Methods for Transferring Songs Onto a Flash Drive</u></a></li>
+</ul></div>
 

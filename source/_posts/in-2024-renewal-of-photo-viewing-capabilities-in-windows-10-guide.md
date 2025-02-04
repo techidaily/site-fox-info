@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Renewal of Photo Viewing Capabilities in Windows 10 - Guide\""
-date: 2025-01-17T20:31:40.775Z
-updated: 2025-01-24T20:49:11.201Z
+date: 2025-01-31T16:08:45.607Z
+updated: 2025-02-02T17:08:01.381Z
 tags: 
   - screen-recording
   - ai video
@@ -60,7 +60,15 @@ Here is why they want to restore Windows Photo Viewer –
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 1 to restore Windows Photo Viewer
 
@@ -71,16 +79,12 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -96,17 +100,9 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -115,10 +111,14 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -145,14 +145,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-fast-photo-journey-crafting-quick-dynamic-google-collages/"><u>[New] 2024 Approved The Fast Photo Journey Crafting Quick, Dynamic Google Collages</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-mastering-memes-kinemaster-guide-for-2024/"><u>[New] Mastering Memes KineMaster Guide for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-uniting-sight-and-sound-perfecting-videography-voiceovers/"><u>[New] Uniting Sight & Sound Perfecting Videography Voiceovers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unveil-the-ultimate-list-of-live-streaming-apps-for-youtube-excellence-iosandroid/"><u>[New] Unveil The Ultimate List of Live Streaming Apps for YouTube Excellence (iOS/Android)</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-best-practices-for-screen-recording-phones-for-2024/"><u>[Updated] Best Practices for Screen Recording Phones for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-the-ultimate-guide-a-detailed-walkthrough-of-internet-radio-logging/"><u>[Updated] The Ultimate Guide A Detailed Walkthrough of Internet Radio Logging</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-become-an-iconic-crafter-kapwings-meme-toolkit/"><u>In 2024, Become an Iconic Crafter Kapwing's Meme Toolkit</u></a></li>
-<li><a href="https://fox-info.techidaily.com/the-pathway-to-seamless-system-enhancement-in-macos-11-big-sur/"><u>The Pathway to Seamless System Enhancement in macOS 11 Big Sur</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/unlock-the-full-potential-of-pixiz-in-video-making-for-2024/"><u>Unlock the Full Potential of Pixiz in Video Making for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-art-of-accompanying-imagery-with-audio/"><u>[New] 2024 Approved The Art of Accompanying Imagery With Audio</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-close-up-filmmaking-zooming-into-details/"><u>[New] Close-Up Filmmaking Zooming Into Details</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-explore-the-best-9-online-platforms-featuring-advanced-3d-typography/"><u>[New] Explore the Best 9 Online Platforms Featuring Advanced 3D Typography</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-boost-your-photo-game-on-android-smartphones/"><u>[New] In 2024, Boost Your Photo Game on Android Smartphones</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-pro-free-photo-workspace-discover-the-best-editing-suites-for-2024/"><u>[New] Pro Free Photo Workspace Discover the Best Editing Suites for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-mastering-video-enlargement-on-youtube/"><u>[Updated] 2024 Approved Mastering Video Enlargement on YouTube</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-bigger-captures-intact-detail-quality-for-2024/"><u>[Updated] Bigger Captures, Intact Detail Quality for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-the-simple-path-to-iphone-screen-shots/"><u>[Updated] The Simple Path to IPhone Screen Shots</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/deciphering-the-archive-reviewing-past-facebook-updates-on-pc-and-phone-for-2024/"><u>Deciphering the Archive Reviewing Past Facebook Updates on PC & Phone for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/discover-the-leading-8-tv-streaming-providers-dominating-2024/"><u>Discover the Leading 8 TV Streaming Providers Dominating 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-subtlety-in-sound-fading-out-effectively-in-logic-pro/"><u>In 2024, Subtlety In Sound Fading Out Effectively in Logic Pro</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-the-metaverse-vs-multimeva-understanding-their-distinct-qualities/"><u>In 2024, The Metaverse Vs. Multimeva Understanding Their Distinct Qualities</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/strategizing-your-data-space-pre-eminent-cloud-services/"><u>Strategizing Your Data Space Pre-Eminent Cloud Services</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-apple-iphone-7-plus-and-android-phones-by-drfone-ios/"><u>Top IMEI Unlokers for Apple iPhone 7 Plus and Android Phones</u></a></li>
 </ul></div>
 
