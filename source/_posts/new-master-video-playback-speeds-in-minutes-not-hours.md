@@ -1,7 +1,7 @@
 ---
 title: "[New] Master Video Playback Speeds in Minutes, Not Hours"
-date: 2025-01-27T17:15:05.832Z
-updated: 2025-02-02T17:01:10.116Z
+date: 2025-02-03T02:57:55.956Z
+updated: 2025-02-03T16:07:54.368Z
 tags: 
   - screen-recording
   - ai video
@@ -40,7 +40,7 @@ Businesses looking to boost their sales can use this extension to make more capt
 So, if you're wondering what video speed controller extension would go best with your browser, this guide will be of help. Check till the end.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### A. Best Video Speed Controller Extensions For Chrome
@@ -72,6 +72,10 @@ You can visit your favorite streaming site and fine-tune the playback settings a
 **2) [YouTube Playback Speed Control](https://chrome.google.com/webstore/detail/youtube-playback-speed-co/hdannnflhlmdablckfkjpleikpphncik?hl=en)**
 
 ![youtube playback speed control](https://images.wondershare.com/filmora/article-images/2023/01/best-video-speed-controller-extensions-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Thanks to this **Google video speed controller** extension, you may change the pace of YouTube playback with a simple mouse click or keyboard shortcut. Get more from YouTube and quickly alter the speed of a video by using the keyboard keys' +' and '-' or by using the speed overlay option in the upper right corner.
 
@@ -114,6 +118,10 @@ Your HTML5 videos can be sped up or slowed down. While watching your video, you 
  Cons
 
 * It needs an update for a better interface and features
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### B. Best Video Speed Controller Extension For Safari
 
@@ -167,6 +175,10 @@ With the aid of the Safari extension Speed Player, you can quickly alter the pla
 
 ![dynamo](https://images.wondershare.com/filmora/article-images/2023/01/best-video-speed-controller-extensions-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 When using Dynamo while watching a video in your Safari browser, you can use shortcut keys to set the speed of the video to its default setting, skip the advertisements, let the content flow seamlessly, and slow down any particular clip or scene.
 
 Overall, this is a good choice for a **video speed controller Safari** as you can adjust the speed of any video you watch on the web from now on.
@@ -192,6 +204,10 @@ Overall, this is a good choice for a **video speed controller Safari** as you ca
 **1) [Playback Speed](https://addons.mozilla.org/en-US/firefox/addon/playback-speed/)**
 
 ![playback speed](https://images.wondershare.com/filmora/article-images/2023/01/best-video-speed-controller-extensions-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This superb **video speed controller Firefox** is available for people who use Mozilla Firefox as their default browser. This speed controller functions properly with most websites and is compatible with WhatsApp for audio and video. Everything becomes seamless thanks to its hi-tech customizability options, from UI to shortcuts.
 
@@ -232,6 +248,10 @@ This is one of the most popular and vastly used video speed controllers availabl
  Cons
 
 * No such drawback is available yet
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### D. Video Speed Controller for Opera
 
@@ -278,10 +298,6 @@ You can use the Video Remote extension to specify a default playing speed that w
  Cons
 
 * Limited info and reviews available
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### E. Video Speed Controller for Edge
 
@@ -339,10 +355,6 @@ Step2 Move the Speed slider to the right or left to increase or decrease the pla
 
 Step3 Select the Play button in the Preview box or use the Spacebar to get a glimpse of the changes. To apply the modifications, hit OK in the lower right corner.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 2: [Speed Customization](https://www.youtube.com/watch?v=1hLf3tzc95w&t=77s)
 
 Using [Speed Ramping](https://www.youtube.com/watch?v=58kkvq8V40M), where the playback rate of a clip varies interactively, you may produce adjustable speed effects in addition to continuous speed variations in Uniform Speed. Multiple playback velocities can be adjusted for each segment of the video.
@@ -354,10 +366,6 @@ Using [Speed Ramping](https://www.youtube.com/watch?v=58kkvq8V40M), where the pl
 Step1 You will see a few options after selecting the movie in the timeline, clicking the Speed symbol, and choosing the Speed Ramping option. The options are as follows:
 
 ![few options after selecting the movie](https://images.wondershare.com/filmora/article-images/2023/01/best-video-speed-controller-extensions-14.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * **Customize**: Five-speed points, by default, let you set the speed precisely how you like.
 * **Hero Moment**: There are eight-speed intervals in the video's playback rate, representing a regular, fast, slow, fast, and standard rhythm: 1.0x, 1.0x, 5.4x, 0.5x, 0.5x, 5.4x, 1.0x, and 1.0x.
@@ -397,10 +405,6 @@ So, decide wisely.
 
 ![youtube playback speed control](https://images.wondershare.com/filmora/article-images/2023/01/best-video-speed-controller-extensions-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Thanks to this **Google video speed controller** extension, you may change the pace of YouTube playback with a simple mouse click or keyboard shortcut. Get more from YouTube and quickly alter the speed of a video by using the keyboard keys' +' and '-' or by using the speed overlay option in the upper right corner.
 
 **Average Rating**: 4.8/5 (1642) at Chrome Web Store
@@ -544,7 +548,7 @@ This superb **video speed controller Firefox** is available for people who use M
 ![global speed](https://images.wondershare.com/filmora/article-images/2023/01/best-video-speed-controller-extensions-9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 This is one of the most popular and vastly used video speed controllers available on the Firefox browser. Thanks to its seamless compatibility with audio and video streaming sites, watching films, series, videos, or audio on platforms like Netflix, PrimeVideo, YouTube, or Spotify at your own speed has become simpler than ever.
@@ -564,6 +568,10 @@ This is one of the most popular and vastly used video speed controllers availabl
  Cons
 
 * No such drawback is available yet
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### D. Video Speed Controller for Opera
 
@@ -593,6 +601,10 @@ This **video speed controller add-on** is the one-stop shop for adjusting the pa
 
 ![video remote](https://images.wondershare.com/filmora/article-images/2023/01/best-video-speed-controller-extensions-11.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can use the Video Remote extension to specify a default playing speed that will be used for all videos or for videos longer than a particular length. Simple keyboard shortcuts can also be used to speed up or slow down playback. This **Opera video speed controller** extension is simple to install and convenient to use.
 
 **Average Rating**: 4.2/5 (7) at Opera
@@ -611,19 +623,11 @@ You can use the Video Remote extension to specify a default playing speed that w
 
 * Limited info and reviews available
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### E. Video Speed Controller for Edge
 
 **1) [Video Speed Control](https://microsoftedge.microsoft.com/addons/detail/video-speed-control/fgggaiedigajhlidjmmmengcpoipjeko)**
 
 ![video speed control](https://images.wondershare.com/filmora/article-images/2023/01/best-video-speed-controller-extensions-12.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The default keys of this **Edge video speed controller** can be changed in the options tab if you wish to leverage a distinct set of keys for the keyboard buttons. You can easily change the playback speed (increase or decrease) of any HTML5 video on the Edge browser. All in all, this must-try **video speed controller Edge** is really worthwhile.
 
@@ -642,10 +646,6 @@ The default keys of this **Edge video speed controller** can be changed in the o
  Cons
 
 * Available only in one language
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Professional Video Editing Software: Change Playback Speed, Manage Controls, & A Lot More With Filmora
 
@@ -675,13 +675,13 @@ Step1 Press the Speed icon after selecting the video in the toolbar just above t
 
 ![selecting the video in the toolbar](https://images.wondershare.com/filmora/article-images/2023/01/best-video-speed-controller-extensions-13.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Move the Speed slider to the right or left to increase or decrease the playback speed.
 
 Step3 Select the Play button in the Preview box or use the Spacebar to get a glimpse of the changes. To apply the modifications, hit OK in the lower right corner.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 2: [Speed Customization](https://www.youtube.com/watch?v=1hLf3tzc95w&t=77s)
 
@@ -753,24 +753,19 @@ So, decide wisely.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-effortless-entertainment-top-free-free-meme-ideas/"><u>[New] In 2024, Effortless Entertainment Top Free, FREE Meme Ideas</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-stepwise-blueprint-converting-everyday-gifs-to-sticker-status-in-discord-and-other-chat-apps/"><u>[New] In 2024, Stepwise Blueprint Converting Everyday GIFs to Sticker Status in Discord & Other Chat Apps</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-tapping-into-traditional-hymns-downloads-and-editing-guide/"><u>[New] In 2024, Tapping Into Traditional Hymns Downloads & Editing Guide</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-tag-with-your-favorite-show-podcast-on-ig-for-2024/"><u>[New] Tag with Your Favorite Show Podcast on IG for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-perfecting-your-snapchat-story-cinematography/"><u>[Updated] 2024 Approved Perfecting Your Snapchat Story Cinematography</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-a-celebrated-list-top-15-classic-stop-motion-flicks/"><u>[Updated] A Celebrated List Top 15 Classic Stop-Motion Flicks</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-a-step-by-step-process-for-podcast-rss-creation/"><u>[Updated] A Step-by-Step Process for Podcast RSS Creation</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-explore-the-world-of-photo-videos-your-pixiz-companion/"><u>[Updated] Explore the World of Photo-Videos Your Pixiz Companion</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-carminatis-gig-economy-ajays-youtube-wealth-stream/"><u>[Updated] In 2024, Carminati's Gig Economy AJay's YouTube Wealth Stream</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-unlock-the-power-of-time-lapse-with-gopro-hero5/"><u>[Updated] In 2024, Unlock the Power of Time-Lapse with GoPro Hero5</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-voice-memo-techniques-an-in-depth-walkthrough/"><u>[Updated] Voice Memo Techniques An In-Depth Walkthrough</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-compact-guide-setting-up-snapchat-macos-style/"><u>2024 Approved Compact Guide Setting up Snapchat macOS-Style</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/accelerate-your-icloud-music-library-upload-speed-with-these-6-essential-tips/"><u>Accelerate Your iCloud Music Library Upload Speed with These 6 Essential Tips</u></a></li>
-<li><a href="https://fox-info.techidaily.com/enablingdisabling-picture-in-picture-a-step-by-step-guide-for-iphones-for-2024/"><u>Enabling/Disabling Picture-in-Picture A Step-by-Step Guide for iPhones for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-elevate-canon-shoots-get-10-freepaid-lut-packs/"><u>In 2024, Elevate Canon Shoots - Get 10 Free/Paid LUT Packs</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-elite-list-8k-resolution-cameras-rated-high/"><u>In 2024, Elite List 8K Resolution Cameras Rated High</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-enhancing-visual-experiences-a-deep-dive-into-video-enhancer-22/"><u>In 2024, Enhancing Visual Experiences A Deep Dive Into Video Enhancer 2.2</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/quick-fixes-for-a-speedy-launch-resolving-windows-11-boot-lag-issues/"><u>Quick Fixes for a Speedy Launch: Resolving Windows 11 Boot Lag Issues</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/why-picshot-makes-photo-collage-easier-in-2024/"><u>Why Picshot Makes Photo Collage Easier, In 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-full-guide-streamlining-your-files-in-the-digital-age-with-adobe-and-beyond-for-2024/"><u>[New] Full Guide Streamlining Your Files in the Digital Age with Adobe & Beyond for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-plunge-into-metaverse-top-8-high-tech-goggles-and-helmets/"><u>[New] In 2024, Plunge Into Metaverse Top 8 High-Tech Goggles & Helmets</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-lightroom-workflow-creating-and-merging-professional-hdr-images/"><u>[New] Lightroom Workflow Creating & Merging Professional HDR Images</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-perfect-presentation-with-personalized-typography-in-ae-projects/"><u>[New] Perfect Presentation with Personalized Typography in AE Projects</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-tips-to-handle-unintended-self-presence-in-video-conversations/"><u>[Updated] 2024 Approved Tips to Handle Unintended Self-Presence in Video Conversations</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-plowing-pathways-selecting-superb-simulation-titles/"><u>[Updated] Plowing Pathways Selecting Superb Simulation Titles</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-zest-up-social-feeds-create-meme-adobe-style/"><u>[Updated] Zest Up Social Feeds Create Meme Adobe-Style</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/easy-connections-a-comprehensive-guide-to-linking-a-chromecast-remote/"><u>Easy Connections: A Comprehensive Guide to Linking a Chromecast Remote</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-fast-forward-to-forgotten-reddit-threads/"><u>In 2024, Fast Forward to Forgotten Reddit Threads</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-apple-iphone-15-pro-max-to-chromecast-drfone-by-drfone-ios/"><u>In 2024, How to Cast Apple iPhone 15 Pro Max to Chromecast? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-meizu-21-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Samsung Galaxy A14 5G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/sound-without-cords-the-efficacy-of-m06-headphones/"><u>Sound Without Cords: The Efficacy of M06 Headphones</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1723262308009-the-product-of-a-number-x-and-9-less-than-the-number-is-represented-by-x-times-x-9/"><u>The Product of a Number, ( X ), and 9 Less than the Number Is Represented by ( X Times (X - 9) )</u></a></li>
 </ul></div>
 

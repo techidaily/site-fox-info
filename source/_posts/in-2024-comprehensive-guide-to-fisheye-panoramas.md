@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Comprehensive Guide to Fisheye Panoramas"
-date: 2025-02-01T16:43:17.198Z
-updated: 2025-02-02T16:26:32.923Z
+date: 2025-02-01T21:36:40.674Z
+updated: 2025-02-04T03:29:34.092Z
 tags: 
   - screen-recording
   - ai video
@@ -32,22 +32,22 @@ thumbnail: https://thmb.techidaily.com/81ce373281fd9aff14dae5d82f0fff51572cdd8c2
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Shooting 360 degrees panoramas with fisheye lens
 
  The process of shooting panoramas with fisheye lenses involves a number of considerations and they are as follows-:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1. The equipment and setup
 
  To shoot quality 360 degrees panoramas with fisheye, it is imperative to get the equipment as well as the set up right. Your equipment needs to be calibrated properly to make the stitching process nice and easy. To find the best setting for your equipment, the grid method is recommended on the panohead.
 
 ![Panohead for Fisheye lens](https://images.wondershare.com/filmora/article-images/panohead-for-fishlens.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2. Leveling and rotating
 
@@ -56,11 +56,7 @@ thumbnail: https://thmb.techidaily.com/81ce373281fd9aff14dae5d82f0fff51572cdd8c2
 ![Panning clam on ballhead](https://images.wondershare.com/filmora/article-images/panning-clam-on-ballhead.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3. The actual shooting
@@ -83,6 +79,10 @@ thumbnail: https://thmb.techidaily.com/81ce373281fd9aff14dae5d82f0fff51572cdd8c2
 
 [How to stitch GoPro clips into 360 videos >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What's fisheye lenses
 
  Fisheye lens refers to an ultra wide angle lens used to produce strong visual distortions with the aim of creating a wide hemispherical or panoramic image. Fisheye lenses are able to achieve very wide angles of view not through the production of straight lines of perspectives, but through a special mapping which makes the resulting images have the characteristic convex non-rectilinear appearance.
@@ -93,15 +93,15 @@ thumbnail: https://thmb.techidaily.com/81ce373281fd9aff14dae5d82f0fff51572cdd8c2
 
 ![create 360 photos with fisheye lens](https://images.wondershare.com/filmora/article-images/fisheye-lens-image.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Conclusion
 
  Fisheye lenses have been around for a while now and the process of creating 360 panoramas with them may not be very challenging, but great results are achieved through practice and proper stitching. Once the photos are taken, you can use premium panorama software like Autopano Pro or you can use free options like the Microsoft ICE or Hugin. Ones stitching are done, it is imperative to have the final works uploaded online for others to view.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -128,24 +128,21 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-advanced-tactics-for-backdrop-cleanup-in-figma/"><u>[New] 2024 Approved Advanced Tactics for Backdrop Cleanup in Figma</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-navigating-high-dynamic-range-photography-with-ps/"><u>[New] 2024 Approved Navigating High Dynamic Range Photography with PS</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-teleport-into-virtuality-top-10-mobile-vr-headsets-reviewed/"><u>[New] 2024 Approved Teleport Into Virtuality Top 10 Mobile VR Headsets Reviewed</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-professionals-playbook-refined-gopro-video-production-techniques/"><u>[New] In 2024, The Professional's Playbook Refined GoPro Video Production Techniques</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-the-ultimate-strategy-to-seamlessly-upload-srt-subtitles-online/"><u>[New] The Ultimate Strategy to Seamlessly Upload SRT Subtitles Online</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-unleash-your-creativity-effective-techniques-for-crafting-podcast-scripts/"><u>[New] Unleash Your Creativity Effective Techniques for Crafting Podcast Scripts</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-a-step-beyond-excavating-the-best-vr-treadmill-experiences/"><u>[Updated] 2024 Approved A Step Beyond Excavating the Best VR Treadmill Experiences</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-ensuring-compatibility-with-macos-big-sur-release/"><u>[Updated] In 2024, Ensuring Compatibility with MacOS Big Sur Release</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-mastering-the-art-of-speech-to-text-with-google-ai/"><u>[Updated] In 2024, Mastering the Art of Speech-to-Text with Google AI</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-videographers-secret-top-5-free-effect-sites/"><u>[Updated] In 2024, Videographers' Secret Top 5 Free Effect Sites</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-navigating-the-hottest-templates-in-igs-vfx-community/"><u>2024 Approved Navigating the Hottest Templates in IG's VFX Community</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/create-a-personalized-broadcasting-experience-record-webcam-with-vlc-for-2024/"><u>Create a Personalized Broadcasting Experience Record Webcam with VLC for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-nokia-c12-plus-using-video-repair-utility-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix Corrupt video files of Nokia C12 Plus using Video Repair Utility?</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6s-plus-3-ways-to-unlock-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 6s Plus 3 Ways To Unlock</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-unlock-full-potential-integrating-zoom-and-fb-live-events/"><u>In 2024, Unlock Full Potential Integrating ZOOM and FB Live Events</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/seamless-direct3d-extraction-quick-effective-methods/"><u>Seamless Direct3D Extraction - Quick, Effective Methods!</u></a></li>
-<li><a href="https://fox-info.techidaily.com/smooth-volume-reduction-a-system-friendly-approach/"><u>Smooth Volume Reduction A System-Friendly Approach</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/updated-in-2024-an-ultimate-guide-of-best-narrator-voice-generators/"><u>Updated In 2024, An Ultimate Guide of Best Narrator Voice Generators</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/why-didnt-your-imessage-arrive-yesterday-uncover-the-causes-and-solutions/"><u>Why Didn't Your iMessage Arrive Yesterday? Uncover the Causes and Solutions</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-giggles-galaxy-a-guide-to-hilarious-youtube-stars/"><u>[New] 2024 Approved Giggles Galaxy A Guide to Hilarious YouTube Stars</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-step-by-step-tips-for-turning-gopro-into-professionals-best-work/"><u>[New] 2024 Approved Step-by-Step Tips for Turning GoPro Into Professionals' Best Work</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-a-treasure-trove-guide-to-public-domain-images/"><u>[New] A Treasure Trove Guide to Public Domain Images</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-foray-into-video-fidelity-an-initialists-perspective/"><u>[New] Foray Into Video Fidelity An Initialist's Perspective</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-natural-luminescence-in-home-interiors-simple-steps/"><u>[New] Natural Luminescence in Home Interiors Simple Steps</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-step-by-step-inserting-times-on-youtube-videos-for-2024/"><u>[New] Step-by-Step Inserting Times on YouTube Videos for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/solved-adobe-the-application-was-unable-to-start-correctly-0xc0000022/"><u>[Solved] Adobe: The Application Was Unable to Start Correctly (0Xc0000022)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-integrating-video-content-from-youtube-into-websites-a-comprehensive-guide/"><u>[Updated] 2024 Approved Integrating Video Content From YouTube Into Websites - A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-compreran-list-efficient-platforms-for-downloading-your-favorite-tones/"><u>[Updated] Compreran List Efficient Platforms for Downloading Your Favorite Tones</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-mediacutmaster-review-in-depth-evaluation-for-2024/"><u>[Updated] MediaCutMaster Review – In-Depth Evaluation for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-pixelpuzzle-pro-crafting-videos-for-instagallery/"><u>[Updated] PixelPuzzle Pro Crafting Videos for InstaGallery</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-capturing-youtube-captions-3-easy-methods-of-srt-extraction/"><u>2024 Approved Capturing YouTube Captions 3 Easy Methods of SRT Extraction</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/ameliorez-votre-efficacite-avec-les-ssd-une-alternative-a-la-gamme-toshiba/"><u>Améliorez Votre Efficacité Avec Les SSD - Une Alternative À La Gamme Toshiba</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/geburtstagsgrusse-stoppen-sofortige-anleitung-zum-beenden-der-foto-synchronisierung-zwischen-ihrem-iphone-und-ipad/"><u>Geburtstagsgrüße Stoppen: Sofortige Anleitung Zum Beenden Der Foto-Synchronisierung Zwischen Ihrem iPhone Und iPad</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-the-comprehensive-guide-to-9gag-for-meme-enthusiasts/"><u>In 2024, The Comprehensive Guide to 9GAG for Meme Enthusiasts</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-chatgpts-impact-on-creative-writers-positive-aspects-vs-negative-outcomes/"><u>Unveiling ChatGPT's Impact on Creative Writers - Positive Aspects Vs. Negative Outcomes</u></a></li>
 </ul></div>
 

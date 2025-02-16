@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Pro Tips for Effortless Photos & Videos in Windows 11"
-date: 2024-08-08T10:16:36.144Z
-updated: 2024-08-09T10:16:36.144Z
+date: 2025-01-30T19:39:47.247Z
+updated: 2025-02-03T23:35:42.300Z
 tags: 
   - screen-recording
   - ai video
@@ -33,10 +33,11 @@ In the past, importing photos and videos to a laptop or desktop computer from va
 * [**Part3: Troubleshooting the Phone to PC Connection**](#part3)
 * [**Part4: Import Photos and Video from a Camera**](#part4)
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ## Part 1: Import Photos and Video from a Phone
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 1: Connecting Your Phone
 
@@ -44,24 +45,19 @@ If you are moving photos and video to Windows 10 from a smartphone, you will fir
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/usb-cable.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Step 2: Enable File Exchange
 
 Your phone will have settings regarding file transfers when it is connected to a computer. Make sure that media viewing and transferring is selected, which will allow Windows 10 File Explorer on the computer to recognize your device.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Step 3: Import Photos and Videos
 
 Now that your phone is recognized, you should see the camera or phone pop up along with your hard drives and other external drives. You can right click on its icon, select “Import Photos and Videos” and proceed from there.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-video-photos-to-windows-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 4: Import
 
@@ -77,10 +73,11 @@ Go to Start -> All Apps -> Photos and open it up. Your phone or camera should be
 
 Click the Import button on the Photos app and choose the items that you want to import. When you have selected all the items you want, click on continue and then import. All your files will be added onto your computer and they will be visible within the Photos app.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-photos-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Within the app, it is easy to see your photos and videos as they are organized based on the date they are imported. So you will be able to see exactly what you have added in the most recent imports and with future imports as well.
 
@@ -102,19 +99,21 @@ Those who are importing photos and videos from a camera rather than a smartphone
 
 Connect the camera to your phone and then follow the above steps to import your media content.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-camera.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 If you own a Windows 10 desktop or laptop, it is very easy to connect a smartphone or digital camera to your computer. Then you will be able to use File Explorer or the built in Photos app to access and download your photos and videos. Adding your content to the computer lets you save the files, share them with friends, edit them using programs like Photoshop, or save space on your smartphone/camera.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -139,4 +138,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-generate-humor-picmagic-creation/"><u>[New] 2024 Approved Generate Humor PicMagic Creation</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-search-of-next-level-video-streaming-alternatives/"><u>[New] In Search of Next-Level Video Streaming Alternatives</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-pros-guide-crafting-authentic-3d-characters-in-ps-for-2024/"><u>[New] Pro's Guide Crafting Authentic 3D Characters in PS for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-visual-perfection-the-best-blu-ray-player-list-2024/"><u>[New] Visual Perfection The Best Blu-Ray Player List 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-asus-proart-review-a-visual-spectacle-unveiled/"><u>[Updated] ASUS ProArt Review A Visual Spectacle Unveiled</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-premier-listing-top-5-free-vector-graphics-online-hubs/"><u>[Updated] In 2024, Premier Listing Top 5 FREE Vector Graphics Online Hubs</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-the-realm-of-favorites-top-10-reddit-discussions-revisited-for-2024/"><u>[Updated] In the Realm of Favorites Top 10 Reddit Discussions Revisited for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-real-time-vs-recorded-entertainment-twitch-vs-youtube-analysis/"><u>[Updated] Real-Time vs Recorded Entertainment Twitch vs YouTube Analysis</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-youtube-to-webm-top-tier-conversion-applications-reviewed/"><u>[Updated] YouTube to WebM Top-Tier Conversion Applications Reviewed</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-pros-choice-top-15-luts-for-excellent-gopro-videos/"><u>2024 Approved Pro's Choice Top 15 LUTs For Excellent GoPro Videos</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/eliminating-time-intensive-gpsvc-hangs/"><u>Eliminating Time-Intensive GPSVC Hangs</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-visual-impact-through-effective-color-modification/"><u>In 2024, Visual Impact Through Effective Color Modification</u></a></li>
+<li><a href="https://fox-info.techidaily.com/leading-intro-editors-for-device-applications-for-2024/"><u>Leading Intro Editors for Device Applications for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/recover-lost-documents-on-your-pcs-c-and-d-drives-for-free-with-ifind-no-need-for-previous-back-ups/"><u>Recover Lost Documents on Your PC's C and D Drives for Free with iFinD - No Need for Previous Back-Ups!</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/solving-the-issue-of-windows-not-booting-expert-advice-from-yl-computing-and-software/"><u>Solving the Issue of Windows Not Booting: Expert Advice From YL Computing & Software</u></a></li>
+<li><a href="https://fox-info.techidaily.com/swift-shadowing-secrets/"><u>Swift Shadowing Secrets</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tips-for-fixing-windows-11s-microsoft-store-error/"><u>Tips for Fixing Windows 11'S Microsoft Store Error</u></a></li>
+<li><a href="https://media-tips.techidaily.com/watching-media-content-enabling-kindle-fire-apps-on-macos-devices/"><u>Watching Media Content: Enabling Kindle Fire Apps on macOS Devices</u></a></li>
+<li><a href="https://fox-info.techidaily.com/zero-dollar-zenith-where-budget-meets-beautiful-tiktok-bgs-for-2024/"><u>Zero-Dollar Zenith Where Budget Meets Beautiful TikTok BGs for 2024</u></a></li>
+</ul></div>
 

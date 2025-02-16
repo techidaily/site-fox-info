@@ -1,7 +1,7 @@
 ---
 title: "Elevating Your AR Projects with Custom, Downloadable LUTS"
-date: 2025-01-29T16:22:11.802Z
-updated: 2025-02-02T16:05:32.634Z
+date: 2025-01-29T02:07:36.245Z
+updated: 2025-02-03T19:08:39.628Z
 tags: 
   - screen-recording
   - ai video
@@ -34,7 +34,7 @@ To develop AR effects for mobile cameras, you can use the Mac and Windows augmen
 ![create a color gradient effect](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. How to use LUTs in Spark AR?
@@ -57,10 +57,6 @@ A patch graph is automatically set that applies a color LUT to the entire scene.
 
 ![apply to the whole scene](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **The color LUT patch graph**
 
 The patch graph that renders the color gradation effect looks like this:
@@ -76,10 +72,6 @@ The patch graph that renders the color gradation effect looks like this:
 ## Part 3\. Free LUTs resource for Spark AR
 
 Here are the best free LUTs resources for Spark AR:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. [Frost Zombie (Technical Showcase)](https://we.tl/t-1uj4wJKluG)
 
@@ -101,7 +93,11 @@ Here are the key building principles.
 ![fur](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Shockwave
@@ -110,6 +106,10 @@ Even while using large image sequences is frequently discouraged, you can still 
 
 ![shockwave](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Transition Curves
 
 There are 11 distinct animation curves included with Spark AR in the Transition patch. Here is a helpful visual aid because it might be challenging to distinguish between a quartic and a quintic when working on a project. With the SDF circle doubled (to sharpen the edge) and inserted into the Patch Pack's alpha channel, the circles are likewise straightforward rectangles. Since RGB values are three times one, the object is white.
@@ -117,7 +117,11 @@ There are 11 distinct animation curves included with Spark AR in the Transition 
 ![transition curves](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Realistic Smoke
@@ -127,11 +131,7 @@ By adding smoke to a scene, you can easily add a lot of detail and realism. Noth
 ![realistic smoke](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-8.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. Rainbow Glitter
@@ -174,24 +174,19 @@ Spark AR is an amazing website for LUTs and color grading. Whether you're a new 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-streamline-photo-editing-key-pixlr-insights/"><u>[New] 2024 Approved Streamline Photo Editing Key Pixlr Insights</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-from-raw-footage-to-final-product-using-windows-10-for-editing-success/"><u>[New] From Raw Footage to Final Product Using Windows 10 for Editing Success</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-edits-made-easy-utilizing-the-eraser-tool-in-photoshop/"><u>[New] In 2024, Edits Made Easy Utilizing the Eraser Tool in Photoshop</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-navigating-facebooks-automatic-video-features/"><u>[New] In 2024, Navigating Facebook's Automatic Video Features</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-win-10-free-screencast-recorders-ranked-and-updated-list/"><u>[New] In 2024, Win 10 Free Screencast Recorders Ranked & Updated List</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-mastering-video-trimming-on-windows-10-tips-for-efficiency-and-precision/"><u>[Updated] 2024 Approved Mastering Video Trimming on Windows 10 Tips for Efficiency and Precision</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-clean-slates-mastering-the-eraser-tool-in-photoshop/"><u>[Updated] Clean Slates Mastering the Eraser Tool in Photoshop</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-how-much-a-youtube-promotion/"><u>[Updated] How Much a YouTube Promotion</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-insight-into-imovies-border-adjustments-for-2024/"><u>[Updated] Insight Into iMovie's Border Adjustments for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-precision-trimming-elevating-your-youtube-video-quality/"><u>[Updated] Precision Trimming Elevating Your YouTube Video Quality</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-top-virtual-reality-games-oculus-vs-htc-vive-vs-playstation-vr-showdown/"><u>[Updated] Top Virtual Reality Games Oculus vs HTC Vive vs PlayStation VR Showdown</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-premium-bargains-no-cost-screen-recorder-extensions-for-chromeos/"><u>2024 Approved Premium Bargains No-Cost Screen Recorder Extensions for ChromeOS</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/avoid-these-potential-pitfalls-why-you-might-reconsider-adding-chatgpt-to-your-mac-app-collection/"><u>Avoid These Potential Pitfalls: Why You Might Reconsider Adding ChatGPT to Your Mac App Collection</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/re-establishing-obs-audio-recording-capabilities-for-2024/"><u>Re-Establishing OBS Audio Recording Capabilities for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/remove-youtube-sneak-peeks-for-uninterrupted-views/"><u>Remove YouTube Sneak Peeks for Uninterrupted Views</u></a></li>
-<li><a href="https://win-popular.techidaily.com/seamless-file-sharing-between-mac-and-google-drive/"><u>Seamless File Sharing Between Mac and Google Drive</u></a></li>
-<li><a href="https://media-tips.techidaily.com/step-by-step-guide-converting-swf-video-files-into-high-quality-mp4-top-5-techniques/"><u>Step-by-Step Guide: Converting SWF Video Files Into High-Quality MP4 - Top 5 Techniques</u></a></li>
-<li><a href="https://fox-info.techidaily.com/top-10-essential-gratuitous-lut-downloads-of-the-year/"><u>Top 10 Essential, Gratuitous LUT Downloads of the Year</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-on-apple-iphone-6s-by-drfone-ios/"><u>Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives On Apple iPhone 6s</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-precision-meetings-sharpen-your-screens-in-msteam/"><u>[New] 2024 Approved Precision Meetings Sharpen Your Screens in MSTEAM</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-exploring-advanced-phone-lenses-in-ios-11/"><u>[New] Exploring Advanced Phone Lenses in iOS 11</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-unlocking-the-potential-of-snapchat-highlights-for-2024/"><u>[New] Unlocking the Potential of Snapchat Highlights for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-top-vr-films-that-you-should-never-miss/"><u>[Updated] In 2024, Top VR Films That You Should Never Miss</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-fast-fixes-syncing-iphone-photos-with-computer/"><u>2024 Approved Fast Fixes Syncing iPhone Photos with Computer</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-real-time-vr-hardware-analysis/"><u>2024 Approved Real-Time VR Hardware Analysis</u></a></li>
+<li><a href="https://win-trending.techidaily.com/expert-tips-for-diagnosing-and-repairing-troubled-sound-cards-on-your-pc-windows/"><u>Expert Tips for Diagnosing and Repairing Troubled Sound Cards on Your PC (Windows)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-achieve-stardom-in-the-digital-world-by-growing-your-facebook-followers/"><u>In 2024, Achieve Stardom in the Digital World by Growing Your Facebook Followers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-essential-1-5-iphone-podcast-platforms-unveiled/"><u>In 2024, Essential #1-#5 iPhone Podcast Platforms Unveiled</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-poco-c51-by-drfone-android/"><u>In 2024, How to Bypass FRP on Poco C51?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/innovative-angles-shooting-vertical-smartphone-panos/"><u>Innovative Angles Shooting Vertical Smartphone Panos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/refining-video-aesthetics-for-impeccable-instagram-presence-for-2024/"><u>Refining Video Aesthetics for Impeccable Instagram Presence for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/swift-skills-sharpen-your-windows-images/"><u>Swift Skills Sharpen Your Windows Images</u></a></li>
+<li><a href="https://driver-download.techidaily.com/update-your-system-freshly-released-drivers-for-intels-wireless-ax200-on-win11-and-win10/"><u>Update Your System: Freshly Released Drivers for Intel's Wireless-AX200 on Win11 & Win10</u></a></li>
 </ul></div>
 

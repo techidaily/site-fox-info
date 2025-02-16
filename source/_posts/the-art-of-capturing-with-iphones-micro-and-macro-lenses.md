@@ -1,7 +1,7 @@
 ---
 title: "The Art of Capturing with iPhone's Micro and Macro Lenses"
-date: 2024-08-08T10:15:21.822Z
-updated: 2024-08-09T10:15:21.822Z
+date: 2025-02-01T00:06:24.351Z
+updated: 2025-02-04T02:40:58.885Z
 tags: 
   - screen-recording
   - ai video
@@ -39,8 +39,9 @@ You May Also Like: [How to Take Underwater Photos with your iPhone 7](https://to
 You May Also Like: [Resizing a Photo without Losing Quality](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Section 1. What is close-up and macro photography?
 
 Close-up photography and macro photography are all about photographing things in a way that makes them appear larger than they are in real life. It lets us look in detail at the things around us and can be an exciting and dramatic way to shoot images. But is there a difference between close up and macro in photography terms?
@@ -51,6 +52,10 @@ There is, so if you're looking to get to grips with this type of photography, yo
 * ****Macro photography uses technology to actually increase the size of the image to allow a close-up photo without needing to be so physically close.**
 
 With your iPhone macro photography and close-up shooting are both possible and can bring great results if you know what you're doing. However, for the really professional touch, an investment in a macro lens or specialist app will certainly kick your photography skills into high gear.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Section 2. iPhone Macro Photography Tips
 
@@ -70,10 +75,11 @@ If you do want to snap some macro images in bright sunlight, try positioning you
 
 With any photo, focus is crucial to an awesome result. But when you're creating macro images, this becomes even more critical to the success of your photography. Try using the manual focus setting to give yourself more control over your focus point, and work on fine-tuning your skills to create the perfect image.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/close-up-photography-focus.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image source: PicMonkey
 
@@ -95,9 +101,6 @@ Different iPhone iterations have slightly different lenses, so there will be a b
 
 When you're shooting macro images with your iPhone, the intention is to make the background somewhat blurry, with only the objects at the front of the image in focus. You might think that this means it doesn't matter what's actually in the background, but in reality, a busy background with mixed colors can still serve to spoil your image.
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/macro-photography-distance.jpg)
 
 Image source: GCFLearnFree
@@ -108,10 +111,11 @@ Make the subject center stage by positioning your composition to give the least 
 
 If you've researched photography in general, you'll already have heard of the ‘rule of thirds'. This rule is super simple to apply when using an iPhone and is just as relevant in macro photography as it is when shooting landscapes or any other composition.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/macro-photography-composition.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image source: SmashingHub
 
@@ -121,14 +125,6 @@ The rule states that if the image were divided into thirds horizontally and vert
 
 iPhone macro photography is all about looking at the world in a different way. To really accentuate this quality in your work, why not try shooting from a different perspective? Get very low down and shoot your subject from below, with the sky as a background, or snap from directly above to add drama to your images.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/macro-photography-angles.jpg)
 
 Image source: Flickr
@@ -155,19 +151,11 @@ If you're fed up with the same old shots and want to try something different, de
 
 Explore, experiment, and practice, and you'll soon find your own style and be the envy of all your followers.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
@@ -194,4 +182,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-proiphone-macro-techniques-achieving-professional-quality/"><u>[New] 2024 Approved Proiphone Macro Techniques Achieving Professional Quality</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-crafting-an-impressive-executive-summary-for-stakeholder-engagement-for-2024/"><u>[New] Crafting an Impressive Executive Summary for Stakeholder Engagement for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-elevate-your-video-remove-extraneous-details-effectively/"><u>[New] Elevate Your Video - Remove Extraneous Details Effectively</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-full-scoop-deciphering-the-google-podcast-app/"><u>[New] Full Scoop Deciphering the Google Podcast App</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-whip-up-a-fresh-web-comedic-bite-sized-delight/"><u>[New] Whip Up a Fresh Web Comedic Bite-Sized Delight</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-cut-to-the-chase-basic-film-shots-every-novice-should-learn/"><u>[Updated] 2024 Approved Cut to the Chase Basic Film Shots Every Novice Should Learn</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-crafting-the-perfect-auditory-package-for-boxings/"><u>[Updated] Crafting the Perfect Auditory Package For Boxings</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-how-to-record-google-meet-on-phone-in-2024/"><u>[Updated] How to Record Google Meet on Phone, In 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-pro-window-11-users-guide-to-photovideo-imports/"><u>[Updated] Pro Window 11 Users' Guide to Photo/Video Imports</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-recommendation-best-websites-to-download-alarm-ringtone/"><u>[Updated] Recommendation Best Websites To Download Alarm Ringtone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-ultimate-selection-top-hdr-camera-picks/"><u>[Updated] Ultimate Selection Top HDR Camera Picks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-iphones-loop-functionality/"><u>[Updated] Unlocking iPhone's Loop Functionality</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-access-global-grooves-at-zero-price/"><u>2024 Approved Access Global Grooves at Zero Price</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-universal-unlock-pattern-for-motorola-moto-g23-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Motorola Moto G23</u></a></li>
+<li><a href="https://fox-info.techidaily.com/instant-identity-protection-blur-image-edges-for-2024/"><u>Instant Identity Protection Blur Image Edges for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-the-art-of-fn-key-configuration-for-windows-os/"><u>Mastering the Art of FN Key Configuration for Windows OS</u></a></li>
+<li><a href="https://fox-info.techidaily.com/mastering-the-art-of-reversed-color-photography-for-2024/"><u>Mastering the Art of Reversed Color Photography for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/tackle-windows-geforce-scanning-problems-effectively/"><u>Tackle Windows GeForce Scanning Problems Effectively</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/upgrade-to-iphone-16-or-not-a-balanced-view-of-advantages-and-disadvantages-by-zdnets-tech-gurus/"><u>Upgrade to iPhone 16 or Not? A Balanced View of Advantages & Disadvantages by ZDNet's Tech Gurus</u></a></li>
+</ul></div>
 

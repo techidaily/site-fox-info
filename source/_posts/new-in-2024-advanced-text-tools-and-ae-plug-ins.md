@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Advanced Text Tools & AE Plug-Ins\""
-date: 2025-01-29T17:07:06.806Z
-updated: 2025-02-02T16:23:58.234Z
+date: 2025-01-29T23:19:52.331Z
+updated: 2025-02-03T22:40:05.888Z
 tags: 
   - screen-recording
   - ai video
@@ -25,10 +25,6 @@ Adobe After Effects remains one of the most powerful ways to edit videos. One of
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## TextDelay
 
 Link: <https://www.toolfarm.com/buy/plugin%5Feverything%5Ftextdelay/>
@@ -36,6 +32,10 @@ Link: <https://www.toolfarm.com/buy/plugin%5Feverything%5Ftextdelay/>
 TextDelay is a native plugin, meaning that you will find it already installed on After Effects. As the name suggests, you can use TextDelay to delay any other text transformations that you may add to the text and it allows you to delay these transformations by word, line, or even character. It comes with a range selector that allows you to have precise control over which characters can get the effect.
 
 ![text delay plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-delay-plugin.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## TextExploder
 
@@ -45,6 +45,10 @@ TextExploder is an After Effects plugin that is developed by MamoWorld and it al
 
 ![text exploder plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-exploder-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## iExpressions 2
 
 Link: <https://aescripts.com/iexpressions/>
@@ -52,10 +56,6 @@ Link: <https://aescripts.com/iexpressions/>
 If you want to effectively use the After Effects expressions even if you are not familiar with coding, iExpressions 2 is the text plugin to consider. It comes with 22 ready-to-use iExpressions that you can easily customize to fit into your project and it is so easy to use.
 
 ![iexpression 2 plugin](https://images.wondershare.com/filmora/article-images/2022/07/iexpression-2-plugin.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## TextBox
 
@@ -74,7 +74,7 @@ Font Manager is an After Effects text plugin that is useful when creating and wo
 ![font manager plugin](https://images.wondershare.com/filmora/article-images/2022/07/font-manager-plugin.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Cartoon Moblur
@@ -85,14 +85,6 @@ This is the most ideal plugin to choose when you want to add motion trail to the
 
 ![cartoon moblur plugin](https://images.wondershare.com/filmora/article-images/2022/07/cartoon-moblur-plugin.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Shadow Studio
 
 If you are looking for shadow styles that will go very well with your project, Shadow Studio is a good plugin to get. It offers you a wide variety of shadow styles including radial, inner, soft, and long shadows. Most people find it an easier and more affordable way to add soft shadows as compared to traditional methods like raytracing. It is also quite easy to use, meaning that shadow effects that would take hours to complete can be done in a matter of minutes.
@@ -100,7 +92,11 @@ If you are looking for shadow styles that will go very well with your project, S
 ![shadow studio plugin](https://images.wondershare.com/filmora/article-images/2022/07/shadow-studio-plugin.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Texts Animation Bundle
@@ -110,6 +106,10 @@ Link: <https://aedownload.com/download-texts-animation-bundle-free-videohive/>
 This is a bundle of more than 80 different templates to add text effects to any text in After Effects. All the templates in the bundle are easily customizable and the plugin is very easy to use, allowing you to create amazing text effects in just a few clicks. The templates are modeled from various titles, quotes, and stories, so there is a little bit of something for everyone. Plus, the bundle gets constant updates and you are likely to get new templates with each update.
 
 ![texts animation bundle plugin](https://images.wondershare.com/filmora/article-images/2022/07/texts-animation-bundle-plugin.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Artificial Intelligence Titles
 
@@ -128,7 +128,7 @@ This is another great text animation bundle with different options for just abou
 ![text library plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-library-plugin.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -165,15 +165,17 @@ On its own After Effects comes with so many post-production effects and features
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-navigate-the-digital-world-prime-twitters-converters/"><u>[New] 2024 Approved Navigate the Digital World Prime Twitters Converters</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-pro-tips-for-impressive-gopro-time-lapse-cinematography/"><u>[New] In 2024, Pro Tips for Impressive GoPro Time-Lapse Cinematography</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-stepwise-guide-to-effective-keying-with-kinemasters-gs-for-2024/"><u>[New] Stepwise Guide to Effective Keying with KineMaster's GS for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-12-leading-motion-capture-camcorders-now-with-global-positioning/"><u>[Updated] In 2024, 12 Leading Motion Capture Camcorders Now With Global Positioning</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-essential-guide-to-zooming-with-gmail-emails-professionally/"><u>[Updated] The Essential Guide to Zooming with Gmail Emails Professionally</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-the-spyro-reignited-trilogy-a-tiny-heros-monumental-worth/"><u>Evaluating the Spyro Reignited Trilogy: A Tiny Hero's Monumental Worth</u></a></li>
-<li><a href="https://fox-info.techidaily.com/from-pixels-to-power-the-ultra-hd-world-of-samsung-ue590/"><u>From Pixels to Power The Ultra HD World of Samsung UE590</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Realme Narzo N53 | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-vivo-y100t-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Vivo Y100t to Other Android devices | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/top-9-digital-challenges-boosting-design-craftsmanship/"><u>Top 9 Digital Challenges Boosting Design Craftsmanship</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-figure-skating-highlights-2022/"><u>[New] In 2024, Figure Skating Highlights 2022</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-mold-memorable-memes-via-giphy/"><u>[New] Mold Memorable Memes via Giphy</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-360-camera-buying-guide-how-to-choose-a-suitable-360-camera-2023-update/"><u>[Updated] In 2024, 360 Camera Buying Guide How to Choose a Suitable 360 Camera -2023 Update</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-ultimate-collection-20-chuckle-inducing-detention-cell-photos-for-a-better-day/"><u>[Updated] In 2024, Ultimate Collection 20 Chuckle-Inducing Detention Cell Photos for a Better Day</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-unboxing-t5s-capability-as-a-sports-recorder/"><u>[Updated] Unboxing T5's Capability as a Sports Recorder</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/about-realme-note-50-frp-bypass-by-drfone-android/"><u>About Realme Note 50 FRP Bypass</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-how-to-transcribe-speech-to-text-in-microsoft-word-learn-it-here/"><u>In 2024, How to Transcribe Speech to Text in Microsoft Word Learn It Here</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-unleashing-the-magic-searching-for-photos-on-pexels/"><u>In 2024, Unleashing the Magic Searching for Photos on Pexels</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Samsung Galaxy A14 5G? | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/overcoming-push-to-talk-problems-a-step-by-step-guide-to-fixing-your-overwatch-chat-setup/"><u>Overcoming Push-to-Talk Problems: A Step-by-Step Guide to Fixing Your Overwatch Chat Setup</u></a></li>
+<li><a href="https://extra-information.techidaily.com/simplified-telegram-web-navigation-procedures/"><u>Simplified Telegram Web Navigation Procedures</u></a></li>
+<li><a href="https://os-tips.techidaily.com/top-rated-ipad-10th-gen-case-selection-the-ultimate-guide/"><u>Top-Rated iPad 10Th Gen Case Selection - The Ultimate Guide</u></a></li>
 </ul></div>
 

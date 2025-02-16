@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Innovative Angles  Shooting Vertical Smartphone Panos\""
-date: 2024-08-08T10:16:20.953Z
-updated: 2024-08-09T10:16:20.953Z
+date: 2025-01-28T22:06:45.363Z
+updated: 2025-02-03T16:37:48.812Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/7a3bff4e2eede5438bb2fccedcb9095f7ad51baa5
 
 # How to Shoot Vertical Panorama Photos with Your Smartphone Android/iOS
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -38,17 +35,18 @@ thumbnail: https://thmb.techidaily.com/7a3bff4e2eede5438bb2fccedcb9095f7ad51baa5
  However, you will need to use a few but simple techniques to efficiently capture the vertical panoramic view. In this article, we’ll explain you how you can carry out those extraordinary views with your Android or iOS device.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to take vertical panorama photography with your respective Smartphone
 
 * [Part 1: For iPhone Users](#part1)
 * [Part 2: For Android Users](#part2)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### For iPhone users
 
  The iPhone users can follow the steps given below to execute vertorama.
@@ -56,19 +54,17 @@ thumbnail: https://thmb.techidaily.com/7a3bff4e2eede5438bb2fccedcb9095f7ad51baa5
 * Launch Camera app in your device and initiate a right swipe to the "PANO" mode.
 * Make sure to hold the device horizontally and hit the camera button.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/iphone-panorama-mode.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image source: mac-fusion
 
 * Begin to go along with the upward arrow on the screen to capture the desired vertorama.
 * Once finished and satisfied, just tap on "Done" option.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ### For Android users
 
  To capture vertical panorama on Android, the steps are given just below.
@@ -84,6 +80,10 @@ thumbnail: https://thmb.techidaily.com/7a3bff4e2eede5438bb2fccedcb9095f7ad51baa5
 * Repeat the same with other dots as well. In other words, move camera towards the gray dots one by one until they get disappear.
 * Tap on "Done" when completed.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Some Beneficial Tips for shooting vertical panorama photo
 
 * Firstly, we would suggest you using a tripod when you need to take **vertical panorama on iPhone** or Android smoothly i.e. to avoid shakiness.
@@ -91,10 +91,11 @@ thumbnail: https://thmb.techidaily.com/7a3bff4e2eede5438bb2fccedcb9095f7ad51baa5
 * For better shoot of vertical panorama on Android as well as iPhone, make sure to stand close to the subject to be captured. This way will intensify the tall subjects rather than giving more highlight to the foreground.
 * Leaving some space is another beautiful tip especially if you are a graphic designer and want to add some text into the picture. The panorama shot will look perfectly enhanced this way.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -119,4 +120,21 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-revolutionize-your-twitter-experience-with-essential-apps/"><u>[New] 2024 Approved Revolutionize Your Twitter Experience with Essential Apps</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-4k-unveiled-hp-dreamcolors-technological-leap/"><u>[New] 4K Unveiled HP DreamColor's Technological Leap</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-demystifying-mac-audio-capture-via-audacity/"><u>[New] In 2024, Demystifying Mac Audio Capture via Audacity</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-free-lut-sets-unlocked-dji-mini-air-2-in-the-spotlight/"><u>[New] In 2024, Free LUT Sets Unlocked - DJI Mini, Air 2 in the Spotlight</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-guide-to-livecasting-google-meet-on-youtube/"><u>[New] In 2024, Guide to Livecasting Google Meet on YouTube</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-z2-advantage-an-intelligent-mobile-assessment-for-2024/"><u>[New] Z2 Advantage An Intelligent Mobile Assessment for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-boosting-visuals-with-photoshops-motion-blur-effect-tutorial/"><u>[Updated] 2024 Approved Boosting Visuals with Photoshop's Motion Blur Effect Tutorial</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-elevate-your-soundscape-windows-10-audio-tips/"><u>[Updated] 2024 Approved Elevate Your Soundscape Windows 10 Audio Tips</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-optimize-your-video-conferencing-experience-with-zoom-and-win10/"><u>[Updated] Optimize Your Video Conferencing Experience with Zoom & Win10</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-taming-high-bit-rate-in-obs/"><u>[Updated] Taming High-Bit Rate in OBS</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-in-depth-analyzing-lgs-4k-wuhd-hdr-performance/"><u>2024 Approved In Depth Analyzing LG's 4K WUHD HDR Performance</u></a></li>
+<li><a href="https://win11.techidaily.com/eliminate-overscan-perfecting-window-sizing-on-windows/"><u>Eliminate Overscan: Perfecting Window Sizing on Windows</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mastering-netflix-troubleshooting-19-tips-for-perfect-playback-on-lg-displays/"><u>Mastering Netflix Troubleshooting: 19 Tips for Perfect Playback on LG Displays</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211387800--pure-human/"><u>Pure Human | Free Book</u></a></li>
+</ul></div>
 

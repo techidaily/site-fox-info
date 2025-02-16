@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  DIY Filming Hacks to Learn and Implement at Home\""
-date: 2025-01-31T16:55:51.338Z
-updated: 2025-02-02T17:19:27.190Z
+date: 2025-02-02T00:21:20.856Z
+updated: 2025-02-03T18:56:00.082Z
 tags: 
   - screen-recording
   - ai video
@@ -43,17 +43,9 @@ For the black t-shirt, you can use an old t-shirt that you don't wear anymore. Y
 
 ![black t-shirt for lighting control](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-2.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 After managing all the required things, you must wrap and secure the t-shirt around the board. If the size of the t-shirt is larger than cardboard, tie the sleeves to secure the t-shirt. Or you can also use tape to secure the t-shirt and fasten it on the backside.
 
 ![process for making diy flag](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-3.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 With this DIY flag, you can now easily give shape and block the light while filming at home. **Warnings:** Some fabrics are not fireproof, so always keep an eye on the flag.
 
@@ -64,11 +56,7 @@ After filming the video, see the precise results before using the flag, when the
 ![results after using diy flag for lighting control](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-4.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. Hack. DIY Black Wrap or Cinewrap
@@ -77,11 +65,19 @@ The black wrap is used in professional studios and set up to block and shape lig
 
 The aluminum foils used in households have the same characteristics as a black wrap, so that you can use it as an alternative. Look at the following requirement to make it! To make a black wrap, you need two household tools. There is no need to get pricey things from the market. For this, follow the below outlines of the tools!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. A Light Bulb
 
 You can take any LED bulb present at our home. Ensure that the bulb size is manageable to avoid any issues handling it.
 
 ![lightbulb used for cinewrap](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-5.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Foil Paper
 
@@ -97,6 +93,10 @@ Step2 Then, you need to install the bulb on the lamp.
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note:** During wrapping, you don't have to allow the foil to touch the bottom part of the bulb.
 
 Step3 Leave a small part of the bulb open from the top and cover the part from the side.
@@ -108,7 +108,7 @@ Step4 Ensure the lamp switch is off, and install the light bulb.
 When you turn on the lamp, the light has been shaped into a smaller light source.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Final Results for the Black Wrap or Cinewrap
@@ -118,20 +118,20 @@ You can observe that the light is only at the required place, with no dispersion
 ![results after using cinewrap](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-8.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 After experimenting with light shaping and blocking hacks, we will move toward the light reflector hack!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3\. Hack. DIY Light Reflector
 
 A reflector is a spontaneous or specialized reflective surface that diverts the light to our subject or object. Professional filming setups usually use a large reflector to get a glowing effect on a subject or even more than two.
 
 ![light reflector used in a professional setup](https://images.wondershare.com/filmora/article-images/2023/01/filming-diy-hacks-9.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 When applied to flat surfaces, the foil has a reflective surface. It makes it the best alternative to a professional reflector. To make your one, you will need
 
@@ -154,14 +154,24 @@ When applied to flat surfaces, the foil has a reflective surface. It makes it th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-earn-free-football-fun-learn-to-livestream-legends/"><u>[New] In 2024, Earn-Free Football Fun Learn to Livestream Legends</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-mastering-lut-manipulation-a-comprehensive-photoshop-guide-for-2024/"><u>[New] Mastering LUT Manipulation A Comprehensive PhotoShop Guide for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-channel-growth-guide-top-5-video-marketing-tactics-revealed/"><u>[New] The Ultimate Channel Growth Guide Top 5 Video Marketing Tactics Revealed</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-boosting-instagram-video-speed-onlinemobile/"><u>[Updated] Boosting Instagram Video Speed Online/Mobile</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-professional-adobe-tips-resurrect-the-color-of-faded-iphone-hdr-in-video-editing/"><u>[Updated] In 2024, [Professional Adobe Tips] Resurrect the Color of Faded iPhone HDR in Video Editing</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-a-step-by-step-roadmap-for-lasting-tiktok-account-loss/"><u>[Updated] In 2024, A Step-by-Step Roadmap for Lasting TikTok Account Loss</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-ultimate-list-of-mac-friendly-video-to-mp4-codecs/"><u>[Updated] In 2024, Ultimate List of Mac-Friendly Video to MP4 Codecs</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/direct-download-of-video-to-mp3-from-vimeo/"><u>Direct Download of Video to MP3 From Vimeo</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/does-samsungs-cf591-gaming-monitor-deliver-quality-play-experience/"><u>Does Samsung's CF591 Gaming Monitor Deliver Quality Play Experience?</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-prime-chart-to-screen-recorder/"><u>[New] 2024 Approved Prime Chart to Screen Recorder</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-enhance-visual-storytelling-via-xps-software/"><u>[New] In 2024, Enhance Visual Storytelling via Xp's Software</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-10-spectacularly-free-luts-elevate-with-exclusive-purchase-options/"><u>[Updated] In 2024, 10 Spectacularly Free LUTs; Elevate with Exclusive Purchase Options</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-examining-key-features-in-vr-headsets/"><u>[Updated] In 2024, Examining Key Features in VR Headsets</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-masterful-mixers-free-lut-compendium/"><u>[Updated] In 2024, Masterful Mixers' Free LUT Compendium</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-superior-android-3d-film-watcher/"><u>[Updated] Superior Android 3D Film Watcher</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-why-do-my-photoshoot-videos-grind-to-a-halt/"><u>[Updated] Why Do My Photoshoot Videos Grind to a Halt?</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-maximize-impact-with-professional-360-video-uploads-for-youtube/"><u>2024 Approved Maximize Impact with Professional 360° Video Uploads for YouTube</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/all-about-vision-pros-travel-feature-insights-and-tips-before-you-embark-on-your-journey-zdnet/"><u>All About Vision Pro's Travel Feature: Insights & Tips Before You Embark on Your Journey | ZDNet</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/best-top-4-android-emulators-for-your-samsung-device/"><u>Best Top 4 Android Emulators for Your Samsung Device</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixed-your-current-security-settings-do-not-allow-this-file-to-be-downloaded/"><u>Fixed: Your Current Security Settings Do Not Allow This File to Be Downloaded</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-quick-tempo-adjustment-application-selection/"><u>In 2024, Quick Tempo Adjustment Application Selection</u></a></li>
+<li><a href="https://fox-info.techidaily.com/navigating-the-world-of-iphone-hdr-a-beginners-guide/"><u>Navigating the World of iPhone HDR A Beginner's Guide</u></a></li>
+<li><a href="https://win11.techidaily.com/overcoming-windows-ram-capacity-restrictions/"><u>Overcoming Windows' RAM Capacity Restrictions</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-innovators-choice-best-gimbal-systems-for-video-creators/"><u>The Innovator’s Choice Best Gimbal Systems for Video Creators</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/the-ultimate-guide-to-learning-ai-prompt-writing-ranking-the-5-premier-courses/"><u>The Ultimate Guide to Learning AI Prompt Writing: Ranking the 5 Premier Courses</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-advisor-the-ultimate-guide-to-computer-components/"><u>Tom's Tech Advisor: The Ultimate Guide to Computer Components</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-youtube-rank-tracker-tools-unveiled-for-2024/"><u>Top 8 YouTube Rank Tracker Tools Unveiled for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/ultimate-hue-harmonizer-software-for-2024/"><u>Ultimate Hue Harmonizer Software for 2024</u></a></li>
 </ul></div>
 
