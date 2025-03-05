@@ -1,7 +1,7 @@
 ---
 title: "\"Deep Windows 11 Know-How  Importing Media Like a Pro\""
-date: 2024-07-29T07:18:44.097Z
-updated: 2024-07-30T07:18:44.097Z
+date: 2025-03-01T09:10:08.241Z
+updated: 2025-03-05T01:23:11.321Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/ef69c6cfc05813b51fd415fbeca882846dc473b99
 
 # How to Import Photos and Videos in Windows 10 (Deepest Secret)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -36,24 +33,14 @@ In the past, importing photos and videos to a laptop or desktop computer from va
 * [**Part3: Troubleshooting the Phone to PC Connection**](#part3)
 * [**Part4: Import Photos and Video from a Camera**](#part4)
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 1: Import Photos and Video from a Phone
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ### Step 1: Connecting Your Phone
 
 If you are moving photos and video to Windows 10 from a smartphone, you will first have to connect your phone to the computer. It can be done through the USB cable that you should have received with the smartphone. Plug one end of the cable into your phone and the other into the USB port of your desktop or laptop.
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/usb-cable.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Step 2: Enable File Exchange
 
 Your phone will have settings regarding file transfers when it is connected to a computer. Make sure that media viewing and transferring is selected, which will allow Windows 10 File Explorer on the computer to recognize your device.
@@ -62,9 +49,6 @@ Your phone will have settings regarding file transfers when it is connected to a
 
 Now that your phone is recognized, you should see the camera or phone pop up along with your hard drives and other external drives. You can right click on its icon, select “Import Photos and Videos” and proceed from there.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-video-photos-to-windows-10.jpg)
 
 ### Step 4: Import
@@ -81,27 +65,12 @@ Go to Start -> All Apps -> Photos and open it up. Your phone or camera should be
 
 Click the Import button on the Photos app and choose the items that you want to import. When you have selected all the items you want, click on continue and then import. All your files will be added onto your computer and they will be visible within the Photos app.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-photos-app.jpg)
 
 Within the app, it is easy to see your photos and videos as they are organized based on the date they are imported. So you will be able to see exactly what you have added in the most recent imports and with future imports as well.
 
 **You may also like:** [How to Add Titles/Text to Video on Photos App in Windows 10 >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Troubleshooting the Phone to PC Connection
 
 There are instances where you may have some problems connecting your phone to the computer, even if you have the USB cable connected on both ends.
@@ -149,4 +118,23 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-election-excursions-best-gamified-democracy-sites/"><u>[New] 2024 Approved Election Excursions Best Gamified Democracy Sites</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-cinematographic-cuisine-expert-tips-on-filming-edibles/"><u>[New] Cinematographic Cuisine Expert Tips on Filming Edibles</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-innovative-angles-shooting-vertical-smartphone-panos/"><u>[New] In 2024, Innovative Angles Shooting Vertical Smartphone Panos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-in-depth-guide-to-streaming-and-recording-webcasts-professionally/"><u>[Updated] 2024 Approved In-Depth Guide to Streaming and Recording Webcasts Professionally</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-drones-unleashed-advanced-editing-for-ultimate-visuals/"><u>[Updated] Drones Unleashed Advanced Editing For Ultimate Visuals</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-secure-smooth-photo-viewing-w10-troubleshooting-tips-unveiled/"><u>[Updated] Secure Smooth Photo Viewing W10 Troubleshooting Tips Unveiled</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-speedy-fixes-for-slow-mo-videos-in-a-flash-for-2024/"><u>[Updated] Speedy Fixes for Slow-Mo Videos in a Flash for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-streamline-your-screen-experience-pip-mastery-for-mac-enthusiasts/"><u>[Updated] Streamline Your Screen Experience PIP Mastery for Mac Enthusiasts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-turn-up-the-volume-a-guide-to-personalizing-ringtone-and-sound-settings-on-android-devices/"><u>[Updated] Turn Up the Volume A Guide to Personalizing Ringtone & Sound Settings on Android Devices</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/usb-202-4/"><u>如何有效利用可開機USB進行硬碟克隆技術指南-202 4年新版本</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mastering-screen-mirroring-sync-your-android-with-amazon-fire-tv/"><u>Mastering Screen Mirroring: Sync Your Android with Amazon Fire TV</u></a></li>
+<li><a href="https://extra-support.techidaily.com/pinterest-vid-lifting-the-top-free-online-tools-list-for-2024/"><u>Pinterest Vid Lifting The Top Free, Online Tools List for 2024</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/scambio-dei-file-tra-dispositivi-come-trasferire-il-contenuto-del-tuo-hard-disk-esterno-al-tuo-nuovo-computer/"><u>Scambio Dei File Tra Dispositivi: Come Trasferire Il Contenuto Del Tuo Hard Disk Esterno Al Tuo Nuovo Computer</u></a></li>
+<li><a href="https://fox-info.techidaily.com/seamlessslide-visual-harmony-on-macsierra-for-2024/"><u>SeamlessSlide Visual Harmony on MacSierra for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solution-guide-for-when-your-logitech-g733-microphone-fails-to-work/"><u>Solution Guide for When Your Logitech G733 Microphone Fails to Work</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-ultimate-guide-to-drone-shooting-methods/"><u>The Ultimate Guide to Drone Shooting Methods</u></a></li>
+</ul></div>
 

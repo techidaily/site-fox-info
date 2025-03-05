@@ -1,7 +1,7 @@
 ---
 title: "Best Memory Card for Sony A7S II for 2024"
-date: 2024-07-29T07:16:01.210Z
-updated: 2024-07-30T07:16:01.210Z
+date: 2025-03-01T22:57:11.381Z
+updated: 2025-03-05T10:10:40.374Z
 tags: 
   - screen-recording
   - ai video
@@ -20,14 +20,6 @@ thumbnail: https://thmb.techidaily.com/26fc91ea31b084d9024cbf2c3260379dfbc09b55f
 
 # Best Memory Card for Sony A7S II
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -38,9 +30,6 @@ thumbnail: https://thmb.techidaily.com/26fc91ea31b084d9024cbf2c3260379dfbc09b55f
 
  The article below can help you to select right memory cards for your Sony A7S II camera:
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to choose the right memory card for your Sony A7S II
 
 #### Section 1: UHS (Ultra High Speed) Card Classification
@@ -78,9 +67,6 @@ thumbnail: https://thmb.techidaily.com/26fc91ea31b084d9024cbf2c3260379dfbc09b55f
 * Note that there is no money saving deal in memory card price ranges. When you go to buy a 128GB memory card it will naturally cost same as if you buy two 64GB cards.
 * The SD cards are small sized, compact units so whether you carry a 64GB card in your pocket or choose a 128GB package, none of these are going to put additional weight on your pocket.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Best Memory Cards for Sony A7S II
 
 #### 1. Sony 64GB High Performance Class 10 UHS-1/U3 SDXC
@@ -119,9 +105,6 @@ thumbnail: https://thmb.techidaily.com/26fc91ea31b084d9024cbf2c3260379dfbc09b55f
 * Extreme Pro is compatible with SDXC devices.
 * Ensures perfect results for Full HD, 3D and 4K resolution levels.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -147,4 +130,26 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-how-to-save-or-record-periscope-videos-complete-guide/"><u>[New] 2024 Approved How to Save or Record Periscope Videos Complete Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-mastering-the-art-of-memetics-a-9gag-creators-manual/"><u>[New] 2024 Approved Mastering the Art of Memetics A 9GAG Creator's Manual</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-artisans-blueprint-achieving-3d-text-mastery/"><u>[New] 2024 Approved The Artisan's Blueprint Achieving 3D Text Mastery</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-essentials-for-an-alluring-video-blog-narrative/"><u>[New] Essentials for an Alluring Video Blog Narrative</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-keep-your-snaps-secret-stealthy-photo-taking-tricks-for-snapchat/"><u>[New] In 2024, Keep Your Snaps Secret Stealthy Photo Taking Tricks for Snapchat</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-ultimate-strategy-for-posting-srt-content-socially/"><u>[New] In 2024, The Ultimate Strategy for Posting SRT Content Socially</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-top-studio-screening-shorts/"><u>[New] In 2024, Top Studio Screening Shorts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-total-command-mastery-powerdirector-review-and-guide/"><u>[New] Total Command Mastery PowerDirector Review & Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-cutting-edge-techniques-for-saving-insta-videos/"><u>[Updated] 2024 Approved Cutting-Edge Techniques for Saving Insta Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-navigating-phantoms-reverse-video-capabilities/"><u>[Updated] 2024 Approved Navigating Phantom's Reverse Video Capabilities</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-excellent-10-drone-set-professional-filming-and-photography/"><u>[Updated] Excellent 10-Drone Set Professional Filming & Photography</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-the-roadmap-to-your-own-instagram-corporate-identity/"><u>[Updated] The Roadmap to Your Own Instagram Corporate Identity</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-digital-canvas-unveiled-top-8-ipados-creators-choice/"><u>In 2024, Digital Canvas Unveiled Top 8 iPadOS Creators' Choice</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Motorola Moto G04? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-navigating-through-the-ultimate-guide-to-top-9-free-logos/"><u>In 2024, Navigating Through The Ultimate Guide to Top 9 Free Logos</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-create-stunning-mac-slideshows-a-beginners-guide-to-ezvid/"><u>New In 2024, Create Stunning Mac Slideshows A Beginners Guide to Ezvid</u></a></li>
+<li><a href="https://win-news.techidaily.com/setting-up-a-safe-and-secured-home-wireless-internet-connection-a-step-by-step-guide-by-yl-computing/"><u>Setting Up a Safe and Secured Home Wireless Internet Connection: A Step-by-Step Guide by YL Computing</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-10-solutions-for-iphone-app-download-issues-fixed/"><u>Top 10 Solutions For iPhone App Download Issues - Fixed</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-guide-connecting-your-mac-to-tv-via-airplay/"><u>Ultimate Guide: Connecting Your Mac to TV via AirPlay</u></a></li>
+</ul></div>
 

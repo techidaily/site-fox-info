@@ -1,7 +1,7 @@
 ---
 title: "The Essentials of Blurring Photo Borders"
-date: 2025-02-11T17:15:25.396Z
-updated: 2025-02-16T06:36:16.789Z
+date: 2025-02-27T11:09:44.986Z
+updated: 2025-03-04T18:09:01.813Z
 tags: 
   - screen-recording
   - ai video
@@ -133,10 +133,6 @@ Unsplash is one of the biggest online storage sites for royalty-free images. You
 
 ![unsplash background website](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-12.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. [Pexels](https://www.pexels.com/search/background/)
 
 Pexels is another web-based tool that contains numerous stock photos and videos for your various needs. You can find thousands of suitable images as your background photo. The app is used by designers, creators, bloggers, and everyday users alike.
@@ -195,19 +191,11 @@ From the panel at the right, select "Output Settings." Check the box next to "De
 
 ![remove the selected color](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 5: Add a New Background
 
 You can now paste the image you wish to add as a background for your photo. Position your image on the layer below the one with your foreground. You can resize your background image if required by selecting the “Free Transform” tool.
 
 ![ add new picture background](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 6: Fix the Colors
 
@@ -226,10 +214,6 @@ Step 1: Isolate Subject
 Isolate your subject on a separate layer by accessing the “Quick Selection” tool and clicking on the “Select Subject” button. You can use the "Lasso" tool to refine your selection. Click on "Select and Mask" and select the “Black and White View.” Now, choose the output to "New Layer with Layer Mask."
 
 ![change the output](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 2: Expand the Selection
 
@@ -335,10 +319,6 @@ You can now paste the image you wish to add as a background for your photo. Posi
 
 ![ add new picture background](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 6: Fix the Colors
 
 To blend the colors of your two images, select your foreground layer. Now go to "Image" and open "Adjustments." From here, launch the "Match Color" popup window. Navigate to "Source" and select your image. From the "Layer" option, choose the layer you want to fix.
@@ -363,10 +343,6 @@ Hold the “CTRL” key and select your layer mask. Go to the "Select" tab, find
 
 ![expand selection by pixels](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-8.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 3: Apply Photo Blur
 
 Right-click on the background layer and choose "Convert to Smart Object." Head over to the "Filter" tab, expand "Blur Gallery," and choose "Tilt-Shift." You can change the field lines to adjust the depth of field for your image and create a smooth transition. You can also control the intensity of the blur from the slider present on the right. Click “OK” and save your image.
@@ -382,10 +358,6 @@ Step 1: Remove Background
 To start with, insert your image and go to the Properties window. Under "Quick Options," click on the "Remove Background" option. Photoshop will automatically detect your subject and remove the background.
 
 ![tap on remove background](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-10.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 2: Refine Outline
 
@@ -413,10 +385,6 @@ You can search for the image background of your choice and download it for free 
 
 ![pexels background images](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-13.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. [Pixabay](https://pixabay.com/images/search/background/)
 
 If you are looking for a website to find backgrounds in HD quality, you can try Pixabay. This remarkable site offers you a wide spectrum of options to choose from. Pixabay contains one of the widest collections of high-quality stock images.
@@ -434,10 +402,6 @@ With a wide range of editing tools available today, you can change any aspect of
 03 [How to Remove Photo Background?](#part3)
 
 04 [3 Best Websites to Download Stunning Photo Editing Background Images](#part4)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: How Can You Edit Photo Background Better?
 
@@ -500,10 +464,6 @@ Step 2: Expand the Selection
 Hold the “CTRL” key and select your layer mask. Go to the "Select" tab, find and expand "Modify," and tap "Expand." Select a suitable number and tap “OK” Next, go to the “Edit” tab and select “Content-Aware Fill."
 
 ![expand selection by pixels](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 3: Apply Photo Blur
 
@@ -583,21 +543,16 @@ With a wide range of editing tools available today, you can change any aspect of
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-advanced-3d-media-player-for-android-users/"><u>[Updated] 2024 Approved Advanced 3D Media Player for Android Users</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-download-dynamics-of-hd-content-on-modern-social-networks/"><u>[Updated] In 2024, Download Dynamics of HD Content on Modern Social Networks</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-pros-and-cons-delving-into-the-world-of-video-downloading-methods/"><u>[Updated] In 2024, Pros and Cons Delving Into the World of Video Downloading Methods</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-best-sound-choices-essential-downloads-guide/"><u>2024 Approved Best Sound Choices Essential Downloads Guide</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-crafting-cosmic-leaps-effects-for-fiction-films/"><u>2024 Approved Crafting Cosmic Leaps Effects for Fiction Films</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-heartstrings-plucked-essential-vocal-masterpieces-for-a-kiss/"><u>2024 Approved Heartstrings Plucked Essential Vocal Masterpieces for a Kiss</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-instantaneous-conversion-mastery-from-srt-to-txt-with-precision/"><u>2024 Approved Instantaneous Conversion Mastery From SRT to TXT with Precision</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-premium-top-tier-vr-game-equipment-list/"><u>2024 Approved Premium Top-Tier VR Game Equipment List</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-the-blueprint-of-film-narrative/"><u>2024 Approved The Blueprint of Film Narrative</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-top-ringtones-for-game-of-thrones-enthusiasts-online-listings/"><u>2024 Approved Top Ringtones for Game of Thrones Enthusiasts - Online Listings</u></a></li>
-<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Lava Yuva 2 | Dr.fone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/diagnosing-and-repairing-unexpected-audio-interruptions-on-your-windows-machine/"><u>Diagnosing and Repairing Unexpected Audio Interruptions on Your Windows Machine</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/facebooks-premier-video-extraction-tools-for-iphone-and-ipad/"><u>Facebook's Premier Video Extraction Tools for iPhone & iPad</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-maximum-frame-rate-for-languid-motion-videos/"><u>In 2024, Maximum Frame Rate for Languid Motion Videos</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/191952-9780767910934-the-feng-shui-of-abundance/"><u>The Feng Shui of Abundance | Free Book</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-realme-12-proplus-5g-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Realme 12 Pro+ 5G Location | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-moto-z2s-smarter-edge-an-exclusive-look/"><u>[New] 2024 Approved Moto Z2's Smarter Edge An Exclusive Look</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-become-a-pixlr-wizard-10-easy-tricks-for-exceptional-edits/"><u>[New] Become a Pixlr Wizard 10 Easy Tricks for Exceptional Edits</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-vivid-color-equilibrium/"><u>[New] In 2024, Vivid Color Equilibrium</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-step-by-step-guide-to-seamlessly-downloading-and-modifying-tamil-ringtones/"><u>[New] Step-by-Step Guide to Seamlessly Downloading and Modifying Tamil Ringtones</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-essential-tutorial-for-fb-video-production/"><u>[New] The Essential Tutorial for FB Video Production</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-urban-pursuit-without-the-need-for-gta/"><u>[Updated] 2024 Approved Urban Pursuit Without the Need for GTA</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-unveiling-facebook-3-tactics-for-backward-image-scanning/"><u>2024 Approved Unveiling Facebook 3 Tactics for Backward Image Scanning</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-samsung-galaxy-a24-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Samsung Galaxy A24? | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-resolve-violation-of-game-secure-environment-alerts/"><u>How To Resolve 'Violation of Game Secure Environment Alerts'</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/itel-p55plus-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Itel P55+ Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/mettre-vos-films-mpeg-en-format-swf-gratuitement-sur-la-plateforme-movavi-en-ligne/"><u>Mettre Vos Films MPEG en Format SWF Gratuitement Sur La Plateforme Movavi en Ligne</u></a></li>
 </ul></div>
 

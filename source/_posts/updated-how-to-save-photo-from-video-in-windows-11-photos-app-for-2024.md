@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Save Photo From Video in Windows 11 Photos App for 2024"
-date: 2025-02-14T16:16:57.420Z
-updated: 2025-02-16T10:37:17.459Z
+date: 2025-03-01T04:37:06.038Z
+updated: 2025-03-05T10:08:22.353Z
 tags: 
   - screen-recording
   - ai video
@@ -52,10 +52,6 @@ Creating a living image:
 
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Now, you can see the living picture by tapping ‘Play’ button.
 
 These photos are stored in the ‘Pictures’ folder of your computer having ‘LI’ appended file names. Now, it’s time to save the living image as photo on your computer using Photos app.
@@ -73,17 +69,9 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 
 We are explaining the solutions here –
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Sign in a different account in Microsoft Store
 
@@ -101,10 +89,6 @@ Here comes the guide –
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
@@ -113,10 +97,6 @@ Here comes the guide –
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -143,20 +123,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ow-to-promote-your-youtube-channel-with-high-impact-showcase-techniques-for-2024/"><u>[New] How to Promote Your YouTube Channel with High-Impact Showcase Techniques for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-the-ultimate-guide-to-superior-4ks/"><u>[New] In 2024, The Ultimate Guide to Superior 4Ks</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nblock-your-youtube-experience-easy-solutions-for-chromefirefox/"><u>[New] Unblock Your YouTube Experience Easy Solutions for Chrome/Firefox</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-deep-dive-into-theta-s-a-full-camera-examination/"><u>[Updated] 2024 Approved Deep Dive Into Theta S A Full Camera Examination</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-auditory-enhancement-unlocked-delve-into-freeware-audio-effect-software/"><u>2024 Approved Auditory Enhancement Unlocked Delve Into Freeware Audio Effect Software</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-populate-play-button-visuals-incorporating-electrodes/"><u>2024 Approved Populate Play Button Visuals Incorporating Electrodes</u></a></li>
-<li><a href="https://fox-info.techidaily.com/building-your-brand-as-a-reviewer-of-cars-and-automotive-gear-for-2024/"><u>Building Your Brand as a Reviewer of Cars and Automotive Gear for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/capture-and-conquer-instagram-photos/"><u>Capture and Conquer Instagram Photos</u></a></li>
-<li><a href="https://fox-info.techidaily.com/construct-clever-caricatures-on-giphy/"><u>Construct Clever Caricatures on Giphy</u></a></li>
-<li><a href="https://fox-info.techidaily.com/days-viewing-assessing-file-size-in-gb/"><u>Day's Viewing Assessing File Size in GB</u></a></li>
-<li><a href="https://fox-info.techidaily.com/depicting-facial-dynamics-blur-effects-in-picsart-for-2024/"><u>Depicting Facial Dynamics Blur Effects in Picsart for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/designing-acoustic-elements-for-film-teasers-and-previews/"><u>Designing Acoustic Elements for Film Teasers and Previews</u></a></li>
-<li><a href="https://fox-info.techidaily.com/discover-best-drone-motor-picks-for-peak-performance/"><u>Discover Best Drone Motor Picks for Peak Performance</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/rogging-into-digital-marketing-establishing-a-yt-channel-on-mobile/"><u>Leapfrogging Into Digital Marketing Establishing a YT Channel on Mobile</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/mastering-the-art-of-uploading-youtube-videos-on-fb/"><u>Mastering the Art of Uploading YouTube Videos on FB</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-android-audio-capture-techniques-rootless-options/"><u>[New] In 2024, Android Audio Capture Techniques - Rootless Options</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-pictorial-chuckles-kapwings-memetic-composer-for-2024/"><u>[New] Pictorial Chuckles Kapwing’s Memetic Composer for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-seamless-sound-synthesis-inshots-audio-guide-for-2024/"><u>[New] Seamless Sound Synthesis InShot's Audio Guide for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-zeroing-in-precision-backdrop-deduplication-with-photopea-for-2024/"><u>[New] Zeroing In Precision Backdrop Deduplication with Photopea for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-premium-camcorders-enhancing-podcasting/"><u>[Updated] 2024 Approved Premium Camcorders Enhancing Podcasting</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-crafting-unique-podcast-logos-visibility-tips/"><u>[Updated] Crafting Unique Podcast Logos Visibility Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-aspiring-youtubers-guide-to-affiliate-allies/"><u>[Updated] In 2024, Aspiring YouTubers' Guide to Affiliate Allies</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-the-essentials-of-navigating-ez-grabber-interface/"><u>[Updated] The Essentials of Navigating EZ Grabber Interface</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-speedyshot-echoloop-media/"><u>2024 Approved SpeedyShot EchoLoop Media</u></a></li>
+<li><a href="https://fox-info.techidaily.com/essential-vr-gear-for-aerial-devices/"><u>Essential VR Gear for Aerial Devices</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/guide-sharing-your-conversations-with-chatgpt-online/"><u>Guide: Sharing Your Conversations with ChatGPT Online</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/harnessing-microsofts-copilot-to-elevate-ai-artistry-standards/"><u>Harnessing Microsoft’s Copilot to Elevate AI Artistry Standards</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On ZTE Nubia Flip 5G? | Dr.fone</u></a></li>
 </ul></div>
 

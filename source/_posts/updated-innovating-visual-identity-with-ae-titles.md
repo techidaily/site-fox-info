@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Innovating Visual Identity with AE Titles"
-date: 2025-02-11T21:26:06.897Z
-updated: 2025-02-15T18:48:12.651Z
+date: 2025-03-01T16:23:44.339Z
+updated: 2025-03-05T09:25:49.713Z
 tags: 
   - screen-recording
   - ai video
@@ -54,19 +54,11 @@ After Effects has “Enable per-character 3D” property to all Z axis to applic
 
 Rotation is one of the most commonly used parameters in text animations. There are unlimited variations of text animations and effects that you can create using rotation parameter in After Effects. The rotation takes place in proportion to the anchor points of the text. When you change the value of Rotation parameter, the actual rotation takes place around the anchor points.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Scale and Position
 
 If you want to zoom in and zoom out animation for your text or title, you can use the Scale property in After Effects. You can use keyframes and for each keyframe, you can adjust the scale value and create an illustration of zooming in and out very easily.
 
 There are different variations of zoom in and out effect that you can try on your text and title to make animation creative and visually appealing. On the other hand, position refers to the location of the text on the video frame depending on X, Y, and Z axis values.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Blur and Opacity
 
@@ -81,10 +73,6 @@ Similarly, the stroke color can be changed and you can create an animation with 
 ### 6\. Skew
 
 If you want your text to be distorted and unusual, the skew parameter is there for you in After Effects. Skew means the character will not stay parallel and at right angles. You can adjust the skew value make texts distorted and this is useful in several text animations where distorted texts become normal texts. You can also skew texts in respect to different axis for creative animation.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 7\. Tracking
 
@@ -112,10 +100,6 @@ Step3 Go to Timeline and click on the text layer to expand it. Click on Animate 
 
 ![add keyframes in after effects](https://images.wondershare.com/filmora/article-images/2022/09/add-keyframes-in-after-effects.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Apart from the animate option and its parameters, there are several parameters such as transform that you can adjust to edit the text effect as per your preference.
 
 ## Part 3\. AE Alternative to Edit Text Effects in Video
@@ -138,10 +122,6 @@ Step3 Double-click on the text layer on the timeline to edit the text preset. Yo
 
 ![text preset settings filmora](https://images.wondershare.com/filmora/article-images/2022/09/text-preset-settings-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4 Go to Animation section and click on Advanced button. Change different parameters under Customize section such as Blue, Opacity, Shadow, and much more. You can create keyframes on the timeline like AE and edit parameters as per your preference.
 
 ![add animation text in filmora](https://images.wondershare.com/filmora/article-images/2022/09/add-animation-text-in-filmora.jpg)
@@ -163,10 +143,6 @@ Motion title is a dynamic text effect template available in After Effects throug
 Part 1\. 8 Popular Text Title Effects Types in AE
 
 There are certain properties and parameters associated with text effects and animations in After Effects. You need to get a complete overview of these types so that you can adjust them and come up with stunning text animations in After Effects.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. 3D Text
 
@@ -198,10 +174,6 @@ Similarly, the stroke color can be changed and you can create an animation with 
 
 If you want your text to be distorted and unusual, the skew parameter is there for you in After Effects. Skew means the character will not stay parallel and at right angles. You can adjust the skew value make texts distorted and this is useful in several text animations where distorted texts become normal texts. You can also skew texts in respect to different axis for creative animation.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\. Tracking
 
 Tracking refers to the spacing between the characters in a word for a text. You must have seen so many different types of text animations where the spacing between the characters is changing. You can create amazing funny and eye-catching text effects in After Effects by combining tracking and keyframe properly. Along with tracking, there is line anchor that determines the alignment of tracking. Similarly, there is line spacing parameter that controls the spacing between the lines.
@@ -211,10 +183,6 @@ Tracking refers to the spacing between the characters in a word for a text. You 
 Keyframe is like stretching two points into multiple points and for every point, you can change the value of the different parameters we have mentioned. When different keyframes have different parameters, the text will automatically animate once you play the video.
 
 Therefore, keyframes are the building blocks for text animations and you have to use keyframes to create all the different online text effects. You can put the keyframes far apart or close and speed up or slow down the animation.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. How to Edit Text Effects in Videos with AE
 
@@ -231,10 +199,6 @@ Step2 Go to Effects and Presets panel, search for the desired text effect preset
 Step3 Go to Timeline and click on the text layer to expand it. Click on Animate option and select any property that you want to adjust and create animation based on the parameters. Go to Keyframe section and add keyframes and change parameters for different keyframes for the text to animate.
 
 ![add keyframes in after effects](https://images.wondershare.com/filmora/article-images/2022/09/add-keyframes-in-after-effects.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Apart from the animate option and its parameters, there are several parameters such as transform that you can adjust to edit the text effect as per your preference.
 
@@ -253,10 +217,6 @@ Step1 Install Wondershare Filmora on your computer and launch the application. C
 Step2 Drag and drop the video clip onto timeline. Go to Titles option and you will see different categories of text effects on the left panel. Select any one of text effect templates and drop onto the timeline above the background video.
 
 ![select background for text filmora](https://images.wondershare.com/filmora/article-images/2022/09/select-background-for-text-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step3 Double-click on the text layer on the timeline to edit the text preset. You can select any available text style as well as adjust parameters from font and settings sections.
 
@@ -304,21 +264,17 @@ Motion title is a dynamic text effect template available in After Effects throug
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-android-tutorial-reversed-video-display/"><u>[New] Android Tutorial Reversed Video Display</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-unveiling-the-15-leading-cameras-excluding-gopro/"><u>[New] In 2024, Unveiling the 15 Leading Cameras Excluding GoPro</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-the-editors-guide-to-age-old-vhs-effects-in-digital-video-production-for-2024/"><u>[New] The Editor's Guide to Age-Old VHS Effects in Digital Video Production for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-top-pick-unlimited-valorant-sound-transformation-tool-free-for-2024/"><u>[New] Top Pick Unlimited Valorant Sound Transformation Tool (Free) for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-frame-by-frame-the-smartphone-storytellers-path-to-youtubes-thumbnails-for-2024/"><u>[Updated] Frame by Frame The Smartphone Storyteller's Path to YouTubes Thumbnails for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-churn-out-custom-internet-echo-jokes/"><u>[Updated] In 2024, Churn Out Custom Internet Echo Jokes</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-rhythm-discoverers-toolkit-all-free-and-online-for-2024/"><u>[Updated] Rhythm Discoverer’s Toolkit – All FREE & Online for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-tapered-music-transitions-an-intuitive-premiere-pro-tutorial-for-2024/"><u>[Updated] Tapered Music Transitions An Intuitive Premiere Pro Tutorial for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-accelerated-file-format-change-from-srt-to-simple-txt/"><u>2024 Approved Accelerated File Format Change From SRT to Simple TXT</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-instant-charm-iphones-extended-shutter-showcase/"><u>2024 Approved Instant Charm IPhone’s Extended Shutter Showcase</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-top-windows-phone-video-players-essential-app-selections/"><u>2024 Approved Top Windows Phone Video Players Essential App Selections</u></a></li>
-<li><a href="https://win11.techidaily.com/exploring-alternatives-how-to-access-imessage-on-windows/"><u>Exploring Alternatives: How to Access iMessage on Windows</u></a></li>
-<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>Full Guide to Fix iToolab AnyGO Not Working On Apple iPhone SE | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-vivo-y100t-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Vivo Y100t to iPod | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/present-owners-of-the-social-media-giant/"><u>Present Owners of the Social Media Giant</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/top-15-apps-to-hack-wifi-password-on-realme-gt-5-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Realme GT 5</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-optimizing-your-fb-video-ads-20-best-tips-for-success/"><u>[New] 2024 Approved Optimizing Your FB Video Ads 20 Best Tips for Success</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-best-top-5-zero-cost-windows-screen-recorder-tools/"><u>[New] Best Top 5 Zero-Cost Windows Screen Recorder Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-unlock-your-potential-one-thousand-new-likesmonth/"><u>[New] In 2024, Unlock Your Potential One Thousand New Likes/Month</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-chucklecrafts-create-meme-delight/"><u>[Updated] In 2024, ChuckleCrafts Create Meme Delight</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-influence-unleashed-instas-most-stellar-personalities-ranked/"><u>[Updated] Influence Unleashed Insta’s Most Stellar Personalities Ranked</u></a></li>
+<li><a href="https://win-web.techidaily.com/1-tailoring-audio-preferences-on-your-pc-a-step-by-step-guide-with-windows-control-panel-explore-options-at-xyz-tech-solutions/"><u>1. Tailoring Audio Preferences on Your PC: A Step-by-Step Guide with Windows Control Panel - Explore Options at XYZ Tech Solutions</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/can-you-believe-everything-chatgpt-says-understanding-its-reliability/"><u>Can You Believe Everything ChatGPT Says: Understanding Its Reliability</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/dji-spark-ultimate-portable-camera-uav-guide-for-2024/"><u>DJI Spark Ultimate Portable Camera UAV Guide for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-6-proven-ways-to-unlock-itel-a60-phone-when-you-forget-the-password-by-drfone-android/"><u>In 2024, 6 Proven Ways to Unlock Itel A60 Phone When You Forget the Password</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-fixes-to-solve-iphone-xs-max-randomly-asking-for-apple-id-password-by-drfone-ios/"><u>In 2024, Complete Fixes To Solve iPhone XS Max Randomly Asking for Apple ID Password</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-guffaw-generator-pictorial-editor/"><u>In 2024, Guffaw Generator Pictorial Editor</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-no-cost-windowsmac-video-players-top-16-lists/"><u>In 2024, No-Cost Windows/Mac Video Players, Top 16 Lists</u></a></li>
 </ul></div>
 

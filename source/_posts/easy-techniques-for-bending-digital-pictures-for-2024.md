@@ -1,7 +1,7 @@
 ---
 title: "Easy Techniques for Bending Digital Pictures for 2024"
-date: 2024-07-29T07:16:58.274Z
-updated: 2024-07-30T07:16:58.274Z
+date: 2025-03-01T06:32:24.751Z
+updated: 2025-03-04T18:46:38.560Z
 tags: 
   - screen-recording
   - ai video
@@ -32,22 +32,12 @@ To keep things simple, let's start with a white canvas. Let's open a new documen
 
 After creating the new document, open the image that you want to curve. You may do so by going to File > Open in the menu bar or pressing Ctrl+O or Command+O on your keyboard. Once the image is open, go to Edit in the menu bar and select Place Embedded from the drop-down menu that appears. Select your image and click Place. The image will be placed on the canvas. If the document's size does not match that of the image, you will see a transformation box surrounding the image.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ![place image in photoshop](https://images.wondershare.com/filmora/article-images/2022/09/place-image-in-photoshop.jpg)
 
 ##### Step3Warp the Image
 
 Now we'll curve the image using the Warp Tool. Select the Warp Tool by clicking and holding on the Transform Tool in the toolbar. The Warp Tool is located at the bottom of the Transform Tool's fly-out menu. Alternatively, you may press Ctrl+T or Command+T on your keyboard to open the Transform Tool's fly-out menu and then select the Warp Tool from there.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ![wrap image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/wrap-image-photoshop.jpg)
 
 With the Warp Tool selected, hover your cursor over the image. You'll see a grid appear over the image. Click and drag one of the middle nodes in the horizontal direction to begin curving the image. As you drag, you'll see the image curve along with your cursor. If you want to increase or decrease the amount of curvature, simply press and hold the Shift key while dragging the node.
@@ -58,24 +48,14 @@ Play around with the settings in the options bar. There are quite a few differen
 
 20% **Horizontal Distortion** makes one side of the image appear larger than the other. This is what my photo looks like at 20%.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ![change horizontal distortion photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-horizontal-distortion-photoshop.jpg)
 
 **Vertical Distortion** makes the image look as if it's leaning backward.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![verticle distortion image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/verticle-distortion-image-photoshop.jpg)
 
 The **Bend Direction** option rotates the angle of the bend.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ![bend direction image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/bend-direction-image-photoshop.jpg)
 
 Flip any of these effects in the opposite direction by placing a negative sign in front of the percentage. Here's -20% in the **Bend** box with a vertical bend.
@@ -88,9 +68,6 @@ Once you're happy with the way your image looks, go to File > Save As in the men
 
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 We hope this post has helped you learn how to curve an image in Photoshop. The best part about it? It's easy to do, and you can do it quickly. So, don't wait another minute! Get out there and start curving your images today (we know we are).
@@ -123,4 +100,26 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-first-choice-top-15-videography-power-tools/"><u>[New] 2024 Approved First Choice Top 15 Videography Power Tools</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-in-depth-walkthrough-of-recording-gameplay-on-apple-gaming-systems/"><u>[New] 2024 Approved In-Depth Walkthrough of Recording Gameplay on Apple Gaming Systems</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-breaking-down-sony-bdp-s6700-updates/"><u>[New] Breaking Down Sony BDP-S6700 Updates</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-no-monetary-investment-how-to-acquire-fcp/"><u>[New] No Monetary Investment? How to Acquire FCP</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-skyward-haven-of-the-pennywise-clouds-for-2024/"><u>[New] Skyward Haven of the Pennywise Clouds for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-visual-aesthetics-mastering-vsco-styles-and-looks/"><u>[Updated] 2024 Approved Visual Aesthetics Mastering VSCO Styles and Looks</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-4k-camera-guide-low-cost-options-(1000-for-2024/"><u>[Updated] 4K Camera Guide Low-Cost Options <$1,000 for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-boosting-engagement-editing-for-perfect-video-titles-and-descriptions-for-2024/"><u>[Updated] Boosting Engagement Editing for Perfect Video Titles & Descriptions for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-conveniently-keep-your-linkedin-videos-with-these-6-apps-for-2024/"><u>[Updated] Conveniently Keep Your LinkedIn Videos with These 6 Apps for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-step-by-step-integrating-apple-music-into-your-videos-for-2024/"><u>[Updated] Step-by-Step Integrating Apple Music Into Your Videos for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/diagnosing-and-repairing-intermittent-screen-lock-ups-in-computers/"><u>Diagnosing and Repairing Intermittent Screen Lock-Ups in Computers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/drone-footage-showdown-dji-mavic-2-vs-gopro-hero6-black-for-2024/"><u>Drone Footage Showdown DJi Mavic 2 Vs GoPro Hero6 Black for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/forsta-handsfattat-tips-for-att-spela-in-ljud-pa-din-webplats-movavi/"><u>Första-Handsfattat Tips För Att Spela in Ljud På Din Webplats – Movavi</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/high-performance-risc-v-pcie-gen5-ssd-nvme-controller-from-china-achieves-up-to-142gbs-speeds-no-cooling-required/"><u>High-Performance RISC-V PCIe Gen5 SSD NVMe Controller From China Achieves Up to 14.2GB/S Speeds - No Cooling Required</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-precise-techniques-for-shifting-macscreenshot-filetype/"><u>In 2024, Precise Techniques for Shifting MacScreenshot Filetype</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-videology-app-analysis-and-ratings/"><u>In 2024, Videology App Analysis & Ratings</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-depth-gopro-hero5-testing-report/"><u>In-Depth GoPro Hero5 Testing Report</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/small-but-stellar-the-g7x-mark-ii/"><u>Small but Stellar – The G7X Mark II</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-ultimate-guide-to-secure-family-steam-games/"><u>The Ultimate Guide to Secure, Family Steam Games</u></a></li>
+</ul></div>
 

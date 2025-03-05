@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Comprehensive Guide to Fisheye Panoramas"
-date: 2025-02-09T01:01:16.329Z
-updated: 2025-02-16T07:31:30.217Z
+date: 2025-02-26T09:49:40.270Z
+updated: 2025-03-05T00:37:40.848Z
 tags: 
   - screen-recording
   - ai video
@@ -47,14 +47,6 @@ thumbnail: https://thmb.techidaily.com/81ce373281fd9aff14dae5d82f0fff51572cdd8c2
 
 ![Panning clam on ballhead](https://images.wondershare.com/filmora/article-images/panning-clam-on-ballhead.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3. The actual shooting
 
  For a full frame camera with 15mm fisheye lens in the portrait position, you will require a total of six shot rounds and 1 up to complete a full sphere. If you were using a crop-sensor camera, you will need to have a 10mm fisheye lens to achieve the same sequence.
@@ -66,10 +58,6 @@ thumbnail: https://thmb.techidaily.com/81ce373281fd9aff14dae5d82f0fff51572cdd8c2
  **Keep this in mind when shooting 360 degree panoramas with fisheye**
 
  In normal photography, it always pays to remember what to include and what to exclude in your shots. When it comes to shooting 360s, it becomes more complicated since everything is included. For you to take successful 360s with fisheye therefore, you need to consider keenly where you stand. The fisheye lens will introduce a lot of space between you and the subject, hence you must consider how close or far away you are from the subject so that the pieces of the compositional puzzle will fall in place smoothly both in the horizontal and vertical planes.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Stitching 360 degrees panoramas after shooting
 
@@ -89,19 +77,11 @@ thumbnail: https://thmb.techidaily.com/81ce373281fd9aff14dae5d82f0fff51572cdd8c2
 
 ![create 360 photos with fisheye lens](https://images.wondershare.com/filmora/article-images/fisheye-lens-image.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Conclusion
 
  Fisheye lenses have been around for a while now and the process of creating 360 panoramas with them may not be very challenging, but great results are achieved through practice and proper stitching. Once the photos are taken, you can use premium panorama software like Autopano Pro or you can use free options like the Microsoft ICE or Hugin. Ones stitching are done, it is imperative to have the final works uploaded online for others to view.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -128,21 +108,22 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-diy-lol-gameplay-tapes-mastering-three-methods/"><u>[New] DIY LOL Gameplay Tapes Mastering Three Methods</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-price-tag-shooting-your-next-music-video/"><u>[New] In 2024, Price Tag Shooting Your Next Music Video</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-leading-sound-transformation-tools-magic-edition-included/"><u>[New] Leading Sound Transformation Tools, Magic Edition Included</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-innovative-tips-for-audio-addition-to-powerpoint-decks/"><u>[Updated] Innovative Tips for Audio Addition to PowerPoint Decks</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-balanced-hue-enhancer-suite/"><u>2024 Approved Balanced Hue Enhancer Suite</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-getting-acquainted-with-picsarts-latest-a-comprehensive-guide-and-review/"><u>2024 Approved Getting Acquainted with PicsArt's Latest - A Comprehensive Guide and Review</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-introduction-to-stories-essence-and-art/"><u>2024 Approved Introduction to Stories' Essence and Art</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-maximize-your-creativity-a-detailed-instruction-manual-for-uploading-videos-on-youtube/"><u>2024 Approved Maximize Your Creativity A Detailed Instruction Manual for Uploading Videos on YouTube</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-obs-screen-recorder-a-feature-full-review/"><u>2024 Approved OBS Screen Recorder A Feature-Full Review</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-the-in-depth-study-of-audafreedomaudiotools/"><u>2024 Approved The In-Depth Study of AudaFreedomAudioTools</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-the-roadmap-to-seamless-mass-tiktok-downloads/"><u>2024 Approved The Roadmap to Seamless Mass TikTok Downloads</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-top-photo-enhancers-blurring-removal-online-edition/"><u>2024 Approved Top Photo Enhancers Blurring Removal Online Edition</u></a></li>
-<li><a href="https://games-able.techidaily.com/dxgierror-0x887a0006-fix-in-windows-step-by-step/"><u>DXGI_ERROR 0X887A0006 Fix in Windows: Step by Step</u></a></li>
-<li><a href="https://change-location.techidaily.com/home-button-not-working-on-vivo-y78plus-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Vivo Y78+? Here Are Real Fixes | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/iphone-is-disabled-here-is-the-way-to-unlock-disabled-apple-iphone-xr-drfone-by-drfone-ios/"><u>iPhone Is Disabled? Here Is The Way To Unlock Disabled Apple iPhone XR | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/newly-released-movies-on-dvd-upcoming-launch-dates-and-quick-tutorials-for-speedier-dvd-downloads/"><u>Newly Released Movies on DVD: Upcoming Launch Dates & Quick Tutorials for Speedier DVD Downloads</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-comprehensive-lg-bp350-monitor-review-with-comparisons/"><u>[New] Comprehensive LG BP350 Monitor Review with Comparisons</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-subscriber-surge-strategy-on-flexible-budget/"><u>[New] In 2024, Subscriber Surge Strategy on Flexible Budget</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-behind-the-scenes-youtubes-view-count-algorithm-for-2024/"><u>[Updated] Behind the Scenes YouTube's View Count Algorithm for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-blend-photos-effortlessly-in-real-time-for-2024/"><u>[Updated] Blend Photos Effortlessly in Real-Time for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-blend-soundscape-into-ppt-narratives/"><u>[Updated] In 2024, Blend Soundscape Into PPT Narratives</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-ultimate-image-transformation-with-polarr-editors-power-for-2024/"><u>[Updated] Ultimate Image Transformation with Polarr Editor's Power for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-rights-infringement-abrupt-content-elimination/"><u>2024 Approved Rights Infringement Abrupt Content Elimination</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96172386-9781501187254-conversaciones-con-maria-conversations-with-mary-spanish-edition/"><u>Conversaciones con María (Conversations with Mary Spanish edition) | Free Book</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/enrich-ppt-content-with-soundtracks/"><u>Enrich PPT Content with Soundtracks</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/from-kitchen-clips-to-high-tech-how-ai-influences-paperclip-problem-solving/"><u>From Kitchen Clips to High-Tech: How AI Influences Paperclip Problem Solving</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/guia-ilustrada-configurando-un-punto-de-controlrestauracion-en-windows-server-2022-tres-enfoques-unicos/"><u>Guía Ilustrada: Configurando Un Punto De Control/Restauración en Windows Server 2022 – Tres Enfoques Únicos</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-tecno-pova-5mirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Tecno Pova 5Mirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-exceptional-uav-selection-for-optimal-gopro-footage/"><u>In 2024, Exceptional UAV Selection for Optimal GoPro Footage</u></a></li>
+<li><a href="https://fox-info.techidaily.com/painting-with-light-an-experts-guide-to-color-grading-for-2024/"><u>Painting with Light An Expert's Guide to Color Grading for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/revamping-security-a-step-by-step-guide-to-updating-your-facebook-password/"><u>Revamping Security: A Step-by-Step Guide to Updating Your Facebook Password</u></a></li>
+<li><a href="https://fox-info.techidaily.com/ultimate-online-collaboration-conjurer-for-2024/"><u>Ultimate Online Collaboration Conjurer for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/ultimate-speedy-pics-viewing-tool-for-2024/"><u>Ultimate Speedy Pics Viewing Tool for 2024</u></a></li>
 </ul></div>
 

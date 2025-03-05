@@ -1,7 +1,7 @@
 ---
 title: "\"Chromatic Symphony  The Filmmaker's Toolkit\""
-date: 2024-07-29T07:17:18.839Z
-updated: 2024-07-30T07:17:18.839Z
+date: 2025-03-02T19:55:20.129Z
+updated: 2025-03-05T03:09:33.992Z
 tags: 
   - screen-recording
   - ai video
@@ -22,36 +22,20 @@ Everyone in the video editing world is full of lively and beautiful colors — j
 
 ![color grading panel filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-panel-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What is Color Grading?
 
 Color grading is the video editing process wherein grading (arranging) colors in a video or film to give them a stylistic look. It is different from Color correction because color correction is the process of correcting (fixing) colors in a video or a film as a way to get them back to what they should look like for your project or output.
 
 In cinematography, color grading refers to the manipulation of film and video images to create consistent color tones throughout a motion picture. Many filmmakers use a color palette or preset as part of their overall production plan. These palettes represent artistic choices that provide the film with a cohesive general aspect. When film footage does not adequately match these color palettes, directors and colorists use digital color grading tools to change video colors as needed.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ![origianl video color grading](https://images.wondershare.com/filmora/article-images/2022/08/origianl-video-color-grading.jpg)
 
 Color grading and color correction are processes that happen throughout postproduction. One makes the film look more native, and the other stylizes the footage. After the colorist finishes color correction, they can begin grading the film. During color grading, colorists use editing software to formalize the footage, highlighting a movie's visual tone and ambiance and making it look more cinematic.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![apply color grading to video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-grading-to-video.jpg)
 
 To summarize, Color grading can be used to make both technical and creative changes. Colorists use color grading for artistic purposes to ensure that the film's carefully curated color palette conveys a specific atmosphere, style, or emotion.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ## Why is Color Grading Important?
 
 **Color grading establish a picture's first impression**
@@ -106,14 +90,6 @@ Color Panel Window - to perform color correction in Wondershare Filmora, switch 
 
 Here, there are two options to select: The Color correction. It offers different readily-made presets you can use to color your video.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![open color correction filmora](https://images.wondershare.com/filmora/article-images/2022/08/open-color-correction-filmora.jpg)
 
 ##### Step2Select the specific video portion
@@ -140,9 +116,6 @@ In the Presets tab, there are different templates, including Common, 3D LUT, Vig
 
 Once you've finished correcting the video color, press Play and go over the whole video through the previewing window. If satisfied with the result, click the "Export" button to transport your video. Click the Settings button to modify settings if needed. You can save the new videos in different formats under the Format tab. If you want to play the edit file on devices like Tablet, iPad, Kindle Fire, PSP, Xbox, etc., go to the "Devices" tab and select the configured preset for the specific model. You can also upload the video output on Youtube for better preservation.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![preview and save video filmora](https://images.wondershare.com/filmora/article-images/2022/08/preview-and-save-video-filmora.jpg)
 
 **Using the Color Panel Window**
@@ -151,18 +124,12 @@ Once you've finished correcting the video color, press Play and go over the whol
 
 You can modify the temperature, tint, white balance, contrast, saturation, and brightness and apply 3D LUT directly and quickly in this editing panel.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ![color panel windows filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-panel-windows-filmora.jpg)
 
 ##### Step2Color grading with Wondershare Filmora
 
 Click the button Advanced at the lower corner, then the color grading window will pop up, and you can explore your settings and options.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![color grading with filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-with-filmora.jpg)
 
 **Color Histogram**
@@ -229,4 +196,21 @@ Overall, Color grading is the process of video editing to have an excellent look
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-pioneering-sci-fi-escapades-10-movies-into-uncharted-realms/"><u>[New] 2024 Approved Pioneering Sci-Fi Escapades 10 Movies Into Uncharted Realms</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-building-a-brand-with-captivating-haul-videos-and-edits/"><u>[New] In 2024, Building a Brand with Captivating Haul Videos and Edits</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-optimize-your-audio-content-expert-tips-for-editing-in-garageband/"><u>[New] Optimize Your Audio Content Expert Tips for Editing in GarageBand</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-unforgettable-cinematic-journey-top-15-timeless-motion-pictures/"><u>[New] Unforgettable Cinematic Journey - Top 15 Timeless Motion Pictures</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-sonic-pixels-turning-sound-into-visual-storytelling/"><u>[Updated] 2024 Approved Sonic Pixels Turning Sound Into Visual Storytelling</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-magic-behind-melodies-an-analysis-of-magix-music-maker/"><u>[Updated] In 2024, Magic Behind Melodies An Analysis of Magix Music Maker</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-pinnacle-ios-solutions-the-best-ps2-game-emulators-for-2024/"><u>[Updated] Pinnacle IOS Solutions The Best PS2 Game Emulators for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-simplifying-image-reduction-creating-professional-thumbnails-for-2024/"><u>[Updated] Simplifying Image Reduction Creating Professional Thumbnails for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/amazing-discounts-galore-your-ultimate-guide-to-the-best-amazon-echo-deals-for-prime-day-shoppers-historical-snapshot-zdnet-insights/"><u>Amazing Discounts Galore: Your Ultimate Guide to the Best Amazon Echo Deals for Prime Day Shoppers (Historical Snapshot) | ZDNet Insights</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/boosting-your-profile-top-25-high-gainning-instagram-tags-for-2024/"><u>Boosting Your Profile Top 25 High-Gainning Instagram Tags for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-and-install-the-latest-brother-mfc-l2n690dw-printer-driver-software/"><u>Download and Install the Latest Brother MFC-L2n690dw Printer Driver Software</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Lava Blaze 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-unleashing-potential-in-ar-applying-lut-techniques/"><u>In 2024, Unleashing Potential in AR Applying LUT Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-for-configuring-facebook-shortcuts-easily/"><u>Step-by-Step for Configuring Facebook Shortcuts Easily</u></a></li>
+</ul></div>
 

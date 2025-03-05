@@ -1,7 +1,7 @@
 ---
 title: "\"Effortless Image Edit  Eliminating Backdrops in Canvas\""
-date: 2024-07-29T07:18:42.387Z
-updated: 2024-07-30T07:18:42.387Z
+date: 2025-02-25T23:17:16.166Z
+updated: 2025-03-04T17:50:15.240Z
 tags: 
   - screen-recording
   - ai video
@@ -24,18 +24,12 @@ The background remover tool is one of the most helpful features of Canva, especi
 
 However, if you need to learn how to use the tool and remove an image's Background in Canva, we're here to help you figure this out through our comprehensive step-by-step guide.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ## How To Use Canva To Remove Image's Background
 
 Canva is beloved by bloggers and small businesses for its simple, intuitive design interface and range of features, including its background-removing capability that can help to create a Pinterest graphic or blog post with a clean and professional look.
 
 Here's a quick step-by-step guide on how to use Canva to remove the background from an image on PC or mobile:
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### On PC
 
 To remove the image's background in Canva using your PC, follow the steps below:
@@ -48,18 +42,12 @@ Step1
 
 Step2 Click **"Create a Design"** and select **"Edit Photo."** Click the **"Use in a Design"** option from the top right corner of the pop-up screen.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![remove an image background in canva on pc](https://images.wondershare.com/filmora/article-images/2023/03/remove-an-image-background-in-canva-on-pc.png)
 
 Step3 Now, you will be directed to a new tab. Select your image and click the **"Edit Image"** option from the top ribbon.
 
 Step4 From the left side menu, click **"Background Remover."** Wait for the background to be processed and click **"Erase."** You can also use the cursor brush to remove the sides manually.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ![background remover in canva](https://images.wondershare.com/filmora/article-images/2023/03/background-remover-in-canva.png)
 
 Once the background is disappeared, click **"Apply"** to save your changes.
@@ -70,18 +58,12 @@ The following steps will help you remove the image's background in Canva using i
 
 Step1 Install Canva from [App Store](https://apps.apple.com/us/app/canva-design-photo-video/id897446215) or [Google Play Store](https://play.google.com/store/apps/details?id=com.canva.editor&hl=en&gl=US) in first step. Launch the app and tap the purple "Plus" icon at the bottom-right of the screen.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ![remove an image background in canva on mobile](https://images.wondershare.com/filmora/article-images/2023/03/remove-an-image-background-in-canva-on-mobile.png)
 
 Step2 Go to the **"More Ways To Create"** section and tap the **"See All"** option. Select your image and tap **"Create"** at the top right corner of the screen.
 
 Step3 Next, tap the **"Effects"** option from the menu below and select **"BG Remover."** Wait for the tool to process your image and remove the background.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** The **"Background Remover"** is available only in the premium version, letting you remove BG from up to 500 images daily.
@@ -94,11 +76,6 @@ Canva's Erase and Restore function makes it easy to remove image backgrounds. [W
 
 ![erase and restore options in canva](https://images.wondershare.com/filmora/article-images/2023/03/erase-and-restore-options-in-canva.png)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ### To erase an element from an image
 
 Step1 Select the **Erase** brush from the left panel under the **Background Remover** option
@@ -117,9 +94,6 @@ Step2 Click on the **area** you want to restore.
 
 **Note:** These tools are only available in the Canva web and desktop version.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Best Alternative Of Canva To Remove Images' Backgrounds
 
 Since Canva offers the "Background Remover" tool only in the premium version, you might want to use the best free alternative to Canva to help remove an image's Background. Therefore, [Wondershare Pixcut](https://pixcut.wondershare.com/) may be a good option for you.
@@ -162,9 +136,6 @@ Step1 Visit the PixCut website and click the **"Upload Image"** option to import
 
 Step2 Let the tool process your image, and the background will be removed instantly. You can click the **"Download"** option to save the file on your PC or use the **"Manual Erase & Restore"** option to edit it further.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![remove an image background in pixcut](https://images.wondershare.com/filmora/article-images/2023/03/remove-an-image-background-in-pixcut.png)
 
 ## Conclusion
@@ -191,18 +162,12 @@ Step2 Adjust the size of the **erase tool** to fit the element you want to remov
 
 Step3 Select the **element** you want to remove.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ### To undo an erase
 
 Step1 Select the **Restore** brush from the left panel under the **Background Remover** option
 
 Step2 Click on the **area** you want to restore.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** These tools are only available in the Canva web and desktop version.
@@ -241,9 +206,6 @@ After removing their Background, you can add shadows to your objects in PixCut. 
 
 PixCut also can remove watermarks from images, which can be handy when you want to use an image for commercial purposes and need to remove any copyright restrictions.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![wondershare pixcut](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut.png)
 
 Here's how you can use the PixCut platform to remove an image's background in one click:
@@ -252,10 +214,6 @@ Step1 Visit the PixCut website and click the **"Upload Image"** option to import
 
 Step2 Let the tool process your image, and the background will be removed instantly. You can click the **"Download"** option to save the file on your PC or use the **"Manual Erase & Restore"** option to edit it further.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![remove an image background in pixcut](https://images.wondershare.com/filmora/article-images/2023/03/remove-an-image-background-in-pixcut.png)
 
 ## Conclusion
@@ -288,4 +246,22 @@ Hopefully, you've found this article helpful and can now optimize your images in
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-cash-up-fast-a-newbies-guide-to-the-13-best-reddit-money-hacks-for-2024/"><u>[New] Cash Up Fast A Newbie's Guide to the 13 Best Reddit Money Hacks for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-enhance-your-images-with-dynamic-motion-in-adobe-ai/"><u>[New] Enhance Your Images with Dynamic Motion in Adobe AI</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-enhancing-yt-experience-handling-several-videos-at-a-time/"><u>[New] In 2024, Enhancing YT Experience Handling Several Videos at a Time</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-pushing-boundaries-with-photomosaic-artistry/"><u>[New] In 2024, Pushing Boundaries with PhotoMosaic Artistry</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-total-movement-insights-2023-for-2024/"><u>[New] Total Movement Insights 2023 for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-the-art-of-reel-production-embedding-soundtracks/"><u>[Updated] In 2024, The Art of Reel Production Embedding Soundtracks</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-interactive-lessons-expert-video-editing-for-classroom/"><u>[Updated] Interactive Lessons Expert Video Editing for Classroom</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-pro-tips-for-effortless-photos-and-videos-in-windows-11/"><u>[Updated] Pro Tips for Effortless Photos & Videos in Windows 11</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-cinematic-zoom-effect-focus-on-film-for-2024/"><u>[Updated] The Cinematic Zoom Effect Focus on Film for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/effortless-simpel-high-quality-video-editing-with-movavi-tool/"><u>Effortless Simpel: High-Quality Video Editing with Movavi Tool</u></a></li>
+<li><a href="https://change-location.techidaily.com/honor-play-8t-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Honor Play 8T Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-exceptional-book-trailer-selections/"><u>In 2024, Exceptional Book Trailer Selections</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-the-essential-guide-to-tapered-music-transitions-in-premiere-pro/"><u>In 2024, The Essential Guide to Tapered Music Transitions in Premiere Pro</u></a></li>
+<li><a href="https://win-great.techidaily.com/step-by-step-guide-setting-up-system-restore-points-with-yl-computings-tech-solutions/"><u>Step-by-Step Guide: Setting Up System Restore Points with YL Computing's Tech Solutions</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/taming-windows-10-display-fluctuations/"><u>Taming Windows 10 Display Fluctuations</u></a></li>
+</ul></div>
 

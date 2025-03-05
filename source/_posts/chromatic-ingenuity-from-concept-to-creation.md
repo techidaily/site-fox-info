@@ -1,7 +1,7 @@
 ---
 title: "\"Chromatic Ingenuity  From Concept to Creation\""
-date: 2024-07-29T07:15:47.656Z
-updated: 2024-07-30T07:15:47.656Z
+date: 2025-02-26T08:18:22.007Z
+updated: 2025-03-04T22:14:21.114Z
 tags: 
   - screen-recording
   - ai video
@@ -28,24 +28,14 @@ Color theory consists of many elements that could fill a library on its own but 
 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## The Color Wheel
 
 Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ## Color Harmony
 
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
@@ -64,25 +54,16 @@ The corners of the black rectangle land on what is known as tetradic complement 
 
 You may still be unsure as to how to implement color theory into your videos. Let's look at some scenarios that color theory may help your creations.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
 
 As you can see from this example the base color for the scene is a dark blue/purple and using the analogous color of pink they created a point of interest within the scene that doesn't look out of place. This is a very good way to pull the viewers eyes towards something you want them to take in above all else.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Conclusion
 
 By including this into your thought process when creating videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) you will achieve well balanced and harmonious content for your viewer to enjoy and create better engagement. It's not by chance these things happen though, it's through research and planning that the most iconic scenes and characters are created and this is just one small brick in the foundations of content creation. With practice this will become second nature to you and that is the main goal of this guide.
@@ -115,4 +96,20 @@ By including this into your thought process when creating videos with [Filmora](
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-enhancing-zoom-picture-resolution-simple-upgrades/"><u>[New] 2024 Approved Enhancing Zoom Picture Resolution Simple Upgrades</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-budget-conscious-filmmakers-essential-video-gear-list/"><u>[New] In 2024, Budget-Conscious Filmmaker's Essential Video Gear List</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-unfolding-the-future-drones-in-modern-and-next-era/"><u>[New] In 2024, Unfolding the Future Drones in Modern and Next Era</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-navigating-the-use-of-look-up-tables-in-photoshop-cc/"><u>[Updated] Navigating the Use of Look-Up Tables in Photoshop CC</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-boundless-gallery-of-forgotten-artists-for-2024/"><u>[Updated] The Boundless Gallery of Forgotten Artists for 2024</u></a></li>
+<li><a href="https://win-web.techidaily.com/1-tailoring-audio-preferences-on-your-pc-a-step-by-step-guide-with-windows-control-panel-explore-options-at-xyz-tech-solutions/"><u>1. Tailoring Audio Preferences on Your PC: A Step-by-Step Guide with Windows Control Panel - Explore Options at XYZ Tech Solutions</u></a></li>
+<li><a href="https://fox-info.techidaily.com/high-definition-showdown-ultimate-legendary-sj6-vs-yi-4k-innovation-for-2024/"><u>High Definition Showdown Ultimate Legendary SJ6 Vs. Yi 4K Innovation for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-6s-plus-to-other-iphone-13-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 6s Plus To Other iPhone 13 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-honor-magic-vs-2-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Honor Magic Vs 2 Screen | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/nubia-red-magic-8s-pro-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Nubia Red Magic 8S Pro Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/prevent-crt-screen-blinks-abruptly/"><u>Prevent CRT Screen Blinks Abruptly</u></a></li>
+<li><a href="https://fox-info.techidaily.com/virtual-assisted-therapy-innovations/"><u>Virtual Assisted Therapy Innovations</u></a></li>
+</ul></div>
 

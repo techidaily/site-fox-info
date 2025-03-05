@@ -1,7 +1,7 @@
 ---
 title: "Cross the Threshold to 100K+ Views with This Insightful Tutorial"
-date: 2024-07-29T07:16:55.585Z
-updated: 2024-07-30T07:16:55.585Z
+date: 2025-02-26T06:31:01.303Z
+updated: 2025-03-05T00:24:46.744Z
 tags: 
   - screen-recording
   - ai video
@@ -24,9 +24,6 @@ If you're looking to get more views on YouTube, it's important that your channel
 
 ## #1\. Pick a specific subject matter or topic
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![pick topic 100k views video](https://images.wondershare.com/filmora/article-images/2022/09/pick-topic-100k-views-video.jpg)
 
 You need to pick a specific subject matter or topic that you can talk about for a long time.
@@ -35,30 +32,12 @@ You need to pick a specific subject matter or topic that you can talk about for 
 * If you can talk about it in detail, people will be able to relate to the details and feel like they know what you're talking about (even if they don't).
 * If it's not too broad, but also not too narrow, then people won't be scratching their heads trying to figure out what you mean by "inbound marketing" or "email marketing." They won't have a clue as to what those terms mean unless there's some context around them—and if there is no context around them at all, then chances are these things aren't exactly interesting enough yet for anyone else either!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ## #2\. Don't worry about producing the highest quality video
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![shoot high quality video](https://images.wondershare.com/filmora/article-images/2022/09/shoot-high-quality-video.jpg)
 
 Don't worry about producing the highest quality video. As long as you have a relevant and interesting topic, you can always improve the quality of your videos over time with more resources and equipment. Focus on creating content that is highly valuable to your audience and provides them with something they haven't seen before—not how pretty it looks.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## #3\. Post in related video communities to find an audience
 
 ![post video to community](https://images.wondershare.com/filmora/article-images/2022/09/post-video-to-community.jpg)
@@ -69,18 +48,6 @@ Once you find a relevant community, make sure that you're posting in the right p
 
 ## #4\. Write keyword-rich titles and descriptions
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![use seo skill in youtube video](https://images.wondershare.com/filmora/article-images/2022/09/use-seo-skill-in-youtube-video.jpg)
 
 The first step to getting more views is writing keyword-rich titles and descriptions. Keywords are important for search engines, which means they're also important for your video's ranking on YouTube. You want your videos to appear in the "top" (highest-ranked) results when someone searches for a certain topic or phrase.
@@ -108,14 +75,8 @@ This might seem like an obvious way to get more views but I've seen many creator
 
 * It shows that there's a level of trust between creators working together within communities; this makes viewers feel like there's an opportunity for collaboration as well (and hopefully future collaborations!).
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## #7\. Upload at least one video per week and never skip a week
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![upload video to youtube regularly](https://images.wondershare.com/filmora/article-images/2022/09/upload-video-to-youtube-regularly.jpg)
 
 To keep your audience coming back for more, upload at least one video per week and never skip a week. If you have trouble uploading that often, try to upload a video every two weeks or so. If that's not feasible, at least make sure you have one ready to go before the end of the month so you can post it before the next month begins.
@@ -135,18 +96,12 @@ The best way to ensure regularity is by setting up an automated scheduler with a
 
 ## #9\. Fill your channel with useful information, not just marketing messages
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![fill youtube channel with useful info](https://images.wondershare.com/filmora/article-images/2022/09/fill-youtube-channel-with-useful-info.jpg)
 
 One of the most common mistakes that people make when creating YouTube videos is focusing too much on themselves, their business and the products or services they sell. While this may be important for those who are looking to sell a product or service—and these types of things should definitely be mentioned at some point in your video—the majority of your viewers are not going to want to hear about how great you are.
 
 If you want to grow an audience on YouTube and get more views, then one thing you need to do is provide value. This could mean sharing tips and tricks, answering questions from viewers or promoting other channels that produce great content related to your niche (which will encourage them share it with their friends).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ## #10\. Use playlists effectively to get more views
 
 ![create playlist for youtube videos](https://images.wondershare.com/filmora/article-images/2022/09/create-playlist-for-youtube-videos.jpg)
@@ -157,9 +112,6 @@ If you're looking to create a series of videos, playlists are an ideal way to do
 
 Playlists can also be used as a place where viewers can watch related content that isn't necessarily part of another video—for example if someone just really likes one thing from one video but would like other similar things too (like say music from several artists).
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ## The Bottom Line
 
 We hope this post has helped you get more views for your YouTube videos! If you follow these steps, we promise that your channel will be full of high-quality content in no time. Remember to take it slow and don't try to do everything at once. The most important thing is to stick with it - if you keep uploading videos every week and posting comments back on other people's channels (and interacting with commenters), then an audience will come along eventually.
@@ -192,4 +144,16 @@ We hope this post has helped you get more views for your YouTube videos! If you 
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-enhancing-vlogs-with-youtube-music-syncing-techniques/"><u>[New] In 2024, Enhancing Vlogs with YouTube Music Syncing Techniques</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-premium-free-pubg-thumbnail-collections/"><u>[New] Premium Free PUBG Thumbnail Collections</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-elevating-your-4k-entertainment-tvs-vs-projection-technology-for-2024/"><u>[Updated] Elevating Your 4K Entertainment TVs vs Projection Technology for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-expertly-chosen-top-5-premium-drones-for-professionals/"><u>[Updated] In 2024, Expertly Chosen Top 5 Premium Drones for Professionals</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-navigating-the-acquisition-of-stock-video-backgrounds/"><u>[Updated] Navigating the Acquisition of Stock Video Backgrounds</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-portraying-paradoxes-with-teleportation-cgi/"><u>In 2024, Portraying Paradoxes with Teleportation CGI</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-unveiling-profitable-practices-for-creating-youtube-trailers/"><u>In 2024, Unveiling Profitable Practices for Creating YouTube Trailers</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/learn-how-to-lock-stolen-your-apple-iphone-13-properly-by-drfone-ios/"><u>Learn How To Lock Stolen Your Apple iPhone 13 Properly</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/strategies-for-highlighting-your-custom-gpt-creations-within-chatgpt-dialogues/"><u>Strategies for Highlighting Your Custom GPT Creations Within ChatGPT Dialogues</u></a></li>
+</ul></div>
 

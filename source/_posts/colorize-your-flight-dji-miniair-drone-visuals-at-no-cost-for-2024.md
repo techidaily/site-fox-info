@@ -1,7 +1,7 @@
 ---
 title: "Colorize Your Flight – DJI Mini/Air Drone Visuals at No Cost for 2024"
-date: 2024-07-29T07:16:14.977Z
-updated: 2024-07-30T07:16:14.977Z
+date: 2025-03-04T01:55:49.646Z
+updated: 2025-03-04T21:39:52.947Z
 tags: 
   - screen-recording
   - ai video
@@ -36,23 +36,8 @@ Are you ready to discover the stunning free and paid LUTS for DJI drones?
 
 Surf the below discussed LUTS and select the filters that satisfy your needs precisely. You can go for the downloads without hesitation as the discussed content is reliable.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 10 free LUTs for DJI Drone
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. Aerial Sky
 
 This LUT focus on the original displays of the aerial space in the recordings. It applies the correct combination of colors, brightness, and saturation to convey the optimal visuals of the content.
@@ -69,52 +54,30 @@ The Vibrance Colors LUT impacts the recording in the DJI drone, and the captured
 
 Vibrance Colors
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 3\. Sun Set
 
 This LUT suits well for outdoor recordings during the dawn, and it is the time when the light shades are minimal. You can witness most content covers with shadows, and thus you can rectify such captures using the sunset LUT as it plays a vital role in those scenarios.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Free DJI LUTs - Sun Set](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-4.jpg)
 
 Sun Set
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ### 4\. Blue Space
 
 When the drones zoom through the sky, the blue shade gives out reflective recordings. This blue space LUT fixes the errors in the captures and helps to assign the perfect color gradings as per the requirements. The clarity of the sky and other blue elements like water are well-edited using this LUT. The respective attributes related to the blue shades are available with these blue space effects.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Free DJI LUTs - Blue Space](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-5.jpg)
 
 Blue Space
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ### 5\. Matte
 
 If you want your captures to take up the matte texture, then apply this effect without hesitation. It gives you quality outcomes and you will witness the matte finish on the media files. The color gradients are adjusted to reach the matte looks of the content.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Free DJI LUTs - Matte](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-6.jpg)
 
 Matte
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 6\. Wheat Color
 
 The Wheat Color LUT focus on the brown shades. When you capture the landscapes and mountains, apply this effect to turn them into reality. It gives a natural outlook and brings you stunning results in no time.
@@ -127,9 +90,6 @@ Wheat Color
 
 If you are interested in the old and vintage looks, then go for this LUT. When you apply this effect the entire timeline changes to its traditional appearance. It is something different from other LUTs in the collections. Many experienced photographers opt for this LUT to make the best of the captures.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ![Free DJI LUTs - Vintage](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-8.jpg)
 
 Vintage
@@ -142,9 +102,6 @@ It is an incredible LUT that adjusts the color gradients to the greenish pattern
 
 Green Harmony
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 9\. B&W
 
 It is one of the common LUTs to convert the videos or photos into the black and white format. Many editors and photographers use this black and white format to stay unique. The color gradients were assigned to display only the black and white shades on the content.
@@ -171,32 +128,20 @@ Price: $37
 
 This LUT focus on the moods like weather, landscapes, happy moments, and surprise clicks. All these footage can use these moody LUTs to add flavors to the content. This LUT helps to express the emotions a little more precise.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Paid DJI LUTs - Moody Drone LUTs](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-12.jpg)
 
 Moody Drone LUTs
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 2\. [Drone LUTS collections](https://www.chrisfilmpresents.com/shop/cfp-drone-lut-collection)
 
 Price: $19
 
 There are nearly 50 different types of drone LUTS available in this collection. You can choose the relevant ones according to the content.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Paid DJI LUTs - Drone LUTS collections](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-13.jpg)
 
 Drone LUTS collections
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ### 3\. [Cinematic Drone LUT](https://vamify.com/products/drone-luts)
 
 Price: $29.9
@@ -213,9 +158,6 @@ Price: $47.95
 
 This Cine collection LUTs is like the cinematic drone LUT with few changes in the setting related to the color gradients and brightness levels. This LUT optimizes the existing footage with its in-built effects to bring out the best in the recordings.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ![Paid DJI LUTs - Cine Collections](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-15.jpg)
 
 Cine Collections
@@ -236,9 +178,6 @@ Price: $39
 
 Excellent LUTs to edit the landscape shots, and you can edit small detail on the footage effortlessly. These LUTs take care of the clarity of the captures and ensure clear photos or videos.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![Paid DJI LUTs - Buttery LUTS](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-17.jpg)
 
 Buttery LUTS
@@ -249,9 +188,6 @@ Price: $89.84
 
 It is also a film-like LUTs, and it impacts the overall tracks in the videos with stunning clarity. This LUT brings unique changes to the footage. You can add extra detail to the recordings by working with the color gradients, brightness, and saturation controls.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Paid DJI LUTs - Cine Vision LUTs](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-18.jpg)
 
 Cine Vision LUTs
@@ -262,9 +198,6 @@ Price: $29
 
 There are nearly 40 different presets available in this pack, and each one is unique with cost-effective attributes. You can apply these LUTs and increase the media file clarity. It is simple to use and compatible with many editing platforms.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ![Paid DJI LUTs - DJI Drone LUTs](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-19.jpg)
 
 DJI Drone LUTs
@@ -285,9 +218,6 @@ Price: $10
 
 It is an exclusive drone LUT that works with the footage like a Pro, and the professional and newbie editors feel comfortable applying this effect to any footage. No more extra edits with the LUTs settings, but enable them directly to the footage to witness the changes in depth.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Paid DJI LUTs - FPV Drone LUT](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-21.jpg)
 
 FPV Drone LUT
@@ -306,9 +236,6 @@ Thus, you had an elaborate discussion on the DJI LUTS in detail, and you can use
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](#)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 Summarize:
@@ -337,4 +264,24 @@ Thus, you had an elaborate discussion on the DJI LUTS in detail, and you can use
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-effortless-win-11-screen-captures-here/"><u>[New] In 2024, Effortless Win 11 Screen Captures Here</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-retro-social-media-revelations-mastering-outdated-fb-functionality/"><u>[Updated] 2024 Approved Retro Social Media Revelations Mastering Outdated FB Functionality</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-the-essentials-for-a-powerful-metaverse-experience-top-7/"><u>[Updated] 2024 Approved The Essentials for a Powerful Metaverse Experience (Top 7)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-mastering-sound-capture-in-windows-11/"><u>[Updated] In 2024, Mastering Sound Capture in Windows 11</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-unleash-creativity-customizing-call-alert-sounds-on-iphone/"><u>[Updated] In 2024, Unleash Creativity Customizing Call Alert Sounds on iPhone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-syncing-images-and-footage-on-iphone-for-2024/"><u>[Updated] Syncing Images and Footage on iPhone for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-transforming-scripted-words-into-powerful-video-soundtracks/"><u>[Updated] Transforming Scripted Words Into Powerful Video Soundtracks</u></a></li>
+<li><a href="https://discover-data.techidaily.com/advanced-material-ui-dashboard-pro-v2-with-laravel-livewire-integration-created-by-creative-tim-and-updivision/"><u>Advanced Material UI Dashboard Pro v2 with Laravel Livewire Integration | Created by Creative Tim and Updivision</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/expert-opinions-on-the-ultimate-ipads-of-2024-in-depth-analysis-and-ratings/"><u>Expert Opinions on the Ultimate iPads of 2024: In-Depth Analysis & Ratings</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-guide-to-finding-clean-high-quality-images/"><u>In 2024, Guide to Finding Clean, High-Quality Images</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-can-we-bypass-realme-gt-neo-5-se-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Realme GT Neo 5 SE FRP?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-navigating-metaverse-self-representation-a-step-by-step-manual/"><u>In 2024, Navigating Metaverse Self-Representation A Step-by-Step Manual</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-quick-tips-streamlined-processes-for-iphones-screening/"><u>In 2024, Quick Tips Streamlined Processes for Iphone's Screening</u></a></li>
+<li><a href="https://windows11.techidaily.com/step-by-step-to-unlocking-windows-11-desktop-toolbar/"><u>Step-by-Step to Unlocking Windows 11 Desktop Toolbar</u></a></li>
+<li><a href="https://fox-info.techidaily.com/understanding-cultural-influences-on-consumer-behavior-in-global-markets-for-2024/"><u>Understanding Cultural Influences on Consumer Behavior in Global Markets for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/visionary-creations-the-ultimate-list-of-30-video-plans/"><u>Visionary Creations The Ultimate List of 30 Video Plans</u></a></li>
+<li><a href="https://win11.techidaily.com/what-no-longer-happens-in-windows-layouts/"><u>What No Longer Happens in Windows Layouts</u></a></li>
+</ul></div>
 

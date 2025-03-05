@@ -1,7 +1,7 @@
 ---
 title: "DJI Mini & Air 2 Mixing Made Easy with 20 Free LUTS"
-date: 2024-07-29T07:18:33.893Z
-updated: 2024-07-30T07:18:33.893Z
+date: 2025-02-27T22:02:38.885Z
+updated: 2025-03-04T22:38:27.374Z
 tags: 
   - screen-recording
   - ai video
@@ -36,21 +36,12 @@ Are you ready to discover the stunning free and paid LUTS for DJI drones?
 
 Surf the below discussed LUTS and select the filters that satisfy your needs precisely. You can go for the downloads without hesitation as the discussed content is reliable.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 10 free LUTs for DJI Drone
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 1\. Aerial Sky
 
 This LUT focus on the original displays of the aerial space in the recordings. It applies the correct combination of colors, brightness, and saturation to convey the optimal visuals of the content.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![Free DJI LUTs - Aerial Sky](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-2.jpg)
 
 Aerial Sky
@@ -59,9 +50,6 @@ Aerial Sky
 
 The Vibrance Colors LUT impacts the recording in the DJI drone, and the captured content takes a new look using this LUT effect. The Vibrance LUT increases the intensity of the dark colors using color grading techniques, and the brightness level is optimized to reveal the exact color of the recorded content.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Free DJI LUTs - Vibrance Colors](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-3.jpg)
 
 Vibrance Colors
@@ -74,9 +62,6 @@ This LUT suits well for outdoor recordings during the dawn, and it is the time w
 
 Sun Set
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 4\. Blue Space
 
 When the drones zoom through the sky, the blue shade gives out reflective recordings. This blue space LUT fixes the errors in the captures and helps to assign the perfect color gradings as per the requirements. The clarity of the sky and other blue elements like water are well-edited using this LUT. The respective attributes related to the blue shades are available with these blue space effects.
@@ -93,13 +78,6 @@ If you want your captures to take up the matte texture, then apply this effect w
 
 Matte
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ### 6\. Wheat Color
 
 The Wheat Color LUT focus on the brown shades. When you capture the landscapes and mountains, apply this effect to turn them into reality. It gives a natural outlook and brings you stunning results in no time.
@@ -112,9 +90,6 @@ Wheat Color
 
 If you are interested in the old and vintage looks, then go for this LUT. When you apply this effect the entire timeline changes to its traditional appearance. It is something different from other LUTs in the collections. Many experienced photographers opt for this LUT to make the best of the captures.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Free DJI LUTs - Vintage](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-8.jpg)
 
 Vintage
@@ -131,10 +106,6 @@ Green Harmony
 
 It is one of the common LUTs to convert the videos or photos into the black and white format. Many editors and photographers use this black and white format to stay unique. The color gradients were assigned to display only the black and white shades on the content.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ![Free DJI LUTs - Black & White](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-10.jpg)
 
 Black & White
@@ -143,23 +114,14 @@ Black & White
 
 When you record or capture the landscapes like plains, mountains, and valleys, this LUT effect portrays realistic images and videos. According to the landscape types, modify the settings in this LUT accordingly to enhance the overall appearance.
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Free DJI LUTs - Landscape](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-11.jpg)
 
 Landscape
 
 All the above LUTS are available for free of cost and you can download them at <https://fixthephoto.com/dji-luts>
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## 10 Paid LUTs for DJI Drone
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 1\. [Moody Drone LUTs](https://www.bouncecolor.com/products/drone-luts)
 
 Price: $37
@@ -176,9 +138,6 @@ Price: $19
 
 There are nearly 50 different types of drone LUTS available in this collection. You can choose the relevant ones according to the content.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Paid DJI LUTs - Drone LUTS collections](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-13.jpg)
 
 Drone LUTS collections
@@ -189,21 +148,10 @@ Price: $29.9
 
 Here comes another film like LUTs that adds extra color gradients to the footage. It refines the settings like brightness and saturation levels to meet the picture quality. Many film lovers use this cinematic drone LUT to create the best content from the recordings. This LUT is compatible with all video editor platforms and gives you a hassle-free experience.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ![Paid DJI LUTs - Cinematic Drone LUT](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-14.jpg)
 
 Cinematic Drone LUT
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 4\. [Cine Collections](https://spectrumgrades.com/products/cine-collection-dji-mavic-mini-luts-pack)
 
 Price: $47.95
@@ -214,9 +162,6 @@ This Cine collection LUTs is like the cinematic drone LUT with few changes in th
 
 Cine Collections
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\. [Chromatica LUTS](https://spectrumgrades.com/products/new-matching-camera-and-drone-set-chromatica-specialized-matching-film-look-lut-set-for-matching-drone-and-camera-shots?%5Fpos=1&%5Fsid=fb4444dce&%5Fss=r)
 
 Price: $24.99
@@ -227,10 +172,6 @@ It is a unique LUTs effect that works on every detail of the footage. The hue an
 
 Chromatica LUTS
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### 6\. [Buttery LUTS](https://www.shopmoment.com/digital-products/buttery-luts-dji-rec709)
 
 Price: $39
@@ -241,19 +182,12 @@ Excellent LUTs to edit the landscape shots, and you can edit small detail on the
 
 Buttery LUTS
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ### 7\. [Cine Vision LUTs](https://spectrumgrades.com/products/cinevision?%5Fpos=2&%5Fsid=f43190e97&%5Fss=r)
 
 Price: $89.84
 
 It is also a film-like LUTs, and it impacts the overall tracks in the videos with stunning clarity. This LUT brings unique changes to the footage. You can add extra detail to the recordings by working with the color gradients, brightness, and saturation controls.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Paid DJI LUTs - Cine Vision LUTs](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-18.jpg)
 
 Cine Vision LUTs
@@ -274,10 +208,6 @@ Price: $10.05
 
 Another pro pack adds extra effects to the footage, and you can use this LUT on any footage hassle-free. It exclusively works on the content by increasing the media file quality.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ![Paid DJI LUTs - LUTS pro pack](https://images.wondershare.com/filmora/article-images/2022/05/dji-luts-20.jpg)
 
 LUTS pro pack
@@ -298,9 +228,6 @@ Grow Together
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](#)
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 Summarize:
@@ -309,9 +236,6 @@ Thus, you had an elaborate discussion on the DJI LUTS in detail, and you can use
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](#)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 Summarize:
@@ -340,4 +264,24 @@ Thus, you had an elaborate discussion on the DJI LUTS in detail, and you can use
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-comprehensive-guide-to-vsco-camera-app/"><u>[New] Comprehensive Guide to VSCO Camera App</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-graphic-design-journeys-from-passion-to-profession-for-2024/"><u>[New] Graphic Design Journeys From Passion to Profession for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-a-decades-best-writes-across-film-classifications/"><u>[New] In 2024, A Decade's Best Writes Across Film Classifications</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-how-to-manage-and-disable-recommended-podcast-episodes-in-spotify/"><u>[New] In 2024, How to Manage and Disable Recommended Podcast Episodes in Spotify</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-pioneering-filmmakers-unite-leveraging-screen-and-webcam-capture-with-vimeo/"><u>[New] In 2024, Pioneering Filmmakers Unite Leveraging Screen & Webcam Capture with Vimeo</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-unlocking-visual-magic-diy-animation-and-fx-crafts/"><u>[New] In 2024, Unlocking Visual Magic DIY Animation and FX Crafts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-navigating-fb-timing-and-tools-without-a-price-tag/"><u>[Updated] Navigating Fb Timing and Tools Without a Price Tag</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-tapping-into-the-telegraphic-trend-maximizing-your-telegram-presence-for-2024/"><u>[Updated] Tapping Into the Telegraphic Trend Maximizing Your Telegram Presence for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-zip-archive-handling-for-srt-output-generation-for-2024/"><u>[Updated] Zip Archive Handling for SRT Output Generation for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/5-most-effective-methods-to-unlock-apple-iphone-xs-max-in-lost-mode-drfone-by-drfone-ios/"><u>5 Most Effective Methods to Unlock Apple iPhone XS Max in Lost Mode | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/from-script-to-screen-magix-video-pro-xs-production-journey-for-2024/"><u>From Script to Screen Magix Video Pro X's Production Journey for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-updated-software-finding-the-right-hp-deskjet-2540-driver-version/"><u>Get Updated Software: Finding the Right HP Deskjet 2540 Driver Version</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-inter-device-image-sharing-expertise/"><u>In 2024, Inter-Device Image Sharing Expertise</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-the-science-behind-auto-hdr-and-cameras-ai-powered-shooting-modes/"><u>In 2024, The Science Behind Auto HDR and Camera's AI-Powered Shooting Modes</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/photography-rescued-stellars-first-recovery-tool/"><u>Photography Rescued: Stellar's First Recovery Tool</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2092674-9781623170172-the-inner-reality/"><u>The Inner Reality | Free Book</u></a></li>
+<li><a href="https://win-lab.techidaily.com/yl-softwares-premium-rv-themes-ultimate-background-graphics-for-affluent-travelers/"><u>YL Software's Premium RV Themes: Ultimate Background Graphics for Affluent Travelers</u></a></li>
+</ul></div>
 

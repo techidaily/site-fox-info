@@ -1,7 +1,7 @@
 ---
 title: "\"Cutting-Edge Editing Strategies  Story Remix Meets Windows Photos for 2024\""
-date: 2024-07-29T07:16:49.673Z
-updated: 2024-07-30T07:16:49.673Z
+date: 2025-03-03T11:01:06.610Z
+updated: 2025-03-04T20:52:18.278Z
 tags: 
   - screen-recording
   - ai video
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/ed5ee8baad91072b118b2d67f1083103fa2283373
 
 # How to Use Story Remix to Edit a Video in Windows 10 Photos
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -45,14 +41,6 @@ Moreover, creating own videos is also possible with this tool.
 * [**Part5: How to add 3D effects to a Story Remix project**](#part5)
 * [**Part6: How to export a Story Remix video**](#part6)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ## Part 1: How to download Story Remix in Windows
 
 In case you want to download Story Remix, we must tell you it is not a standalone product. It is bundled within the Windows Photos App.
@@ -80,9 +68,6 @@ How to create a Story Remix project automatically –
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-name-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: How to create a Story Remix project from scratch
 
 Here is the guide –
@@ -117,14 +102,8 @@ While adding media to the timeline in Story Mix, you will see that there is a de
 
 Tap the ‘Duration’ button > pick another value or manually set the seconds.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-duration-min.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Adding custom text
 
 1. Choose card from timeline, click ‘Text’ and feed the custom text in the box located at right side. You can simply use animated text styles too.
@@ -133,30 +112,18 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-text-min.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ### Adding motion
 
 1. Firstly, choose the content from the timeline and hit on ‘Motion’. Now, select camera motion style from ‘Zoom in center’/’Zoom in right’/’Pan left’/’Tilt up’ etc.
 2. Preview the changes and click ‘Done’.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-motion-min.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ### Trimming video clips
 
 1. Pick the video from timeline and choose ‘Trim’ button. Mark the trim area and click ‘Play’ to preview.
 2. Hit ‘Done’ in the end.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ## Part 5: How to add 3D effects to a Story Remix project
 
 Adding 3D special effects to video clips is one of the lucrative features of Photos app.
@@ -190,15 +157,8 @@ Why bother for messy and complex video editing tools, when you can get everythin
 
 If you want to edit video, we recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) .
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -224,4 +184,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-chucklechrome-memomasters/"><u>[New] 2024 Approved ChuckleChrome MemoMasters</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-become-a-video-quality-guru-with-vce-22-knowledge-for-2024/"><u>[New] Become a Video Quality Guru with VCE 2.2 Knowledge for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ifas-best-players-trendy-videos-on-youtube/"><u>[New] FIFA's Best Players Trendy Videos on YouTube</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-virtual-frontier-flicks-the-most-inspiring-sci-fi-metaverse-movies/"><u>[New] In 2024, Virtual Frontier Flicks The Most Inspiring Sci-Fi Metaverse Movies</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/s-youtubes-monetization-payment-frequent-in-2024/"><u>[New] Is YouTube's Monetization Payment Frequent, In 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-mastering-soundscapes-expert-insights-on-audio-post-production-in-garageband/"><u>[Updated] 2024 Approved Mastering Soundscapes Expert Insights on Audio Post-Production in GarageBand</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-stepwise-guide-to-windows-11-sound-capture-setup/"><u>[Updated] 2024 Approved Stepwise Guide to Windows 11 Sound Capture Setup</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-anime-aesthetics-made-simple-using-snapchats-cartoon-style-for-2024/"><u>[Updated] Anime Aesthetics, Made Simple Using Snapchat's Cartoon Style for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-hidden-world-exploring-vlc-player-extras/"><u>[Updated] In 2024, The Hidden World Exploring VLC Player Extras</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-shutter-wisdom-tips-for-astounding-image-finishes/"><u>[Updated] Shutter Wisdom Tips for Astounding Image Finishes</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-techniques-for-maximizing-gopro-battery-life/"><u>[Updated] Techniques for Maximizing GoPro Battery Life</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-ultimate-guide-to-action-hunting-gear-for-2024/"><u>[Updated] The Ultimate Guide to Action Hunting Gear for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-unlocking-whatsapps-full-arsenal-for-efficient-communication/"><u>[Updated] Unlocking WhatsApp's Full Arsenal for Efficient Communication</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/best-ways-to-bypass-icloud-activation-lock-on-apple-iphone-xs-maxipadipod-by-drfone-ios/"><u>Best Ways to Bypass iCloud Activation Lock on Apple iPhone XS Max/iPad/iPod</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-streamlines-your-conversations-upgraded-messaging-on-instagram-and-messenger-awaits/"><u>FB Streamlines Your Conversations: Upgraded Messaging on Instagram & Messenger Awaits</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-mastery-of-spotify-ad-formats-and-best-practices/"><u>In 2024, Mastery of Spotify Ad Formats and Best Practices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/masterclass-review-of-the-best-contender-in-large-display-smartphones-samsung-galaxy-note-9/"><u>Masterclass Review of the Best Contender in Large Display Smartphones - Samsung Galaxy Note 9</u></a></li>
+<li><a href="https://extra-support.techidaily.com/optimizing-your-netflix-stream-with-fasterslower-pace-for-2024/"><u>Optimizing Your Netflix Stream with Faster/Slower Pace for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/protect-online-assets-reject-openai-bots/"><u>Protect Online Assets: Reject OpenAI Bots</u></a></li>
+</ul></div>
 

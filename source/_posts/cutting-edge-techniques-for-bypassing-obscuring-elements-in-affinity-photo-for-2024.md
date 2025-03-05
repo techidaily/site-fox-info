@@ -1,7 +1,7 @@
 ---
 title: "\"Cutting-Edge Techniques for Bypassing Obscuring Elements in Affinity Photo for 2024\""
-date: 2024-07-29T07:15:34.576Z
-updated: 2024-07-30T07:15:34.576Z
+date: 2025-02-25T18:48:20.554Z
+updated: 2025-03-05T07:30:56.567Z
 tags: 
   - screen-recording
   - ai video
@@ -26,9 +26,6 @@ No matter you are a professional content creator or a newbie, we'll be discussin
 
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ### How to Erase a White Background in Affinity Designer
 
 To erase a white background in Affinity Designer, do these steps:
@@ -37,16 +34,10 @@ Step1 In the first step, install the [Affinity Designer](https://affinity.serif.
 
 Now access the **Pixel Persona** section in the left corner of the software screen by clicking the **colored boxes** icon.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![accessing the pixel persona in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-pixel-persona-in-affinity-designer.png)
 
 Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and disable **"Lock."** Now right-click on your layer again, and select **"Rasterize"** to enable editing of specific parts of the image.
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
 
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
@@ -65,9 +56,6 @@ Step5 In the last step, press the **"Delete"** key on your keyboard to remove th
 
 Now, hit **"Control+D"** to deselect the selection. Alternatively, you can click **"Select"** in the top toolbar and choose the **"Deselect"** option. Finally, you can export your file using the **"File" > "Export"** option.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### How to Remove a Busy Background in Affinity Designer
 
 If you want to remove a busy background of an image in the Affinity Designer software, follow these steps carefully:
@@ -97,18 +85,12 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ## The Best Alternative of Affinity Photo
 
 Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
 
 Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
@@ -161,9 +143,6 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 This article discusses **removing a background in Affinity Photo**, whether the image has a white or a busy BG.
@@ -196,4 +175,20 @@ Hopefully, this article and video can help you create ideal images!
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-lock-and-load-effortless-profile-url-addition-on-tiktok-for-2024/"><u>[New] Lock-and-Load Effortless Profile URL Addition on TikTok for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-maximizing-impact-with-instagrams-top-marketing-tactics/"><u>[New] Maximizing Impact with Instagram's Top Marketing Tactics</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-perfectly-funny-meme-creator-app/"><u>[New] Perfectly Funny Meme Creator App</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nleash-your-brands-potential-with-expert-naming-guide/"><u>[New] Unleash Your Brand's Potential with Expert Naming Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-adjust-your-video-feedback-control-in-youtube/"><u>[Updated] In 2024, Adjust Your Video Feedback Control in YouTube</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-innovative-5-slow-mo-video-recording-for-2024/"><u>[Updated] Innovative 5 Slow Mo Video Recording for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-voice-capture-made-easy-the-ultimate-ipad-guide/"><u>[Updated] Voice Capture Made Easy The Ultimate iPad Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-mastering-instagram-videos-direct-and-alternative-saves/"><u>2024 Approved Mastering Instagram Videos Direct & Alternative Saves</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-football-film-study-premier-insights-infographic/"><u>In 2024, Football Film Study Premier Insights Infographic</u></a></li>
+<li><a href="https://fox-info.techidaily.com/is-revenue-derived-from-evaluating-products/"><u>Is Revenue Derived From Evaluating Products?</u></a></li>
+<li><a href="https://program-issues.techidaily.com/stop-doom-eternal-from-crashing-step-by-step-guide/"><u>Stop DOOM Eternal From Crashing: Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-art-of-ad-driven-earnings-ajays-youtube-strategy/"><u>The Art of Ad-Driven Earnings Ajay's YouTube Strategy</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-the-freebie-frenzy-top-online-video-editors-reviewed-for-2024/"><u>Updated The Freebie Frenzy Top Online Video Editors Reviewed for 2024</u></a></li>
+</ul></div>
 

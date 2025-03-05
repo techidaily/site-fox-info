@@ -1,7 +1,7 @@
 ---
 title: "Brisk Windows Content Reconnaissance for 2024"
-date: 2024-07-29T07:17:54.953Z
-updated: 2024-07-30T07:17:54.953Z
+date: 2025-02-25T22:42:10.280Z
+updated: 2025-03-04T22:53:11.117Z
 tags: 
   - screen-recording
   - ai video
@@ -30,18 +30,12 @@ Below is how to install and use QuickLook by Paddy Xu:
 
 Step1 Open Microsoft Store and search for QuickLook. Make sure you select the option published by Paddy Xu.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![search for quicklook for windows on Microsoft store](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-1.jpg)
 
 Step2 Once you find QuickLook, click “Get it” to download and install the app in your Windows operating system. At around 60MB, installing this preview app should be quick and easy.
 
 Step3 After successfully installing QuickLook, head to File Explorer and select any file you want to preview. Press the “Space” bar on your keyboard to view the file.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ![preview video on quicklook for windows](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-2.jpg)
 
 Unfortunately, you won’t preview the content inside the document file. Instead, you’ll only see details like the file type/format, size, image name, and more. You can also directly choose the opening app. As for videos and audio, the media file will automatically play on the QuickLook media player. But don’t fret because the following section will teach you to read your documents, presentations, PDFs, and other files on QuickLook without opening the file.
@@ -58,25 +52,16 @@ Step1 Visit the [QuickLook GitHub](https://github.com/QL-Win/QuickLook) page and
 
 Step2 Scroll down and download the .msi file. After downloading the installation file successfully, install it on your computer.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ![install the quicklook for windows msi](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-4.jpg)
 
 Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://github.com/QL-Win/QuickLook/wiki/Available-Plugins). Then, download the plugins to add additional preview capabilities to Microsoft QuickLook. For example, install the FontViewer, FFmpeg, and OfficeViewer plugins by clicking the respective “Link” buttons.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![install quicklook for windows plugins](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-5.jpg)
 
 Step4 After a successful installation, find the file you want to preview and select it. Then, tap the space bar to preview the files. And remember, browse ZIP files to view all content.
 
 **Pro tip**: We recommend installing the QuickLook OfficeViewer plugin to rip open your Office files and view the content inside. This method is recommended if you haven’t installed Microsoft Office on your PC. However, you might notice that the OfficeViewer plugin isn’t supported on your Windows PC. So to install OfficeViewer, select the file and click the space bar to preview it on QuickLook. Then, tap the “Click here to install this plugin” button. Now restart QuickLook and view all your office documents without opening them on their respective programs.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Should We Expect Built-in Quick Look on Windows in the Future?
 
 Mac users have enjoyed the powerful QuickLook capabilities for at least 15 years. But are we going to see QuickLook coming to Windows 10/11 anytime soon? According to sources, plans are already underway to add this feature to Microsoft Windows and rename it Peek. After selecting a file on Explorer, simply tap the Shift + Space bar to preview the content. Like the macOS version, you can preview PDFs, Excels, Words, images, videos, audio, and pretty much anything.
@@ -85,9 +70,6 @@ Meanwhile, it’s expected that QuickLook will come with a small preview screen.
 
 In other related news, Microsoft will be answering the prayers of their loyal patrons to get tabbed browsing. This is another feature similar to what you currently have on macOS, where you can open new tabs for numerous file locations. In return, this makes moving and copying files more straightforward. This easy-to-navigate addition will definitely make Microsoft Windows users more productive than before.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## Part 4: Frequently Asked Questions
 
 #### 1\. Which digital file formats are compatible with QuickLook?
@@ -134,4 +116,18 @@ This guidepost is another testament that your PC has massive hidden abilities. W
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-how-luts-revolutionize-your-photo-editing-experience/"><u>[New] In 2024, How LUTs Revolutionize Your Photo Editing Experience</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-lg-360-vr-headset-review/"><u>[New] In 2024, LG 360 VR Headset Review</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-sculpting-light-an-in-depth-look-at-lightroom-hdr-photos/"><u>[New] Sculpting Light An In-Depth Look at Lightroom HDR Photos</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-asus-proart-pa32u-4k-hdr-professional-monitor-review/"><u>[Updated] 2024 Approved ASUS ProArt PA32U 4K HDR Professional Monitor Review</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-sony-snapshot-standstill-no-video-viewing/"><u>[Updated] 2024 Approved Sony Snapshot Standstill No Video Viewing</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-in-depth-guide-to-installation-of-wm6/"><u>[Updated] In 2024, In-Depth Guide to Installation of WM6</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/cutting-edge-revelation-openais-gpt-4-unveiling/"><u>Cutting Edge Revelation: OpenAI's GPT-4 Unveiling</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/dial-up-your-visual-storytelling-with-animated-texts-no-cost/"><u>Dial up Your Visual Storytelling with Animated Texts, No Cost</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-vivo-y27s-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Vivo Y27s</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/optimizing-mouse-response-time-on-windows-devices/"><u>Optimizing Mouse Response Time on Windows Devices</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-crop-like-a-pro-mastering-video-editing-with-avidemux/"><u>Updated 2024 Approved Crop Like a Pro Mastering Video Editing with Avidemux</u></a></li>
+</ul></div>
 

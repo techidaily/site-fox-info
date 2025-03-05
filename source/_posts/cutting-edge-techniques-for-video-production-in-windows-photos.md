@@ -1,7 +1,7 @@
 ---
 title: "\"Cutting-Edge Techniques for Video Production in Windows Photos\""
-date: 2024-07-29T07:16:22.653Z
-updated: 2024-07-30T07:16:22.653Z
+date: 2025-02-25T23:23:04.997Z
+updated: 2025-03-04T20:40:18.056Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/3c65f68799b4050edde66f042974df77982abdb35
 
 # How to Use Story Remix to Edit a Video in Windows 10 Photos
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -52,14 +49,8 @@ Downloading Photos App will add Story Remix to your system for brilliant video e
 
 Go to **Start** menu and open **Windows Photos**. you can see videos and photos saved under the default **Pictures** folder organized by the Photos App. Tap on the ‘Create’ button on the top menu to discover **Story Remix**.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How to create Story Remix automatically and randomly
 
 In this part of the article, we would elaborate creation of Story Remix in different ways. The content is auto-generated or you can manually create it from scratch. The automatic method has themes, transitions, and soundtracks within.
@@ -75,14 +66,8 @@ How to create a Story Remix project automatically –
    1. After the above process gets over, the content gets scanned to automatically create a video adding styles, transitions, and music. The final preview of the project is displayed thereafter.
    2. You can rearrange the content by tapping **Remix it for me** button.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-name-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## Part 3: How to create a Story Remix project from scratch
 
 Here is the guide –
@@ -91,9 +76,6 @@ Here is the guide –
    2. Hit **Video project** and pick out the images/videos you wish.
    3. Tap on the **Add** button and give a name.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-random-min.jpg)
 
 1. Hit on **Create video** afterwards.
@@ -112,9 +94,6 @@ A theme is a built-in feature in Photos, just like music, filters, and text styl
 1. First all the things are added to your timeline followed by adding to the toolbar. Hit on **Themes** subsequently.
 2. You can select one theme from the listed options namely, "No theme", "Adventure", "Chilled", "Classic", "Electric", "Joy" and "Loved". Preview the selected theme and if satisfied, click on "Done".
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-theme-min.jpg)
 
 ### Adding image duration
@@ -133,9 +112,6 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-text-min.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Adding motion
 
 1. Firstly, choose the content from the timeline and hit on ‘Motion’. Now, select camera motion style from ‘Zoom in center’/’Zoom in right’/’Pan left’/’Tilt up’ etc.
@@ -158,9 +134,6 @@ Adding 3D special effects to video clips is one of the lucrative features of Pho
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-effects-min.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 6: How to export a Story Remix video
 
 Now that you have learnt how to edit videos in Story Remix, let’s see how can you export or share them with the world. You can directly share from Photos or use a USB drive to do the needful.
@@ -176,9 +149,6 @@ Now, pick the app or contact and send the video.
 
 Recent videos are found on ‘Collections’ section if they are auto created. Otherwise, all the Story Remix files are located permanently on ‘Creations’ section.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 From this article, we are sure that you have got plenty to learn about Story Remix. This wonderful feature from Windows 10 Photos is going to win hearts.
@@ -189,9 +159,6 @@ If you want to edit video, we recommend [Wondershare Filmora](https://tools.tech
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -217,4 +184,20 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-expert-strategies-in-photo-editing-for-profound-impact/"><u>[New] 2024 Approved Expert Strategies in Photo Editing for Profound Impact</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-harnessing-ai-an-innovators-toolkit-for-youtube-titles/"><u>[New] 2024 Approved Harnessing AI An Innovator's Toolkit for YouTube Titles</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-spiritual-soundtracks-finding-and-tuning-for-ringtones/"><u>[New] 2024 Approved Spiritual Soundtracks Finding & Tuning for Ringtones</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-iconic-imagery-stories-a-deep-dive/"><u>[New] Iconic Imagery Stories A Deep Dive</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-visualize-vitality-vent-laughter-kapwings-design-suite/"><u>[Updated] 2024 Approved Visualize Vitality, Vent Laughter - Kapwing’s Design Suite</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-top-15-science-youtube-channels-to-expand-knowledge/"><u>[Updated] In 2024, Top 15 Science YouTube Channels to Expand Knowledge</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-editing-game-changer-fcps-best-10-plugins-for-2024/"><u>[Updated] The Editing Game Changer FCP's Best 10 Plugins for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/fleetwood-mac-known-for-their-timeless-hits-that-blend-rock-with-an-infectious-funkiness-try-listening-to-tracks-like-go-your-own-way-or-dreams/"><u>Fleetwood Mac – Known for Their Timeless Hits that Blend Rock with an Infectious Funkiness. Try Listening to Tracks Like Go Your Own Way or Dreams.</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Vivo X Flip | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/reducing-the-risk-of-artifice-intelligence-misconceptions-through-6-key-strategies/"><u>Reducing the Risk of Artifice Intelligence Misconceptions Through 6 Key Strategies</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/simple-ethical-hacking-technique-exposes-flaw-in-microsofts-ai-recall-system-insights-from-a-dedicated-cybersecurity-professional/"><u>Simple Ethical Hacking Technique Exposes Flaw in Microsoft's AI Recall System: Insights From a Dedicated Cybersecurity Professional</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-complete-drone-equipment-collection-guide-for-2024/"><u>The Complete Drone Equipment Collection Guide for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unrivaled-gadget-selections-for-the-seasoned-geeks-christmas-wishlist-2021-edition/"><u>Unrivaled Gadget Selections for the Seasoned Geek's Christmas Wishlist, 2021 Edition</u></a></li>
+</ul></div>
 

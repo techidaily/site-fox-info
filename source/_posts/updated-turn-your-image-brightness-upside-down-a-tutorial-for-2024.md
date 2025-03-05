@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Turn Your Image Brightness Upside Down  A Tutorial for 2024\""
-date: 2025-02-11T19:45:51.563Z
-updated: 2025-02-16T07:01:46.349Z
+date: 2025-03-01T07:18:16.174Z
+updated: 2025-03-05T06:46:45.652Z
 tags: 
   - screen-recording
   - ai video
@@ -54,17 +54,9 @@ Besides creating image negatives, the Preview app lets you convert image files a
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color-original.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Clicking on the **Adjust Color feature** will bring up the color adjustment panel that contains **Black Level and White Level** sliders. To invert the colors in the photo you have to drag the **Black Level slider to the right** and the **White Level Slider to the left.**
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 You can experiment with the values you assign to each of these sliders in order to get a more visually pleasing result.
 
@@ -96,10 +88,6 @@ In addition to a rich selection of effects you can apply to images, tjshome also
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/ps-convert-color.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 After you open a photo in Adobe Photoshop, you can invert it in just a few clicks. **Expand the Image menu** and the go-to **Adjustments submenu** where you can find the **Invert option**. Alternatively, you can use the **CTRL+I** shortcut if you are a PC user or a **Command+I** if you are using a Mac computer. Moreover, Photoshop lets you **mask parts of a photo** which enables you to precisely define an area of an image you’d like to invert. Other photo editing tools like **Curves, Brightness/Contrast or Photo Filter** can make an image with inverted colors look more convincing. Keep in mind that working with multiple layers requires a lot of patience because failing to mask an object properly can produce some unwanted side issues.
 
 #### 6. Creating Image Negatives With [Gimp](https://www.gimp.org/)
@@ -126,10 +114,6 @@ Creating a negative of photos you take with your phone can be fun, so why not us
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/negative-photo-effects-hd.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Inverting the colors in a photo with Negative Photo Effect HD is easy since you just have to select a photo from the gallery or use the iPhone’s camera to snap a new one and apply the **negative photo effect**. You can highlight the area of the photo you’d like to invert with your finger or use some of the app’s photo editing tools to enhance the colors in the negative photo. You can save or share the photos you created, but if you use the free version of the app your photos will be watermarked unless you purchase the **Free Ads and Watermark package** for **$2.99.**
 
 **Conclusion**
@@ -137,10 +121,6 @@ Inverting the colors in a photo with Negative Photo Effect HD is easy since you 
 Inverting colors in a photo is not a complicated process, but finding creative ways to use the negative image effect is since images with inverted colors are best used within a pre-defined context. Do you often create images with inverted colors? Leave a comment below and let us know your favorite method of creating image negatives.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -167,17 +147,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-enhancing-virtual-collaboration-essential-strategies-for-efficient-zoom-chats-for-2024/"><u>[New] Enhancing Virtual Collaboration Essential Strategies for Efficient ZOOM Chats for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-launching-joining-and-scheduling-zoom-calls-made-simple-for-android-users/"><u>[New] In 2024, Launching, Joining, and Scheduling Zoom Calls Made Simple for Android Users</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-5-effective-ways-of-resizing-your-igtv-videos/"><u>[Updated] 2024 Approved 5 Effective Ways of Resizing Your IGTV Videos</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-innovative-script-visionaries-corner-for-2024/"><u>[Updated] Innovative Script Visionaries Corner for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/10-android-collage-innovations-to-elevate-creativity-for-2024/"><u>10 Android Collage Innovations to Elevate Creativity for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/best-entry-level-camera-reviews-2024-for-beginners/"><u>Best Entry-Level Camera Reviews 2024 | for Beginners</u></a></li>
-<li><a href="https://fox-info.techidaily.com/capture-clarity-complimentary-photo-refining-app/"><u>Capture Clarity - Complimentary Photo Refining App</u></a></li>
-<li><a href="https://fox-info.techidaily.com/case-study-approach-learning-from-successful-market-research-examples-for-2024/"><u>Case Study Approach Learning From Successful Market Research Examples for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/dial-up-your-mobile-experience-vr-and-panoramic-videos-on-android/"><u>Dial Up Your Mobile Experience VR & Panoramic Videos on Android</u></a></li>
-<li><a href="https://fox-info.techidaily.com/discovering-metaverse-8-premium-vr-eyewear-selections-for-2024/"><u>Discovering Metaverse 8 Premium VR Eyewear Selections for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/why-snapchats-ai-goes-beyond-playful-interaction/"><u>Why Snapchat’s AI Goes Beyond Playful Interaction</u></a></li>
-<li><a href="https://discover-exceptional.techidaily.com/wiederherstellung-von-daten-aus-einer-formatierten-ntfs-partition-schritt-fur-schritt-anleitung/"><u>Wiederherstellung Von Daten Aus Einer Formatierten NTFS-Partition: Schritt-Für-Schritt-Anleitung</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-efficiently-piecing-together-google-collage-projects/"><u>[New] 2024 Approved Efficiently Piecing Together Google Collage Projects</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-unveiling-secrets-phantoms-slow-motion-techniques/"><u>[New] 2024 Approved Unveiling Secrets Phantom's Slow Motion Techniques</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-selfies-in-focus-iphones-8-innovative-tools/"><u>[New] Selfies in Focus IPhone's #8 Innovative Tools</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-interactive-media-meets-brand-partnerships-on-youtube/"><u>[Updated] 2024 Approved Interactive Media Meets Brand Partnerships on YouTube</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-how-to-create-your-own-virtual-reality-gear-with-google-cards/"><u>[Updated] How to Create Your Own Virtual Reality Gear with Google Cards</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-mastering-video-integration-with-apple-music/"><u>[Updated] In 2024, Mastering Video Integration with Apple Music</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-the-most-reliable-skype-recorders-ranked/"><u>[Updated] The Most Reliable Skype Recorders Ranked</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1-quick-guide-watching-your-videos-anywhere-convert-wmv-files-to-vob-format-with-ease/"><u>1. Quick Guide: Watching Your Videos Anywhere - Convert WMV Files to VOB Format with Ease!</u></a></li>
+<li><a href="https://games-able.techidaily.com/bridge-devices-with-confidence-using-a-barrier-for-mousekeyboard-sharing/"><u>Bridge Devices with Confidence: Using a Barrier for Mouse/Keyboard Sharing</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/eight-free-android-recorders-top-selection-list/"><u>Eight Free Android Recorders – Top Selection List</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/te-your-aspects-a-beginner-cookbook-for-asmr-filmmaking/"><u>Elevate Your Aspects A Beginner' Cookbook for ASMR Filmmaking</u></a></li>
+<li><a href="https://article-posts.techidaily.com/framefixer-analysis-all-inclusive-report/"><u>FrameFixer Analysis – All-Inclusive Report</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Xiaomi Redmi K70 | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-a-visionary-leap-to-4k-the-eizo-coloredge-monitor-review/"><u>In 2024, A Visionary Leap to 4K The EIZO ColorEdge Monitor Review</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-an-airtag-from-your-apple-id-account-from-iphone-se-2020-by-drfone-ios/"><u>In 2024, How to Remove an AirTag from Your Apple ID Account From iPhone SE (2020)?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-playing-halted-a6400-video-viewing-woes/"><u>In 2024, Playing Halted A6400 Video Viewing Woes</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/manipulating-login-retry-wait-timepost-failed-attempts/"><u>Manipulating Login Retry Wait Timepost-Failed Attempts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/uncomplicated-podcast-live-master-the-art-of-livestreaming-for-2024/"><u>Uncomplicated Podcast Live Master the Art of Livestreaming for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unveiling-a-surprising-iphone-advantage-by-apple-an-in-depth-look-at-an-overlooked-feature-as-revealed/"><u>Unveiling a Surprising iPhone Advantage by Apple – An In-Depth Look at an Overlooked Feature, as Revealed</u></a></li>
 </ul></div>
 

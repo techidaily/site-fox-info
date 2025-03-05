@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, The Ultimate Guide to Windows 11 Photo Customization  Audio + Visuals\""
-date: 2025-02-09T16:16:38.399Z
-updated: 2025-02-16T02:13:47.596Z
+date: 2025-02-27T18:15:40.789Z
+updated: 2025-03-05T04:05:54.121Z
 tags: 
   - screen-recording
   - ai video
@@ -56,10 +56,6 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 5**: Just select one you like. Preview it and then click Done.
 
 ## Part 2: How to add music on Windows 10 Photos App
@@ -74,33 +70,17 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 5**: Hit the ‘Done’ button.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -127,18 +107,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-maximizing-visibility-key-elements-in-youtube-thumbnail-design/"><u>[New] 2024 Approved Maximizing Visibility Key Elements in YouTube Thumbnail Design</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-virtual-fantasy-the-essential-samsung-gear-vr-games-for-2024/"><u>[New] Virtual Fantasy The Essential Samsung Gear VR Games for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-master-iphone-images-with-pro-level-tech/"><u>[Updated] In 2024, Master iPhone Images with Pro-Level Tech</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-essential-tips-for-erasing-with-photoshop/"><u>2024 Approved Essential Tips for Erasing with Photoshop</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-the-syma-x8c-user-guide-insights/"><u>2024 Approved The Syma X8C User Guide Insights</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-top-eight-destinations-for-3d-typography/"><u>2024 Approved Top Eight Destinations for 3D Typography</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-tunes-twining-a-new-multimedia-approach/"><u>2024 Approved Tunes Twining A New Multimedia Approach</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-tutorial-on-stopping-automatic-youtube-video-prefaces/"><u>2024 Approved Tutorial on Stopping Automatic YouTube Video Prefaces</u></a></li>
-<li><a href="https://fox-info.techidaily.com/assessing-luminance-for-hd-raises-questions-for-2024/"><u>Assessing Luminance for HD Raises Questions for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/conduct-a-symphony-on-the-ppt-stage-for-2024/"><u>Conduct a Symphony on the PPT Stage for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/how-to-get-high-end-editing-power-for-free-in-2024/"><u>How to Get High-End Editing Power for Free, In 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Samsung Galaxy F14 5G? | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/ultimate-free-download-package-for-focusrite-scarlett-2i2-platinum-win-setup-and-drivers-included/"><u>Ultimate Free Download Package for Focusrite Scarlett 2I2 Platinum - Win Setup and Drivers Included</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-comprehensive-list-8-top-android-mp3-downloads/"><u>[New] 2024 Approved Comprehensive List 8 Top Android MP3 Downloads</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-next-level-video-top-webcam-filters-for-flawless-broadcasts/"><u>[New] 2024 Approved Next Level Video Top Webcam Filters for Flawless Broadcasts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-unleash-clean-visuals-step-by-step-guide-to-backdrop-erasure/"><u>[New] 2024 Approved Unleash Clean Visuals Step-By-Step Guide to Backdrop Erasure</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-harmonic-windows-tunes-hub-for-2024/"><u>[New] Harmonic Windows Tunes Hub for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-exploring-streaming-options-vimeo-vs-youtubes-popularity/"><u>[New] In 2024, Exploring Streaming Options Vimeo vs YouTube's Popularity</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-secrets-of-the-social-elite-6-actionable-tips-for-growing-instagram-followers/"><u>[New] In 2024, Secrets of the Social Elite 6 Actionable Tips for Growing Instagram Followers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-the-future-is-now-with-the-sj7-4k-action-camera-a-full-review/"><u>[New] The Future Is Now with the SJ7 4K Action Camera - A Full Review</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-unveiling-secrets-to-broadcast-recordings-on-facebook-live-for-2024/"><u>[New] Unveiling Secrets to Broadcast Recordings on Facebook Live for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-top-30-budget-friendly-after-effects-templates/"><u>[Updated] 2024 Approved Top 30 Budget-Friendly After Effects Templates</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-premier-ai-for-stunning-photo-creation/"><u>[Updated] Premier AI for Stunning Photo Creation</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-tailoring-drone-video-quality-with-expert-gimbal-choices/"><u>[Updated] Tailoring Drone Video Quality with Expert Gimbal Choices</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-veiled-vocal-keepers-ios-and-android-secretive-sound-tools-for-2024/"><u>[Updated] Veiled Vocal Keepers IOS & Android Secretive Sound Tools for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-prime-catchy-headline-creator/"><u>In 2024, Prime Catchy Headline Creator</u></a></li>
+<li><a href="https://fox-info.techidaily.com/quadcopter-showdown-dji-pro-and-hero-4-black-for-2024/"><u>Quadcopter Showdown DJI Pro and Hero 4 Black for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/testimonial-videos-the-social-proof-powerhouse-for-2024/"><u>Testimonial Videos The Social Proof Powerhouse for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/top-list-best-5-tools-for-creating-talking-avatars-for-2024/"><u>Top List Best 5 Tools for Creating Talking Avatars for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/understanding-css-the-role-of-content-scramble-system-in-dvd-copyright-protection/"><u>Understanding CSS: The Role of Content Scramble System in DVD Copyright Protection</u></a></li>
 </ul></div>
 

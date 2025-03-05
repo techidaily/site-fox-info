@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Advancing Beyond VP9  A Look at AV1\""
-date: 2025-02-12T00:24:38.593Z
-updated: 2025-02-15T19:24:01.088Z
+date: 2025-02-27T22:54:43.867Z
+updated: 2025-03-05T04:10:11.302Z
 tags: 
   - screen-recording
   - ai video
@@ -31,10 +31,6 @@ Released in 2013 by Google, VP9 is a free, open-source video codec that replaced
 
 In the meantime, a 2014 comparison between VP9 and /AVC discovered that VP9 offers a 45% bitrate advantage over. Netflix also concluded in 2016 that VP9  could have the same efficiency after tweaking the parameters. So overall, VP9 supports lossless encoding of raw bitstreams, making it perfect for streaming videos in MP4 and WebM.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2\. What is AV1?
 
 AV1 is a relatively new video codec by Alliance for Open Media, a consortium of which Google is a co-founder. Like VP9, it's a royalty-free video codec, meaning you don't have to pay licensing fee to use it. AV1 was developed to replace VP9, so expect it to be compatible with all VP9-supported platforms. Besides Google, the Alliance for Open Media also includes Netflix, Amazon, Cisco, Intel, Microsoft, and Mozilla.
@@ -45,19 +41,11 @@ The first AV1 version was released in 2016 but was held back due to unresolved c
 
 For viewers to enjoy high-quality content without using a lot of resources, efficient video compression technology is a must. As it stands, both VP9 and AV1 are royalty-free codecs, meaning that they are 100% free to use. However, these codecs differ. Here is what we've gathered for the **VP9 vs AV1** comparison:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Compatibility - VP9 has an edge
 
 Both video compression techniques are relatively new, which AV1 being the latest. This means VP9 and AV1 are compatible with various HTML5 browsers and devices. Google says VP9 decoding is compatible with more than 2 billion endpoints, meaning you can open VP9 on Mozilla Firefox, Opera, Chrome, Safari, Edge, Android smartphones/TVs, and local media players.
 
 ![compatibility](https://images.wondershare.com/filmora/article-images/2022/11/av1-vs-vp9-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 But on the other hand, viewers might experience an "error" message when opening AV1 locally on your old PC. While Intel works around the clock to develop supported drivers, some may not be compatible with your old computer. But expect wider AV1 compatibility now that more tech companies like Meta, Samsung, and Apple have joined the Alliance for Open Media. Currently, YouTube and Netflix are already streaming some videos in AV1.
 
@@ -82,10 +70,6 @@ YouTube Video: <https://www.youtube.com/watch?v=LznXh5lkgB0>
 Soon in the September, NVIDIA unveiled the GeForce RTX® 40 Series of GPUs, which comes with Dual NVIDIA Encoders (NVENC) that is able to "cut export times by up to half and feature AV1 support".
 
 ![cut export times](https://images.wondershare.com/filmora/article-images/2022/11/av1-vs-vp9-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Let alone AV2 is upcoming in 3-5 years. There is no doubt that AV1 is the future trend.
 
@@ -117,10 +101,6 @@ Are you satisfied with the edited video? Click **Play** to preview it and apply 
 
 ## Part 5\. FAQs About AV1 and VP9
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### What is the best video codec?
 
 There's nothing like the "best video codec" because it depends on user preference.  Although it offers universal compatibility, its performance is far behind codecs like AV1, and VP9. Also, it's a licensed video codec, one reason why YouTube stopped streaming.
@@ -128,10 +108,6 @@ There's nothing like the "best video codec" because it depends on user preferenc
 ### How can I check the video codec on YouTube?
 
 Checking the type of codec used to stream a YouTube video is relatively straightforward. Open the video and right-click the video screen. Then, click "Stats for nerds" to view the video codec, color, network connection speed, frames, and more.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How can I disable/disable AV1 playback on Firefox?
 
@@ -144,10 +120,6 @@ You can open AV1 on VLC version 3.0.0, released on February 2018\. Remember that
 ### When will AV2 be released?
 
 After multiple tests to compare AV1 and H.266, it was discovered that the former lags in numerous aspects. As a result, Alliance for Open Media had to go back to the drawing board to design AV2\. But don't expect this codec until at least 2024 to 2025.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Summary
 
@@ -183,24 +155,24 @@ We hope this AV1 vs VP9 comparison article has dispelled all your fears about us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-resolve-fb-live-failure-video-not-posting/"><u>[New] Resolve FB Live Failure Video Not Posting</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-top-6-mobile-phones-snapchats-ultimate-video-editing-companions/"><u>[Updated] In 2024, Top 6 Mobile Phones Snapchat's Ultimate Video Editing Companions</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-an-overview-and-comparative-study-of-googles-augmented-reality-stickers/"><u>2024 Approved An Overview and Comparative Study of Google's Augmented Reality Stickers</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-expert-endorsed-srs-conversions-for-macwin-users/"><u>2024 Approved Expert-Endorsed SRS Conversions for Mac/Win Users</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-from-sketches-to-stakes-leading-platforms-turning-art-into-nfts/"><u>2024 Approved From Sketches to Stakes Leading Platforms Turning Art Into NFTs</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-laugh-labs-robotic-deadpan-devs/"><u>2024 Approved Laugh Labs Robotic Deadpan Devs</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-masterful-tantalizing-titles-designer/"><u>2024 Approved Masterful Tantalizing Titles Designer</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-secrets-for-transcribing-and-converting-video-tweets-into-audio-files-mp3/"><u>2024 Approved Secrets for Transcribing & Converting Video Tweets Into Audio Files (MP3)</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-the-art-of-integrating-b-footage-into-main-shots/"><u>2024 Approved The Art of Integrating B-Footage Into Main Shots</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-the-key-to-crisp-clear-cinematography/"><u>2024 Approved The Key to Crisp, Clear Cinematography</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-visualediting-deep-dive-comprehensive-article-on-androvid/"><u>2024 Approved VisualEditing Deep Dive – Comprehensive Article on AndroVid</u></a></li>
-<li><a href="https://fox-info.techidaily.com/a-pilots-best-friend-critical-uav-addons-and-replacements-for-2024/"><u>A Pilot's Best Friend Critical UAV Addons and Replacements for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-motorola-moto-g34-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Motorola Moto G34 5G? | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/future-proof-console-buying-guide-best-picks/"><u>Future-Proof Console Buying Guide - Best Picks</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-samsung-galaxy-a15-5g-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Samsung Galaxy A15 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-masterful-digital-brushstrokes-essential-top-10-android-graphics-apps/"><u>In 2024, Masterful Digital Brushstrokes Essential Top 10 Android Graphics Apps</u></a></li>
-<li><a href="https://win11.techidaily.com/tips-for-eradicating-breakpoint-exception-error-on-pc/"><u>Tips for Eradicating Breakpoint Exception Error on PC</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/wwdc-2025-highlights-apples-big-reveals-and-latest-tech-news/"><u>WWDC 2025 Highlights: Apple's Big Reveals and Latest Tech News</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/zdnets-top-pick-from-ces-the-innovative-stylus-for-your-laptop-with-surprising-paper-writing-capabilities/"><u>ZDNet's Top Pick From CES: The Innovative Stylus for Your Laptop with Surprising Paper Writing Capabilities</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-balancing-intense-beats-with-fl-studios-easeful-dimming/"><u>[New] 2024 Approved Balancing Intense Beats with FL Studio's Easeful Dimming</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-capturing-marine-magic-pro-tips-for-filming-oceanic-scenes-using-gopro/"><u>[New] 2024 Approved Capturing Marine Magic Pro Tips for Filming Oceanic Scenes Using GoPro</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-unlocking-recmasters-potential-in-screen-capture-for-2024/"><u>[New] Unlocking Recmaster's Potential in Screen Capture for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-essential-top-10-live-streamers-android-and-iphone-edition/"><u>[Updated] 2024 Approved Essential Top 10 Live Streamers Android & iPhone Edition</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-beyond-inshot-essential-laptop-editing-tools/"><u>[Updated] Beyond Inshot Essential Laptop Editing Tools</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-brand-awakening-on-reddit-7-easy-steps-to-market-mastery-for-2024/"><u>[Updated] Brand Awakening on Reddit 7 Easy Steps to Market Mastery for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-a-complete-overview-of-polarr-photo-editor/"><u>[Updated] In 2024, A Complete Overview of Polarr Photo Editor</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-effortless-editing-discover-the-power-of-our-6-background-erasers/"><u>[Updated] In 2024, Effortless Editing - Discover the Power of Our 6 Background Erasers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-unforgettable-stop-motion-films-an-overview/"><u>[Updated] In 2024, Unforgettable Stop-Motion Films - An Overview</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-top-places-to-access-westeros-themed-phone-sounds/"><u>[Updated] Top Places to Access Westeros-Themed Phone Sounds</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-understanding-igs-evolution-reels-vs-stories/"><u>[Updated] Understanding IG's Evolution Reels vs Stories</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/disabling-iphone-11-pro-max-parental-restrictions-withwithout-password-drfone-by-drfone-ios/"><u>Disabling iPhone 11 Pro Max Parental Restrictions With/Without Password | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/explorations-reward-6-innovative-minecraft-residences/"><u>Exploration's Reward 6 Innovative Minecraft Residences</u></a></li>
+<li><a href="https://fox-info.techidaily.com/how-to-maximize-focus-with-enhanced-zoom-on-google-meet-for-2024/"><u>How to Maximize Focus with Enhanced Zoom on Google Meet for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-apex-10-royale-showdowns/"><u>In 2024, Apex 10 Royale Showdowns</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-pro-level-video-editing-with-vivacut-full-review-and-guidebook/"><u>In 2024, Pro-Level Video Editing with VivaCut Full Review & Guidebook</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/inside-psvr-2-what-you-need-to-know-about-its-features-market-value-and-launch-date/"><u>Inside PSVR 2: What You Need to Know About Its Features, Market Value & Launch Date</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-art-of-high-dynamic-range-pro-photoshop-techniques/"><u>The Art of High Dynamic Range Pro Photoshop Techniques</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-in-2024-top-8-live-selling-platforms-beginners-tool-tip/"><u>Updated In 2024, Top 8 Live Selling Platforms Beginners Tool Tip</u></a></li>
 </ul></div>
 
