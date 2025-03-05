@@ -1,7 +1,7 @@
 ---
 title: "The PowerShot SX720HS: A Compact, Versatile Zoomer Revealed"
-date: 2024-08-08T10:11:23.849Z
-updated: 2024-08-09T10:11:23.849Z
+date: 2025-02-13T03:37:50.209Z
+updated: 2025-02-16T09:01:09.249Z
 categories:
   - BestProducts
 description: "This Article Describes The PowerShot SX720HS: A Compact, Versatile Zoomer Revealed"
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/a471b0d2c144e4e5b46108f146c187bc2176565f5
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## YONGNUO YN560 IV Wireless Flash Speedlite Master
 
 ![Yongnuo YN560 IV Wireless Flash Speedlite Master](https://www.lifewire.com/thmb/uk1o4WlK-bsMCk1tgtC5d79QMNM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_3LW4072366-Yongnuo-YN560-1-33b6547cc9014731ab6e144b0613aaef.jpg)
@@ -40,14 +37,8 @@ Lifewire / Jonno Hill
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ## YONGNUO YN560 IV Wireless Flash Speedlite Master
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Yongnuo YN560 IV Wireless Flash Speedlite Master](https://www.lifewire.com/thmb/UOD6afkRh-xS-Dh1-iagOeoOSdY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_3LW4072366-Yongnuo-YN560-1-33b6547cc9014731ab6e144b0613aaef.jpg)
 
 Lifewire / Jonno Hill
@@ -73,8 +64,9 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Punching above the price point**
 
  The Yongnuo YN560 IV Wireless Flash Speedlite Master features a robust design that doesn’t feel like the manufacturer skimped on build quality — one of our biggest concerns with budget-minded flashes like this. When adjusting the position of the[flash head](https://www.lifewire.com/using-the-dslr-pop-up-flash-492975) through its 90 degrees of vertical and 270 degrees of horizontal range, it felt very solid.
@@ -88,8 +80,9 @@ Lifewire / Jonno Hill
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Features & Functionality: Full suite manual control**
 
  The Yongnuo YN560 IV Wireless Flash Speedlite Master has a lot of different options that will make it an attractive option for manual shooters. But before we dive into all the things it does well, let’s talk about what you_won’t_ find in this flash. The most notable omission is TTL. For the uninitiated, Through The Lens (TTL) is a metering mode that lets a flash unit fire a series of infrared bursts and evaluates the actual light coming through the lens to determine how much power to deliver when taking a photo. It’s very handy to have for beginners and event photographers, but by no means essential for many other types of users.
@@ -124,11 +117,19 @@ Lifewire / Jonno Hill
 
  Overall, the YN560 IV gives you a lot of functionality and control, but definitely requires some reading and troubleshooting before you can master the device.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Significant savings for manual users**
 
  Buyers that need a lot of manual control for complex flash setups will be very pleased with what the get for the approximately $60 the YN560 IV costs. It sits at a price that’s a fraction of its TTL-enabled Canon and Nikon counterparts, but twice that of even simpler options. Do you need all the functionality that the YN560 IV offers? Are you willing to troubleshoot a bit with returns to make sure you get good, non-defective units? If the answer to those questions is yes, this is definitely the flash for you.
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Yongnuo YN560 IV Wireless Flash Speedlite Master vs Neewer TT560 Flash Speedlite**
 
@@ -151,8 +152,9 @@ Lifewire / Jonno Hill
 * [Fovitec SPK10-037 Softbox Lighting Kit](https://www.lifewire.com/fovitec-spk10-037-softbox-lighting-kit-review-4692503)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  YN560 IV Wireless Flash Speedlite Master
@@ -176,8 +178,6 @@ Lifewire / Jonno Hill
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -185,4 +185,22 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-best-in-class-elite-4k-televisions-for-2024/"><u>[New] Best in Class Elite 4K Televisions for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-top-10-ways-to-procure-quality-photo-and-video-backgrounds/"><u>[New] In 2024, Top 10 Ways to Procure Quality Photo & Video Backgrounds</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-sonic-skills-mac-recording-tips-for-2024/"><u>[New] Sonic Skills Mac Recording Tips for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-the-ultimate-30plus-list-of-expertly-curated-cost-free-vfx-tools-for-creatives-for-2024/"><u>[New] The Ultimate 30+ List of Expertly Curated, Cost-Free VFX Tools for Creatives for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-dissecting-metaverse-and-multimetase-what-sets-them-apart/"><u>[Updated] 2024 Approved Dissecting Metaverse and Multimetase What Sets Them Apart</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-logic-pros-efficient-approach-to-softening-audio-levels/"><u>[Updated] Logic Pro's Efficient Approach to Softening Audio Levels</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-sony-xperia-xz-premium-an-odyssey-into-ultra-hd-phones/"><u>[Updated] Sony Xperia XZ Premium An Odyssey Into Ultra HD Phones</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-strategies-for-storing-real-time-webcam-talks/"><u>[Updated] Strategies for Storing Real-Time Webcam Talks</u></a></li>
+<li><a href="https://fox-info.techidaily.com/beginning-your-first-fb-giveaway-announcement-for-2024/"><u>Beginning Your First FB Giveaway Announcement for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/d-the-scenes-expert-video-editing-techniques-for-youtubers-for-2024/"><u>Behind the Scenes Expert Video Editing Techniques for YouTubers for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dominate-your-network-with-the-top-tier-netgear-nighthawk-rax1-20-wireless-router-reviewed/"><u>Dominate Your Network With The Top-Tier Netgear Nighthawk RAX1 20 Wireless Router Reviewed!</u></a></li>
+<li><a href="https://article-files.techidaily.com/exploring-the-unexpected-sideway-effects-in-ig-videos-for-2024/"><u>Exploring the Unexpected Sideway Effects in IG Videos for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/os-melhores-20-editores-de-video-livres-e-gratuitos-para-dslrs-guia-completo-do-movavi/"><u>Os Melhores 20 Editores De Vídeo Livres E Gratuitos Para DSLRs: Guia Completo Do Movavi</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-vivo-y78plus-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Vivo Y78+ Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-12-prominent-vivo-y36i-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Vivo Y36i Fingerprint Not Working Solutions</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Fast-Tracked Finesse  How to Efficiently Edit and Enhance Windows Photos\""
-date: 2025-02-02T18:50:31.314Z
-updated: 2025-02-03T19:53:29.759Z
+date: 2025-02-13T18:35:41.726Z
+updated: 2025-02-15T21:39:20.209Z
 tags: 
   - screen-recording
   - ai video
@@ -36,6 +36,10 @@ The Photos app in Windows 10 is one of the best and with the addition of the dra
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Draw On Photos App in Windows 10
 
 When you can add a personal touch to your videos and photos, it becomes all the way more special. Many times, it becomes essential to add a note to explain a video in a better way. Here are the steps to draw on photos in Windows 10 –
@@ -46,13 +50,17 @@ When you can add a personal touch to your videos and photos, it becomes all the 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/draw-on-photos-in-windows-10.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * You can see a Windows Ink Toolbar, select your preferred pen from the options available
 * Select the size and color of the fonts you wish to use from a range of palette
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/start-drawing-on-photos-in-windows-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Draw on the images and videos effortlessly
 * You can also find an eraser tool with various sizes of erasers that allows you to erase your entire drawing or a part of it as per your choice when required
@@ -70,21 +78,17 @@ Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lu
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/lunapic-drawing.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Select the color from the range of palette available
 * Select the pen size using the given number scroll option
 * Click on apply if you are all set to draw or click on clear if you wish to make changes
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/editing-drawings-on-windows-10.jpg)
 
-* To save your drawing on the image, you must click on Apply after each action you make with the tool
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+* To save your drawing on the image, you must click on Apply after each action you make with the tool
 
 ## Conclusion
 
@@ -92,14 +96,10 @@ The Photos app has an interface that is restructured with dark theme options and
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -127,24 +127,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-expert-advice-for-efficiently-creating-srt-files/"><u>[New] 2024 Approved Expert Advice for Efficiently Creating SRT Files</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-top-3d-gold-text-effect-sites-on-the-web/"><u>[New] 2024 Approved Top 3D Gold Text Effect Sites on the Web</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-dji-aerial-palette-changes-get-20-free-with-pay-options-available-for-2024/"><u>[New] DJI Aerial Palette Changes - Get 20 FREE with Pay Options Available for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-hack-free-guide-to-anonymous-instagram-story-viewing/"><u>[New] Hack-Free Guide to Anonymous Instagram Story Viewing</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-podcast-prominence-with-powerful-seo-insights-and-strategies/"><u>[New] In 2024, Podcast Prominence with Powerful SEO Insights and Strategies</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-premier-seminar-title-inventor-suite-for-2024/"><u>[New] Premier Seminar Title Inventor Suite for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-the-future-of-filming-xs-100is-bold-journey/"><u>[New] The Future of Filming XS 100I's Bold Journey</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-game-changing-tvs-for-ps5-and-xbox-series-x-enthusiasts/"><u>[Updated] 2024 Approved Game-Changing TVs for PS5 & Xbox Series X Enthusiasts</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-how-does-apples-m1-compare-to-traditional-editing-workstations-for-2024/"><u>[Updated] How Does Apple’s M1 Compare to Traditional Editing Workstations for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-kinja-celebs-chatting-via-snapchat/"><u>2024 Approved Kinja Celebs Chatting via Snapchat</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/cookiebot-your-essential-guide-to-dynamic-website-personalization/"><u>Cookiebot: Your Essential Guide to Dynamic Website Personalization</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-8-best-film-cameras-for-beginners-from-35mm-to-point-and-shoot/"><u>In 2024, 8 Best Film Cameras for Beginners (From 35Mm to Point-and-Shoot)</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-guffaw-guild-robotic-raiders/"><u>In 2024, Guffaw Guild Robotic Raiders</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/aging-youtubes-features-to-improve-visuals/"><u>Leveraging YouTube's Features to Improve Visuals</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/new-in-2024-youtube-live-selling-boost-your-sales-with-these-tips/"><u>New In 2024, YouTube Live Selling Boost Your Sales With These Tips</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-what-is-an-ai-script-generator/"><u>New What Is an AI Script Generator?</u></a></li>
-<li><a href="https://fox-info.techidaily.com/revolutionary-audio-adjustment-software-best-of-the-free-kind-for-valorant/"><u>Revolutionary Audio Adjustment Software – Best of the Free Kind for Valorant</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/solving-the-device-cant-start-a-guide-to-overcoming-error-code-10/"><u>Solving the 'Device Can't Start': A Guide to Overcoming Error Code 10</u></a></li>
-<li><a href="https://fox-triigers.techidaily.com/step-by-step-guide-modifying-system-parameters-via-the-advanced-settings-window/"><u>Step-by-Step Guide: Modifying System Parameters via the Advanced Settings Window</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-no-cost-windowsmac-solutions-for-movie-lovers/"><u>[New] No-Cost Windows/Mac Solutions for Movie Lovers</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-innovative-mobile-multimedia-tools-to-transform-photos/"><u>[Updated] Innovative Mobile Multimedia Tools to Transform Photos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-capture-words-use-at-zero-expense/"><u>2024 Approved Capture Words, Use at Zero Expense</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-chromatic-confluence-music-and-photography-online/"><u>2024 Approved Chromatic Confluence Music & Photography Online</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-front-seat-pleasures-not-so-sporty-top-ten/"><u>2024 Approved Front Seat Pleasures Not So Sporty Top Ten</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-navigating-through-the-top-8-blended-mobile-video-collage-choices-on-android/"><u>2024 Approved Navigating Through the Top 8 Blended Mobile Video Collage Choices on Android</u></a></li>
+<li><a href="https://extra-information.techidaily.com/dissecting-video-trimming-in-imovie-app/"><u>Dissecting Video Trimming in iMovie App</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/leveraging-luminance-adjustments-on-your-win11-device/"><u>Leveraging Luminance Adjustments on Your Win11 Device</u></a></li>
+<li><a href="https://win11.techidaily.com/rewiring-wireless-lan-link-on-windows/"><u>Rewiring Wireless LAN Link on Windows</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-10-premium-luts-available-for-free/"><u>Top 10 Premium LUTs, Available for FREE</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-oneplus-nord-3-5g-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your OnePlus Nord 3 5G Phone Network-Ready</u></a></li>
 </ul></div>
 

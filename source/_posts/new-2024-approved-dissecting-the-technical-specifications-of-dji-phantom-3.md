@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Dissecting the Technical Specifications of DJI Phantom 3\""
-date: 2025-02-01T21:16:41.897Z
-updated: 2025-02-03T21:20:03.192Z
+date: 2025-02-09T23:32:56.585Z
+updated: 2025-02-16T06:37:35.897Z
 tags: 
   - screen-recording
   - ai video
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 ![phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Complete review for DJ Phantom 3 Standard
@@ -85,7 +85,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 ![phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard-controller.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  By using specially designed control sticks you can easily move the motors in desired direction. On the other side, the advanced application provides easy controls to flight modes, GPS, signal strength and battery level monitoring. The bottom portion of application indicates speed, altitude, heading and other location based details. Map will help users to gain full control over live view details and it will update the hybrid or satellite based location information on the go.
@@ -97,7 +97,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 ![phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard-camera.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Phantom 3 Standard is able to capture videos with three different modes: HD, HHD and 2.7 K resolution level; whereas, you can enjoy stills with 12MP capabilities. All the resulting videos of Phantom device use to be of excellent quality with crystal clear details and all movements are reflected with very smooth and clean fashion. The great news is here that phantom 3 offers intuitive control video settings and one can make easy adjustments to avail soft, real and fuzzy videos.
@@ -105,7 +105,7 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -133,19 +133,19 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-efficient-cost-strategies-for-cloud-space-usage-for-2024/"><u>[New] Efficient Cost Strategies for Cloud Space Usage for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-essential-guide-to-best-free-4k-uhd-playback-tools-pcandmac/"><u>[Updated] 2024 Approved Essential Guide to Best Free 4K UHD Playback Tools (PC&Mac)</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-premier-camera-picks-for-high-quality-music-videos-in-4k/"><u>[Updated] 2024 Approved Premier Camera Picks for High-Quality Music Videos in 4K</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-transformative-guide-gifs-becoming-stickers-on-discord-whatsapp-and-telegram/"><u>[Updated] Transformative Guide GIFs Becoming Stickers on Discord, WhatsApp & Telegram</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-essential-steps-to-get-your-podcast-on-app-store/"><u>2024 Approved Essential Steps to Get Your Podcast on App Store</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-optimize-social-vids-for-maximum-view-size/"><u>2024 Approved Optimize Social Vids for Maximum View Size</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-premium-free-excellence-analyzing-and-sharing-best-free-luts/"><u>2024 Approved Premium-Free Excellence Analyzing and Sharing Best Free LUTs</u></a></li>
-<li><a href="https://fox-info.techidaily.com/creating-quantum-displacement-effects-for-2024/"><u>Creating Quantum Displacement Effects for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/easy-steps-how-to-successfully-transition-your-mp4-files-for-iphones-6-and-6-plus-viewing/"><u>Easy Steps: How to Successfully Transition Your MP4 Files for iPhones 6 & 6 Plus Viewing</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-sign-wpt-file-electronically-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to sign .wpt file electronically</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-15-without-passcode-4-easy-methods-drfone-by-drfone-ios/"><u>In 2024, How To Unlock Apple iPhone 15 Without Passcode? 4 Easy Methods | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagram-audio-the-ultimate-guide-to-music-icons/"><u>Instagram Audio The Ultimate Guide to Music Icons</u></a></li>
-<li><a href="https://some-skills.techidaily.com/supreme-select-iphone-customized-sound-crafting-for-2024/"><u>Supreme Select IPhone Customized Sound Crafting for 2024</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-the-best-batch-mp3-conversion-services-with-text-output-compatible-with-smoothvideopro/"><u>Updated In 2024, The Best Batch MP3 Conversion Services with Text Output – Compatible with SmoothVideoPro</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-digital-doppelganger-deliberation-building-caricatured-characters/"><u>[New] 2024 Approved Digital Doppelganger Deliberation Building Caricatured Characters</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-creating-content-with-confidence-free-youtube-training/"><u>[New] In 2024, Creating Content with Confidence Free YouTube Training</u></a></li>
+<li><a href="https://win11.techidaily.com/7-rapid-responses-to-combat-windows-app-failures/"><u>7 Rapid Responses to Combat Windows App Failures</u></a></li>
+<li><a href="https://fox-info.techidaily.com/best-memes-with-a-humor-shaper-for-2024/"><u>Best Memes with a Humor Shaper for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/building-a-robust-spotify-advertising-strategy-for-2024/"><u>Building a Robust Spotify Advertising Strategy for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/daily-revenue-of-podcasters-worldwide/"><u>Daily Revenue of Podcasters Worldwide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/design-and-share-your-unique-humor-piece/"><u>Design and Share Your Unique Humor Piece</u></a></li>
+<li><a href="https://fox-info.techidaily.com/digital-chimes-discover-the-top-tone-websites/"><u>Digital Chimes Discover the Top Tone Websites</u></a></li>
+<li><a href="https://fox-info.techidaily.com/efficient-multi-tasking-activating-and-disabling-pip-in-safari-for-2024/"><u>Efficient Multi-Tasking Activating & Disabling PIP in Safari for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Samsung Galaxy XCover 6 Pro Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On OnePlus Nord 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/microsoft-outlook2/"><u>Microsoft Outlookでメール自動削除機能を無効化するための新手法2種</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-tips-on-confirming-facebooks-online-presence/"><u>Quick Tips on Confirming Facebook’s Online Presence</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Honor Magic 6 Pro | Dr.fone</u></a></li>
 </ul></div>
 

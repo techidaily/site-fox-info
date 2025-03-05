@@ -1,7 +1,7 @@
 ---
 title: "\"Efficient Multi-Tasking  Activating & Disabling PIP in Safari for 2024\""
-date: 2024-07-29T07:19:08.375Z
-updated: 2024-07-30T07:19:08.375Z
+date: 2025-02-09T10:31:35.308Z
+updated: 2025-02-15T23:25:38.523Z
 tags: 
   - screen-recording
   - ai video
@@ -24,9 +24,6 @@ Thanks to this invention, users can reply to customers' emails while closing a n
 
 ![reply emails](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-in-safari-for-mac-iphone-ipad-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## Part 1\. How to enable and disable picture in picture in Safari for Mac
 
 Picture-in-Picture PiP mode is a feature that allows you to view movies in a tiny floating window while surfing another website in Safari or doing something else on your Mac. It remains in the foreground of your screen regardless of which new program you start on your PC.
@@ -44,10 +41,11 @@ Let's have a look at how to use Picture in Picture in Safari on Mac:
 * Once it starts playing, you will notice a **small sound icon** at the top tab; you can **right-click or hold control** while clicking on this icon.
 * You will notice a drop-down where you can select the **"Enter Picture in Picture."**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![enter picture in picture](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-in-safari-for-mac-iphone-ipad-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Suppose you opened the video tab only; you will see the small sound icon in the address bar. But if you open other tabs, in that case, you will see the small sound icon on the right side of the tab.
 
@@ -59,9 +57,6 @@ When you enable this feature, the video will shrink and move to a corner on Mac'
 
 There is a play and pause button available also as well as the forward and backward if you wish to perform any of these activities. And again, you can decide to turn off this feature by repeating the procedure where you locate the small sound icon. But here, you select the mute this tab instead or click the "**X"** button at the top left corner to stop the video.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ## Part 2\. How to enable and disable picture in picture in Safari for iPhone
 
 As we have discussed earlier, users have a way to enable the picture in picture mode before launching iOS14, where the feature is incorporated in the settings. Thanks to Apple's new APIs, this functionality is no longer limited to watching videos while working on other apps with iOS 15\. However, the following procedure is how you can enable the picture in picture mode on your iPhone.
@@ -72,30 +67,33 @@ As we have discussed earlier, users have a way to enable the picture in picture 
 
 ![start pip automatically](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-in-safari-for-mac-iphone-ipad-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** You perform the above procedure also to disable the feature. However, in the case of disabling the option, you turn **OFF** the toggle button for **Start PiP Automatically** to disable this function.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ### Using the Picture in Picture feature on iPhones
 
 Once you lunch this feature on iOS 14 or greater versions, it automatically shrinks to the top or bottom side of the screen. Here, you can perform several activities with the features, including resizing, moving, and aligning the video with the window. In the case of aligning, depending on your choice, it could be to the screen's top right, bottom right, top left, and bottom left.
 
 To move the window to any screen part, simply tap and hold the video to drag and place it on any part of the screen you want. Another fantastic feature the iPhone offers is that it allows you to minimize the picture-in-picture window, and you will keep listening to the audio part of the video while working on other apps.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![move the window to any screen part](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-in-safari-for-mac-iphone-ipad-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 To perform this minimizing feature, grab the window and move it to either side of the screen's edge. In doing so, the window will disappear, and you will keep hearing the sound only. But, on the screen side, where you move the window, you will see an arrow and a grabber indicating its presence, and you can use it to revive the video.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![move the window to screen's edge](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-in-safari-for-mac-iphone-ipad-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3\. How to enable and disable picture in picture in Safari for iPad
 
@@ -108,9 +106,6 @@ The picture in picture mode has been available on the iPad long before it was in
 
 Above all, you need to have it in the back of your mind that regardless of how you enable this feature, the app or website needs to support the picture in picture mode to work correctly. However, almost all website supports this feature, with YouTube being the top supporter.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 Going through emails in the morning while viewing news videos in Picture-in-Picture mode can help you save time. You don't have to launch a new Safari window or rely on Split View, which consumes important screen space while multitasking.
@@ -121,6 +116,10 @@ Aside from Safari, the Picture-in-Picture mode is available in other standard pr
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Using the Picture in Picture feature on iPhones
 
 Once you lunch this feature on iOS 14 or greater versions, it automatically shrinks to the top or bottom side of the screen. Here, you can perform several activities with the features, including resizing, moving, and aligning the video with the window. In the case of aligning, depending on your choice, it could be to the screen's top right, bottom right, top left, and bottom left.
@@ -131,14 +130,8 @@ To move the window to any screen part, simply tap and hold the video to drag and
 
 To perform this minimizing feature, grab the window and move it to either side of the screen's edge. In doing so, the window will disappear, and you will keep hearing the sound only. But, on the screen side, where you move the window, you will see an arrow and a grabber indicating its presence, and you can use it to revive the video.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ![move the window to screen's edge](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-in-safari-for-mac-iphone-ipad-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3\. How to enable and disable picture in picture in Safari for iPad
 
 The picture in picture mode has been available on the iPad long before it was incorporated into other Apple products. However, enabling it on the iPad is one of the easiest things to do. Furthermore, disabling this feature follows the procedure you followed when enabling it. Following the procedures highlighted below will help you enable and disable PiP on your iPad:
@@ -149,6 +142,10 @@ The picture in picture mode has been available on the iPad long before it was in
 * Here, toggle picture in picture ON to enable this feature; otherwise, toggle picture in picture OFF to disable the feature.
 
 Above all, you need to have it in the back of your mind that regardless of how you enable this feature, the app or website needs to support the picture in picture mode to work correctly. However, almost all website supports this feature, with YouTube being the top supporter.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -182,4 +179,19 @@ Aside from Safari, the Picture-in-Picture mode is available in other standard pr
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-elevate-your-photos-free-online-and-app/"><u>[New] 2024 Approved Elevate Your Photos - FREE Online and App</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-elevate-your-audio-game-with-free-vocal-effects-for-2024/"><u>[New] Elevate Your Audio Game with Free Vocal Effects for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-beginners-blueprint-progressive-sound-intensity-rise/"><u>[New] In 2024, Beginner’s Blueprint Progressive Sound Intensity Rise</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-elevating-your-tiktok-presence-harness-the-power-of-siri-speech/"><u>[Updated] 2024 Approved Elevating Your TikTok Presence Harness the Power of Siri Speech</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-from-tiktok-to-instagram-strategies-to-amplify-your-reels-virality/"><u>[Updated] In 2024, From TikTok to Instagram Strategies to Amplify Your Reel's Virality</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/blurry-photos-top-tools-reviewed-for-2024/"><u>Blurry Photos Top Tools Reviewed for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-oppo-reno-10-proplus-5g-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Oppo Reno 10 Pro+ 5G Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722963168056-get-the-latest-m-audio-fast-track-driver-for-your-pc-on-windows-10-7-8-and-81-now-available/"><u>Get the Latest M-Audio Fast Track Driver for Your PC on Windows 10, 7, 8 & 8.1 - Now Available</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-a-comprehensive-guide-to-subtitle-sharing-on-tumblr-and-discord/"><u>In 2024, A Comprehensive Guide to Subtitle Sharing on Tumblr and Discord</u></a></li>
+<li><a href="https://fox-info.techidaily.com/no-video-paths-in-modern-education-systems-for-2024/"><u>No-Video Paths in Modern Education Systems for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211115687-9781401976064-remember-your-roots/"><u>Remember Your Roots | Free Book</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-complete-picture-an-in-depth-analysis-of-polarr-photo-tools/"><u>The Complete Picture An In-Depth Analysis of Polarr Photo Tools</u></a></li>
+</ul></div>
 

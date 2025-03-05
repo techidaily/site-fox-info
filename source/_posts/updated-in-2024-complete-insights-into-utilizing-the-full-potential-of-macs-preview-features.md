@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Complete Insights Into Utilizing the Full Potential of Mac's Preview Features"
-date: 2025-01-31T18:19:01.190Z
-updated: 2025-02-03T23:36:32.415Z
+date: 2025-02-14T20:55:32.023Z
+updated: 2025-02-16T10:21:44.294Z
 tags: 
   - screen-recording
   - ai video
@@ -35,15 +35,15 @@ That said, the sections below explain **how to use Preview on Mac** for elementa
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to Use Preview to Edit Images \[Complete Guide\]
 
 Being the default image editor for Mac, Apple tried to make the **Preview app** as simple as possible. Therefore, modifying the photos in the program isn’t much complicated as compared to its competitors from different vendors.
 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to View and Edit Photos in Preview on Mac
 
@@ -59,10 +59,6 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -76,6 +72,10 @@ Click the **Show Markup Toolbar** icon present at the upper-right area to reveal
 Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup Toolbar**.
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Crop in Preview
 
@@ -106,7 +106,7 @@ Use the method explained above to open the photo in Preview.
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Add Text to Image in Preview
@@ -142,7 +142,7 @@ Once the background portion of the image gets selected (colored in red), without
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Combine Images into One
@@ -208,7 +208,7 @@ Choose a destination folder in the **Where** field, select your preferred format
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -236,17 +236,17 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-unleash-your-devices-potential-with-these-8-must-have-apps/"><u>[New] In 2024, Unleash Your Device's Potential with These 8 Must-Have Apps</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-attenuating-audio-gradually-in-fl-projects/"><u>[Updated] 2024 Approved Attenuating Audio Gradually in FL Projects</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-what-to-do-when-you-spot-your-own-face-during-a-call/"><u>[Updated] 2024 Approved What to Do When You Spot Your Own Face During a Call?</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-hero-4-vs-x1000v-which-camera-delivers-more-professional-results-for-2024/"><u>[Updated] Hero 4 Vs. X1000V Which Camera Delivers More Professional Results for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-prioritize-savings-with-the-best-6-affordable-camera-brands-for-2024/"><u>[Updated] Prioritize Savings with the Best 6 Affordable Camera Brands for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-strategic-setup-youtube-gaming-banners-made-easy/"><u>2024 Approved Strategic Setup YouTube Gaming Banners Made Easy</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/3-effective-ways-to-bypass-activation-lock-from-iphone-x-by-drfone-ios/"><u>3 Effective Ways to Bypass Activation Lock from iPhone X</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-honor-x50-gt-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Honor X50 GT Fingerprint Lock</u></a></li>
-<li><a href="https://win-exclusive.techidaily.com/how-to-troubleshoot-windows-when-it-doesnt-detect-your-new-scanner-expert-tips-from-yl-computing/"><u>How to Troubleshoot Windows When It Doesn't Detect Your New Scanner: Expert Tips From YL Computing</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/system-rests-to-cool-down-post-gaming/"><u>System Rests to Cool Down Post-Gaming</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-motorola-moto-g14-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Motorola Moto G14 Device</u></a></li>
-<li><a href="https://fox-info.techidaily.com/unlocking-potential-in-spotifys-ad-ecosystem/"><u>Unlocking Potential in Spotify's Ad Ecosystem</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-premiere-pros-finest-tools-free-and-exceptional-quality/"><u>[Updated] 2024 Approved Premiere Pro's Finest Tools - Free & Exceptional Quality</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-best-student-focused-historical-yt-series-for-2024/"><u>[Updated] Best Student-Focused Historical YT Series for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/bigger-captures-intact-detail-quality-for-2024/"><u>Bigger Captures, Intact Detail Quality for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/boost-your-visuals-video-enhance-pro-22-guide/"><u>Boost Your Visuals - Video Enhance Pro 2.2 Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/chilly-celebrations-beijings-olympic-ice-showcase-2022-for-2024/"><u>Chilly Celebrations Beijing's Olympic Ice Showcase, 2022 for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/complete-solution-for-resolving-icloud-non-sync-issues-effectively/"><u>Complete Solution for Resolving iCloud Non-Sync Issues Effectively</u></a></li>
+<li><a href="https://win11.techidaily.com/compreehing-windows-11-printer-offline-error-causes/"><u>Compreehing Windows 11 Printer Offline Error Causes</u></a></li>
+<li><a href="https://fox-info.techidaily.com/crafting-wide-angle-photos-with-a-fisheye-effect-for-2024/"><u>Crafting Wide-Angle Photos with a Fisheye Effect for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/discover-popular-tiktok-background-images/"><u>Discover Popular TikTok Background Images</u></a></li>
+<li><a href="https://fox-info.techidaily.com/discover-the-creme-de-la-creme-of-iphoneipad-videos/"><u>Discover the Crème De La Créme of iPhone/iPad Videos</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/easy-steps-on-how-to-create-a-new-apple-id-account-on-iphone-xs-max-by-drfone-ios/"><u>Easy Steps on How To Create a New Apple ID Account On iPhone XS Max</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-in-2024-best-video-translator-app-for-pc-you-cannot-miss/"><u>New In 2024, Best Video Translator App for PC You Cannot Miss</u></a></li>
 </ul></div>
 

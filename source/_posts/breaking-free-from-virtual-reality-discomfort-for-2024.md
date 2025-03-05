@@ -1,7 +1,7 @@
 ---
 title: "Breaking Free From Virtual Reality Discomfort for 2024"
-date: 2024-07-29T07:19:41.691Z
-updated: 2024-07-30T07:19:41.691Z
+date: 2025-02-11T04:30:38.090Z
+updated: 2025-02-16T07:47:38.903Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/59a195ec28420319fea5f3f07d0383273230910a4
 
 # How to reduce Virtual reality (VR) sickness
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 ##### Benjamin Arango
@@ -30,9 +27,9 @@ thumbnail: https://thmb.techidaily.com/59a195ec28420319fea5f3f07d0383273230910a4
  Mar 27, 2024• Proven solutions
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 8 ways to reduce VR sickness
 
  People are individuals with individual mindsets, and have different response behaviors to different type of sickness they encounter. Past experiments have shown that the age group from 2-12 suffers from the sickness and it reportedly decreases till the age of 21\. The cycle then starts again in the late 50’s. We are now in a dire need of ways to get rid of the sickness in order to fully experience the VR systems and make them user friendly. According to Popular Science, VR sickness and general VR discomfort are currently among the biggest hurdles to overcome before VR is comfortably adopted by the mass market. Scientists have set their goals upon making the VR system a true hit towards the end of this year. The highlights say that the scientists have found ways to eliminate virtual reality sickness, making 2017 to be ‘the year of Virtual Reality’. Until then we can adopt some careful set of rules to avoid that nauseous feeling during the game.
@@ -54,8 +51,9 @@ thumbnail: https://thmb.techidaily.com/59a195ec28420319fea5f3f07d0383273230910a4
  8. **Properly adjust the head gear.**Make sure your head gear fits you perfectly so there isn’t any calibration problem.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What is Virtual reality sickness?
 
  All we know about the reality of the real world around us is that it comes from the perception of our sensory organs and their co-relation with the sense-managing system of our brain to generate useful information. Thus if we present our sensory system with the kind of information that really isn’t there our brain would begin to explore it and comprehend it as reality to us. Such a type of self-made information and the resulting outcome is what we call ‘virtual reality’.
@@ -63,17 +61,18 @@ thumbnail: https://thmb.techidaily.com/59a195ec28420319fea5f3f07d0383273230910a4
  You can definitely not deny all the fun you can have with this new technology once you grab on all the cool gadgets and gears. Putting on a virtual reality headset can take you to a completely different world but would it really be fun when you have to vomit after ten minutes? Virtual reality sickness is a big hurdle to the widespread use of the virtual reality technology. The fact that ‘with virtual reality comes the sickness’ has been a major worry factor to the developers and scientists. Virtual Reality sickness brings along symptoms such as headaches, nausea, vomiting, discomfort, sweating, drowsiness, disorientation and apathy. Virtual reality sickness, however, is not a new problem. It has been known since the test pilots, test drivers and astronauts have been practicing their skills in simulators and mock vehicles.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why virtual reality make people sickness
 
  Now the question arises, what is really making us sick? Is it the gadgets or gears? Or some manufacturing flaw? The link connecting virtual reality and the sickness, lies within the human body itself. When you are in a virtual environment, in some cases, your body’s sense of balance does not completely line up with the movements of your head. Also, when the environment around you moves, but your body stays stationary you experience dizziness or nausea. Typically, the bigger the mismatch the worse the sickness. According to the statement delivered by a military pilot, when you go inside a simulator, the movements don’t exactly match the same as they do in the real world, and all of a sudden, what you feel is just not right. Another reason causing the problem is based on virtual reality games and other such systems. In such a VR system you experience environment larger than the room you are in. All these factors can ultimately drive you sick!
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -98,4 +97,21 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-step-by-step-approach-to-personalizing-your-phones-alerts/"><u>[New] 2024 Approved The Step-By-Step Approach to Personalizing Your Phone's Alerts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-a-comprehensive-guide-to-azure-speech-to-text-implementation-for-2024/"><u>[New] A Comprehensive Guide to Azure Speech-to-Text Implementation for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-discover-your-latest-fb-watch-list-for-2024/"><u>[New] Discover Your Latest FB Watch List for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-djs-directive-seamless-shuffling-between-services/"><u>[New] In 2024, DJ's Directive Seamless Shuffling Between Services</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-invisible-listeners-guide-6-clandestine-recording-apps-androidios/"><u>[New] In 2024, Invisible Listeners Guide 6 Clandestine Recording Apps (Android/iOS)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-are-reviews-on-merchandise-streamed-for-cash/"><u>[Updated] 2024 Approved Are Reviews on Merchandise Streamed for Cash?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-explore-the-best-iphone-vr-games-today/"><u>[Updated] 2024 Approved Explore the Best iPhone VR Games Today</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-ais-best-podcast-naming-tools-top-ten-list/"><u>[Updated] In 2024, AI's Best Podcast Naming Tools Top Ten List</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-reclaiming-deleted-posts-on-reddit-in-minutes/"><u>[Updated] Reclaiming Deleted Posts on Reddit in Minutes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-13-ways-to-get-your-fb-videos-spotlighted/"><u>2024 Approved 13 Ways to Get Your FB Videos Spotlighted</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-partnership-unlocked-break-through-at-10k-vistas/"><u>2024 Approved YouTube Partnership Unlocked Break Through at 10K Vistas</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-realme-narzo-n53-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Realme Narzo N53 Without Volume Buttons | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-comparing-tiktok-and-youtube-shorts-for-personal-content-creation/"><u>In 2024, Comparing TikTok & YouTube Shorts for Personal Content Creation</u></a></li>
+<li><a href="https://article-helps.techidaily.com/perfect-photos-at-a-click-top-captioning-software/"><u>Perfect Photos at a Click Top Captioning Software</u></a></li>
+</ul></div>
 

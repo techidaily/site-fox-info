@@ -1,7 +1,7 @@
 ---
 title: "\"Dive Into Vibrant Visuals  GoPro Studio Color Correction\""
-date: 2024-07-29T07:20:06.762Z
-updated: 2024-07-30T07:20:06.762Z
+date: 2025-02-10T06:15:12.123Z
+updated: 2025-02-16T03:20:42.950Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/c76014f183cb941dddc5e361ad7d0edd6dead041e
 
 # How to Do Color Correction in GoPro Studio
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -34,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/c76014f183cb941dddc5e361ad7d0edd6dead041e
 **You may also like:**
 
 [Color Grading and Correction in Final Cut Pro >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Color Correction in GoPro Studio
 
@@ -47,16 +48,14 @@ thumbnail: https://thmb.techidaily.com/c76014f183cb941dddc5e361ad7d0edd6dead041e
 
 **Step 2:** Split the Image- On the right of the screen there is a split button. You need to shift the point almost halfway. Doing this would split the window in ½ though you will not be able to see that. When the color profile of the image is changed the right side is going to change without affecting the left side. This would allow you to compare the image as it was before and after correcting the color. In order to view the original image or the edited one you have to draw the pointer to the right or left.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Color correction in GoPro Studio](https://images.wondershare.com/filmora/article-images/color-correction-in-gopro-studio-0.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3:** Color Correction- On the right hand side of your window the color correction can be done just by hitting on the arrow beside the White Balance button and the Image button. Now you can see the options which needed to be changed in order to correct the color. You will be able to view all the options like temperature, exposure, sharpness, contrast, tint and saturation. You can also choose to apply different preset overlays to give the footage a special filter.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ![how to do color correction in GoPro Studio](https://images.wondershare.com/filmora/article-images/color-correction-in-gopro-studio-1.jpg)
 
  The GoPro Studio is very user friendly and effective video editing software but in order to use it you need to convert the format of your video before you start to edit. There aren't many options especially when you require enhanced controls on the GoPro recordings. This is why we would recommend you to use the [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) editing software. It is equipped with a special action cam tool which not only allows the user to alter the color by changing the brightness, saturation, vignette, tint or temp but even comes with loads of 3D LUT filters which adds a nice effect.
@@ -70,8 +69,9 @@ thumbnail: https://thmb.techidaily.com/c76014f183cb941dddc5e361ad7d0edd6dead041e
 3. It fully supports  encoded MP4 format, MTS and Mov videos shot on any action cams, camcorders and phones.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## GoPro Footage Color Correction in Wondershare Filmora
 
  In order to do the color correction in Filmora you just need to follow the 3 easy steps.
@@ -80,23 +80,24 @@ thumbnail: https://thmb.techidaily.com/c76014f183cb941dddc5e361ad7d0edd6dead041e
 
 ![color correction](https://images.wondershare.com/filmora/guide/1-action-cam-tool-fix-entrance.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2:** Color Tuning. Now you need to choose the Color Tab on the left of your control panel. Here you will be able to drag the individual slider so as to alter the contrast, brightness, tint, vignette and saturation.
 
 ![correct gopro footage color](https://images.wondershare.com/filmora/article-images/color-corretion-in-gopro-studio-3.jpg)
 
  The compare button located on the top right lets you check all the segments before and after the correction simultaneously. While the Reset button ![color-tuning-reset-button](https://images.wondershare.com/filmora/guide/color-tuning-reset-button.png) would allow you to clear all the color corrections anytime.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Save and Share- Once the edit is finished you need to hit the Export button in order to save the edited clip as MOV or MP4 format. You can also alter the video res and the frames per sec. Now just hit the OK button to start the export.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Export](https://images.wondershare.com/filmora/guide/8-action-cam-tool-export.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
@@ -124,4 +125,26 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-clips.techidaily.com/new-2023-how-to-share-twitter-videos-on-whatsapp/"><u>[New] 2023 | How to Share Twitter Videos on WhatsApp?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-future-of-animation-unveiled-selection-of-state-of-the-art-modelling-apps/"><u>[New] 2024 Approved Future of Animation Unveiled Selection of State-of-the-Art Modelling Apps</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-leading-3d-modeling-applications-for-animators/"><u>[New] 2024 Approved Leading 3D Modeling Applications for Animators</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-first-steps-to-faster-film-playback-in-snapchat-for-2024/"><u>[New] First Steps to Faster Film Playback in Snapchat for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-vr-cameras-clash-the-2023-showdown-between-gopro-and-yi/"><u>[New] In 2024, VR Cameras Clash The 2023 Showdown Between GoPro & Yi</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-navigating-text-customization-for-video-content-with-windows-photos-for-2024/"><u>[New] Navigating Text Customization for Video Content with Windows Photos for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-avoid-the-fake-out-maintaining-authenticity-in-likes-for-2024/"><u>[Updated] Avoid the Fake-Out Maintaining Authenticity in Likes for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-navigating-kinemasters-features-and-comparing-to-leading-online-games/"><u>[Updated] In 2024, Navigating KineMaster's Features and Comparing to Leading Online Games</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-step-by-step-guide-to-slow-mo-techniques-on-instagram-reels-for-2024/"><u>[Updated] Step-by-Step Guide to Slow Mo Techniques on Instagram Reels for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/effective-strategies-for-detecting-and-eliminating-mobile-spyware-a-guide/"><u>Effective Strategies for Detecting & Eliminating Mobile Spyware: A Guide</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Samsung Galaxy S23 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-asus-proart-pa-329q-in-focus-the-comprehensive-4k-professional-display-analysis/"><u>In 2024, Asus ProArt PA 329Q in Focus – The Comprehensive 4K Professional Display Analysis</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-expert-picks-top-mac-editors-for-cinema-professionals/"><u>In 2024, Expert Picks Top Mac Editors For Cinema Professionals</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-oppo-f25-pro-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Oppo F25 Pro 5G without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/personal-youtube-broadcasting-with-minimal-subscribers/"><u>Personal YouTube Broadcasting with Minimal Subscribers</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/seamless-multi-device-connectivity-utilizing-a-single-phone-number-across-various-gadgets/"><u>Seamless Multi-Device Connectivity: Utilizing a Single Phone Number Across Various Gadgets</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/steering-clear-of-stereotypes-with-your-youtube-channel-name-for-2024/"><u>Steering Clear of Stereotypes with Your YouTube Channel Name for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-path-of-peacefulness-how-to-gently-dim-music-tracks-for-2024/"><u>The Path of Peacefulness How To Gently Dim Music Tracks for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-honor-magic5-ultimate-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Honor Magic5 Ultimate Location | Dr.fone</u></a></li>
+</ul></div>
 

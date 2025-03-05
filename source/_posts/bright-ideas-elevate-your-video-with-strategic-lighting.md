@@ -1,7 +1,7 @@
 ---
 title: "\"Bright Ideas  Elevate Your Video with Strategic Lighting\""
-date: 2024-07-29T07:20:09.403Z
-updated: 2024-07-30T07:20:09.403Z
+date: 2025-02-12T03:36:59.866Z
+updated: 2025-02-16T02:42:05.219Z
 tags: 
   - screen-recording
   - ai video
@@ -22,9 +22,6 @@ Many people are wondering how to set up lighting for video shooting. While there
 
 Therefore, this article will give you a complete guide on how to set up your lighting to make your videos stand out.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ## Part 1\. How-to Guide
 
 **_1) Preparation_**
@@ -49,25 +46,27 @@ For this tutorial, we will use the Three-Point Lighting technique:
 
 ##### Step1 Set the Key Light
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
 ##### Step2 Set the Fill Light
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
 
 ##### Step3 Set the Backlight
 
 ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
 
@@ -81,6 +80,10 @@ Then, we also have a LED ring light that shines toward the camera. The light add
 
 ![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
 
 ![other small led lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-6.jpg)
@@ -89,16 +92,10 @@ After setting up all the lighting above, you can take a look at the comparison b
 
 **Using Key Light only**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ![using key light only](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-7.jpg)
 
 **Using Key Light + Fill + Backlight**
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
 
 **_3) Pro Tips: The light setting_**
@@ -108,8 +105,13 @@ We usually set the lights around 50% brightness and a color temperature of 5600K
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Summary
 
 Hopefully, you learned something about lighting by taking a look at our setup. If you want to know and learn about other lighting tutorials, don’t hesitate to let us know in the comments.
@@ -142,4 +144,24 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-essential-gadgets-amplify-online-videos/"><u>[New] Essential Gadgets Amplify Online Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-strategies-for-longer-use-of-gopro-power-source/"><u>[New] In 2024, Strategies for Longer Use of GoPro Power Source</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-clips-captured-a-no-cost-screencasting-tutorial/"><u>[New] YouTube Clips, Captured A No-Cost Screencasting Tutorial</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-action-in-full-hd-top-7-camcorders-for-thrills/"><u>[Updated] 2024 Approved Action in Full HD Top 7 Camcorders for Thrills</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-becoming-an-insta-star-in-a-flash-top-15-insider-tactics-that-work-wonders-for-rapid-fame-growth-for-2024/"><u>[Updated] Becoming an Insta Star in a Flash Top 15 Insider Tactics That Work Wonders for Rapid Fame Growth for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-navigating-youtubes-featured-slot-a-detailed-explanimation/"><u>[Updated] In 2024, Navigating YouTube's Featured Slot A Detailed Explanimation</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-essential-guide-to-trimming-videos-in-your-windows-device/"><u>[Updated] In 2024, The Essential Guide to Trimming Videos in Your Windows Device</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-visual-hooks-essential-steps-in-podcast-design/"><u>[Updated] In 2024, Visual Hooks Essential Steps in Podcast Design</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-introductory-tips-gradual-amplification-techniques/"><u>[Updated] Introductory Tips Gradual Amplification Techniques</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-top-7-tools-for-3d-animators-creation/"><u>2024 Approved Top 7 Tools for 3D Animator's Creation</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/comet-conveyance-corner-cosmic-data-rescue-hub/"><u>Comet Conveyance Corner - Cosmic Data Rescue Hub</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-nubia-red-magic-9-pro-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Nubia Red Magic 9 Pro</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-nubia-z50-ultra-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Nubia Z50 Ultra</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-obs-live-video-to-insta-platform/"><u>In 2024, OBS Live Video to Insta Platform</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-must-have-3d-video-editing-software-for-creators-for-2024/"><u>New Must-Have 3D Video Editing Software for Creators for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/quick-file-formatting-magic-turning-srt-into-txt-in-minutes-for-2024/"><u>Quick File Formatting Magic Turning SRT Into TXT in Minutes for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solution-guide-for-persistent-problems-of-dragon-age-origins-freezing-on-windows-10-pcs/"><u>Solution Guide for Persistent Problems of Dragon Age: Origins Freezing on Windows 10 PCs</u></a></li>
+</ul></div>
 

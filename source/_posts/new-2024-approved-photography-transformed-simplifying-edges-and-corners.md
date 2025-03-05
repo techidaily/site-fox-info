@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Photography Transformed  Simplifying Edges and Corners\""
-date: 2025-02-01T23:19:32.070Z
-updated: 2025-02-03T23:30:27.893Z
+date: 2025-02-10T22:05:09.522Z
+updated: 2025-02-16T07:25:35.663Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,10 @@ After creating the new document, open the image that you want to curve. You may 
 
 ![place image in photoshop](https://images.wondershare.com/filmora/article-images/2022/09/place-image-in-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step3Warp the Image
 
 Now we'll curve the image using the Warp Tool. Select the Warp Tool by clicking and holding on the Transform Tool in the toolbar. The Warp Tool is located at the bottom of the Transform Tool's fly-out menu. Alternatively, you may press Ctrl+T or Command+T on your keyboard to open the Transform Tool's fly-out menu and then select the Warp Tool from there.
@@ -52,7 +56,7 @@ Play around with the settings in the options bar. There are quite a few differen
 ![change image height photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-image-height-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 20% **Horizontal Distortion** makes one side of the image appear larger than the other. This is what my photo looks like at 20%.
@@ -60,31 +64,23 @@ Play around with the settings in the options bar. There are quite a few differen
 ![change horizontal distortion photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-horizontal-distortion-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Vertical Distortion** makes the image look as if it's leaning backward.
 
 ![verticle distortion image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/verticle-distortion-image-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The **Bend Direction** option rotates the angle of the bend.
 
 ![bend direction image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/bend-direction-image-photoshop.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Flip any of these effects in the opposite direction by placing a negative sign in front of the percentage. Here's -20% in the **Bend** box with a vertical bend.
 
 ![flip effect image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/flip-effect-image-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step4Save the Image
@@ -92,6 +88,10 @@ Flip any of these effects in the opposite direction by placing a negative sign i
 Once you're happy with the way your image looks, go to File > Save As in the menu bar or press Ctrl+Shift+S or Command+Shift+S on your keyboard. Choose a file format and location to save your image and click Save. And that's it! You've successfully curved
 
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -127,22 +127,24 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-dissecting-the-huawei-p10s-battery-life-and-efficiency/"><u>[New] In 2024, Dissecting the Huawei P10’s Battery Life & Efficiency</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-find-the-best-8-spots-for-free-3d-text-psd-downloads/"><u>[New] In 2024, Find the Best 8 Spots for FREE 3D Text PSD Downloads</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-premium-android-vr3d-player-selection-for-2024/"><u>[New] Premium Android VR/3D Player Selection for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-prime-setup-the-finest-4k-dslr-shoulder-rigs-reviewed/"><u>[New] Prime Setup The Finest 4K DSLR Shoulder Rigs Reviewed</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-streamline-photos-via-iphone-size-adjustment-for-2024/"><u>[New] Streamline Photos via iPhone Size Adjustment for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-storage-sizing-film-duration-in-gb/"><u>[Updated] 2024 Approved Storage Sizing Film Duration in GB</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-easy-ways-to-screen-record-instagram-story/"><u>[Updated] Easy Ways to Screen Record Instagram Story</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-eye-on-video-the-premier-cameras-excellence-for-2024/"><u>[Updated] Eye on Video The Premier Cameras Excellence for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-top-5-high-definition-screens-for-ps5/"><u>[Updated] In 2024, Top 5 High-Definition Screens for PS5</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-no-cost-creative-corner-finding-the-finest-tiktok-backgrounds/"><u>In 2024, No-Cost Creative Corner Finding the Finest TikTok Backgrounds</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/mastering-the-bios-menu-a-comprehensive-approach-to-overcoming-post-setup-issues/"><u>Mastering the BIOS Menu: A Comprehensive Approach to Overcoming Post-Setup Issues</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/no-money-no-problem-free-pinterest-video-extractors-for-2024/"><u>No Money? No Problem! Free Pinterest Video Extractors for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/simplify-zoom-a-comprehensive-guide-to-blurry-borders/"><u>Simplify Zoom A Comprehensive Guide to Blurry Borders</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/the-moto-g-power-smashes-expectations-in-depth-analysis-of-stellar-efficiency-and-long-lasting-battery/"><u>The Moto G Power Smashes Expectations: In-Depth Analysis of Stellar Efficiency & Long-Lasting Battery</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/tips-menyimpan-kegiatan-lama-dalam-aplikasi-wechat-dengan-keamanan-terbesarkan/"><u>Tips Menyimpan Kegiatan Lama Dalam Aplikasi WeChat Dengan Keamanan Terbesarkan</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/unlocking-the-power-of-authenticity-in-testimonial-videography-for-2024/"><u>Unlocking the Power of Authenticity in Testimonial Videography for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-deep-dive-android-edition-of-adobe-lightroom-review/"><u>[New] 2024 Approved Deep Dive Android Edition of Adobe Lightroom Review</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-posting-a-youtube-video-via-insta-stories-a-step-by-step-guide/"><u>[New] In 2024, Posting a YouTube Video via Insta Stories A Step-by-Step Guide</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-unlocking-tiktoks-photoshop-magic-effortlessly-for-2024/"><u>[New] Unlocking TikTok's Photoshop Magic Effortlessly for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-discovering-vimeo-home-for-high-quality-films/"><u>[Updated] In 2024, Discovering Vimeo Home for High-Quality Films</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-construct-humor-memes-via-adobe/"><u>2024 Approved Construct Humor Memes via Adobe</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-how-to-quickly-stream-spotify-audio-with-integrity/"><u>2024 Approved How to Quickly Stream Spotify Audio with Integrity</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-innovative-investigation-vll-on-app-standards/"><u>2024 Approved Innovative Investigation VLL on App Standards</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-key-players-in-top-6-4k-youtube-to-mp3-conversion-software/"><u>2024 Approved Key Players in Top 6 4K YouTube-to-MP3 Conversion Software</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-learning-photography-on-the-go-the-lunapic-approach/"><u>2024 Approved Learning Photography on the Go The LunaPic Approach</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-macos-sierra-switching-back-to-os-x-el-capitan/"><u>2024 Approved MacOS Sierra Switching Back To OS X El Capitan</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-streamlining-iphone-video-fusion-processes/"><u>2024 Approved Streamlining iPhone Video Fusion Processes</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-the-final-word-on-powerdirector-a-complete-review/"><u>2024 Approved The Final Word on PowerDirector A Complete Review</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/apple-unveils-revolutionary-ai-image-creation-tool-magic-in-your-pocket/"><u>Apple Unveils Revolutionary AI Image Creation Tool: Magic in Your Pocket!</u></a></li>
+<li><a href="https://fox-info.techidaily.com/backtracking-live-on-twitch-fifteen-ingenious-ways-to-revamp-streams/"><u>Backtracking Live on Twitch Fifteen Ingenious Ways to Revamp Streams</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-lava-yuva-3-pro-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Lava Yuva 3 Pro To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-discover-the-best-fee-free-musical-backdrops-for-chuckle-filled-projects-for-2024/"><u>New Discover the Best Fee-Free Musical Backdrops for Chuckle-Filled Projects for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/stuck-at-android-system-recovery-of-infinix-note-30-pro-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Infinix Note 30 Pro ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/tech-sector-transformation-how-vr-and-digital-twins-facilitate-remote-operations-as-explained-by-zdnet/"><u>Tech Sector Transformation: How VR and Digital Twins Facilitate Remote Operations, as Explained by ZDNET</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/voicecommand-mastery-with-android-and-gpt-synergy/"><u>VoiceCommand Mastery with Android & GPT Synergy</u></a></li>
 </ul></div>
 

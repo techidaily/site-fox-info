@@ -1,7 +1,7 @@
 ---
 title: "\"Cinema's Craftsmanship  The Best Camera Tricks & Techniques - '24 Edition for 2024\""
-date: 2024-07-29T07:19:46.848Z
-updated: 2024-07-30T07:19:46.848Z
+date: 2025-02-09T09:45:38.545Z
+updated: 2025-02-15T21:27:44.446Z
 tags: 
   - screen-recording
   - ai video
@@ -34,6 +34,10 @@ Step 1 Attach your phone to the side of a door using duct tape or any strong tap
 
 ![smooth camera movement](https://images.wondershare.com/filmora/article-images/2022/12/smooth-camera-movement.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 2 Now open and close the door to get smooth camera movement.
 
 ## Tip 2\. DIY Light Focus and Control
@@ -56,15 +60,8 @@ Step 4 Plug in the LED strip and use this LED Panel for a broader light source.
 
 Alright! Let's check out how it looks in the video below.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![diy led panel](https://images.wondershare.com/filmora/article-images/2022/12/diy-led-panel.gif)
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### DIY Light Flag
 
 Black color does not reflect light, so a black fabric can be used to make a DIY Light Flag. Here is a step-by-step guide to creating a light flag at home.
@@ -121,9 +118,6 @@ Step 3 Use the reflector to redirect light to your object.
 
 There is a GIF attached below to understand the steps visually.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![diy light reflector](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-reflector.gif)
 
 ## Tip 3\. DIY Light Diffuser
@@ -131,8 +125,9 @@ There is a GIF attached below to understand the steps visually.
 In professional productions, light diffusers are frequently used to soften, level out the lighting, and lessen the harshness of shadows.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Diffuse Lights With a Desk Mat
 
 You can diffuse the light using a transparent desk mat if you think there is too much light.
@@ -149,18 +144,19 @@ Step 3 Use this diffuser to reduce the intensity of light.
 
 For a better understanding of the steps, watch the GIF attached below.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ![diy light diffuser](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-diffuser.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Tip 4\. Reveal Movement and 180° Presentation
 
 The most commonly used cinematic movements are the reveal and 180° presentation movements. A gimbal is needed to record these movements.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Reveal Movement
 
@@ -178,14 +174,12 @@ Step 4 Locking mode is best for recording reveal movement shots.
 
 Here is a video showing how to record reveal movement.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![reveal movement](https://images.wondershare.com/filmora/article-images/2022/12/reveal-movement.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 180° Presentation Movement
 
 This Movement gives the subject a general look and displays more details of the surroundings and the subject.
@@ -202,14 +196,16 @@ Step 3 Move slowly to the other side of the subject while recording.
 
 A sample video attached below shows how to record 180 presentation movements.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ![180 presentation movement](https://images.wondershare.com/filmora/article-images/2022/12/180-presentation-movement.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tip 5\. Create a Barrel Roll Shot
 
 A barrel roll shot is one of the most advanced and creative camera movements. A gimbal is required to produce a Barrel roll shot. But you can use a power drill and your phone to record this Movement.
@@ -229,6 +225,10 @@ Step 4 Turn on the power drill at low speed and record the barrel roll shot.
 The video attached below will help you to understand these steps.
 
 ![barrel roll shot](https://images.wondershare.com/filmora/article-images/2022/12/barrel-roll-shot.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -264,4 +264,24 @@ After filming the videos, edit them using [Wondershare Filmora](https://tools.te
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-essential-chrome-sketching-apps-for-every-aspiring-artist/"><u>[New] In 2024, Essential Chrome Sketching Apps for Every Aspiring Artist</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-must-try-tiktok-video-ideas-drawing-from-anime-worlds/"><u>[New] In 2024, Must-Try TikTok Video Ideas Drawing From Anime Worlds</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-insta-perfection-the-leading-ten-grid-creation-software-listed-for-2024/"><u>[New] Insta-Perfection The Leading Ten Grid Creation Software Listed for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-action-packed-angling-best-fishing-cameras-ranked/"><u>[Updated] 2024 Approved Action-Packed Angling Best Fishing Cameras Ranked</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-from-mundane-to-magical-a-guide-to-chromatic-brilliance-for-2024/"><u>[Updated] From Mundane to Magical A Guide to Chromatic Brilliance for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-from-sound-to-web-crafting-a-standout-podcast-rss-feed-for-2024/"><u>[Updated] From Sound to Web Crafting a Standout Podcast RSS Feed for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-navigating-to-youtube-comment-sections-swiftly/"><u>2024 Approved Navigating to YouTube Comment Sections Swiftly</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-realme-c67-4g-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Realme C67 4G to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-mp3-to-video-stream-mp3-to-youtube-in-3-easy-steps/"><u>In 2024, MP3 to Video Stream MP3 to YouTube in 3 Easy Steps</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-the-ultimate-guide-to-design-and-build-your-own-4k-editing-system/"><u>In 2024, The Ultimate Guide to Design and Build Your Own 4K Editing System</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-unveiling-advanced-methods-to-harness-screencapture-tools/"><u>In 2024, Unveiling Advanced Methods to Harness ScreenCapture Tools</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/last-minute-october-deals-for-gamers-save-up-to-1k-during-the-prime-day-sale-zdnet-newsletter/"><u>Last-Minute October Deals for Gamers: Save Up to $1K During the Prime Day Sale | ZDNET Newsletter</u></a></li>
+<li><a href="https://fox-info.techidaily.com/premier-tools-upload-and-convert-vids-for-tweeting/"><u>Premier Tools Upload & Convert Vids for Tweeting</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/scripting-success-how-i-utilized-chatgpt-for-my-podcast-creation-journey/"><u>Scripting Success: How I Utilized ChatGPT for My Podcast Creation Journey</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/transforming-your-archive-adding-instagram-filters-to-old-media-for-2024/"><u>Transforming Your Archive Adding Instagram Filters to Old Media for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/unleash-your-vision-the-best-tiktok-editing-guide-for-2024/"><u>Unleash Your Vision The Best TikTok Editing Guide for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/unlocking-the-value-in-vcplusplus-release-packages/"><u>Unlocking the Value in VC++ Release Packages</u></a></li>
+</ul></div>
 

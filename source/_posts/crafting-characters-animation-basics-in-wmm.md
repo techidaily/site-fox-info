@@ -1,7 +1,7 @@
 ---
 title: "\"Crafting Characters  Animation Basics in WMM\""
-date: 2024-07-29T07:18:59.730Z
-updated: 2024-07-30T07:18:59.730Z
+date: 2025-02-10T08:16:02.665Z
+updated: 2025-02-16T02:50:26.515Z
 tags: 
   - screen-recording
   - ai video
@@ -22,9 +22,6 @@ Wondering how to make animation in Windows Movie Maker? As storytelling is the f
 
 Animated video is a rich, captivating medium that will make your main arguments stand out. You can use Windows Movie Maker effects as it has far lower resource needs than you may anticipate while yet providing all the advantages of a visual medium. The difficulty is in turning that central idea into a direct, concise tale that will hold the attention of your audience. Feel free to try out various combinations while using the Windows Movie Maker animation tool since you can always quickly delete an effect after applying it. Learn more about the best animation video maker software for Windows in this guide.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ## Part 1\. Steps to Create Animation with Windows Movie Maker
 
 You don't need any technological expertise to produce picture slideshows or home movies with Movie Maker. By using transitions, pan and zoom, and other visual effects, you may give them a more professional appearance and feel. You've decided to create an animated video for your company, so let's get started. Is it still difficult to understand? Be at ease. It's simpler than you would imagine to make an animated video. In this video, we'll go through how to include animations into a Movie Maker project. The Windows Movie Maker instructions for making your own animated movie are listed below.
@@ -43,27 +40,22 @@ On your PC, launch Windows Movie Maker. Windows Movie Maker, however, has to be 
 
 If you wish to clip off a section, go to "Edit" under "Video Tools" and choose the "Split" option. Depending on where you place the cursor during the section, the software will divide it into two halves. If you want to remove certain snippets, just touch the clip to reveal the context menu and choose "Remove" or "Delete" from the keyboard.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![preview video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/preview-video-movie-maker.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step3Open the Animation Tab
 
 You may add two distinct types of animations—Transitions and Pan and Zoom—to video clips or photographs using the Animations window on the ribbon. The dropdown menu next to "Speed" in the "Edit" tab may be expanded to change the speed of a video clip. The 'Duration' dropdown menu allows you to choose how long a certain image will be shown in a movie.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![animation tab movie maker](https://images.wondershare.com/filmora/article-images/2022/09/animation-tab-movie-maker.jpg)
 
 ##### Step4Add Transitions
 
 Between two multimedia portions, a transition effect may be added. In the "Animations" section, there are many different transitions available, including dissolves, patterns, and forms. The transition will be included at the start of the chosen medium. You may alter the effect's duration by writing or choosing a new time frame from the dropdown menu next to "Duration."
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ![add transitions movie maker](https://images.wondershare.com/filmora/article-images/2022/09/add-transitions-movie-maker.jpg)
 
 ##### Step5Save the Video
@@ -72,10 +64,6 @@ When a transition is applied, a washed-out diagonal zone on the clip in the time
 
 ![save animation video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/save-animation-video-movie-maker.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ## Part 2\. Movie Maker Alternative to Add Animations
 
 You could encounter certain difficulties as a brand while creating an animated film using Windows Movie Maker for the first time. Despite all the modifications, making animations might still seem like a difficult effort. Most organizations find it difficult to readily include animations into their video marketing plan due to the intricacy of animated videos, among other factors. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) ought to be your only option if you want to produce something extensive, thorough, in-depth, and detailed.
@@ -101,6 +89,10 @@ Filmora helps you create your text animation using the controller window as seen
 ##### Step4Export the Project
 
 The software's Preview window also allows you to preview the animation you've selected before adding it to the timeline with a few simple drag-and-drop actions. After finishing the production and editing of the instructional video, you may save it for distribution on social media. You may choose to save the document as an MP4, WMV, AVI, MOV, or even a GIF file.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3\. Related FAQs about Windows Movie Maker
 
@@ -122,6 +114,10 @@ If you wish to clip off a section, go to "Edit" under "Video Tools" and choose t
 
 ![preview video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/preview-video-movie-maker.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step3Open the Animation Tab
 
 You may add two distinct types of animations—Transitions and Pan and Zoom—to video clips or photographs using the Animations window on the ribbon. The dropdown menu next to "Speed" in the "Edit" tab may be expanded to change the speed of a video clip. The 'Duration' dropdown menu allows you to choose how long a certain image will be shown in a movie.
@@ -138,14 +134,12 @@ Between two multimedia portions, a transition effect may be added. In the "Anima
 
 When a transition is applied, a washed-out diagonal zone on the clip in the timeline indicates where the transition starts and finishes. Additionally, you have a choice in the sequence in which the effects are used. This may change how the movie is finally shown depending on the Effects, you choose. Once you're done, click Apply.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ![save animation video movie maker](https://images.wondershare.com/filmora/article-images/2022/09/save-animation-video-movie-maker.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2\. Movie Maker Alternative to Add Animations
 
 You could encounter certain difficulties as a brand while creating an animated film using Windows Movie Maker for the first time. Despite all the modifications, making animations might still seem like a difficult effort. Most organizations find it difficult to readily include animations into their video marketing plan due to the intricacy of animated videos, among other factors. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) ought to be your only option if you want to produce something extensive, thorough, in-depth, and detailed.
@@ -171,6 +165,10 @@ Filmora helps you create your text animation using the controller window as seen
 ##### Step4Export the Project
 
 The software's Preview window also allows you to preview the animation you've selected before adding it to the timeline with a few simple drag-and-drop actions. After finishing the production and editing of the instructional video, you may save it for distribution on social media. You may choose to save the document as an MP4, WMV, AVI, MOV, or even a GIF file.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3\. Related FAQs about Windows Movie Maker
 
@@ -208,4 +206,22 @@ Simple movies may be easily made using Windows Live Movie Maker. With Windows Vi
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-optimal-choices-foremost-audio-craftsmen-for-iphones/"><u>[New] 2024 Approved Optimal Choices Foremost Audio Craftsmen for iPhones</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/oost-engagement-crafting-effective-thumbnails/"><u>[New] Boost Engagement Crafting Effective Thumbnails</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-live-photos-to-videos-a-cinematic-experience/"><u>[New] Live Photos to Videos A Cinematic Experience</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-seamlessly-shift-focus-with-picart-clear-borders/"><u>[Updated] 2024 Approved Seamlessly Shift Focus with PicArt Clear Borders</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-proven-techniques-for-locating-luxe-pexel-pictures/"><u>2024 Approved Proven Techniques for Locating Luxe Pexel Pictures</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-revealed-secrets-top-15-stabilizers-and-holders-for-gopro/"><u>2024 Approved Revealed Secrets Top 15 Stabilizers & Holders for GoPro</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-ultimate-guide-to-selecting-8-best-instagram-scheduler-tools/"><u>2024 Approved The Ultimate Guide to Selecting 8 Best Instagram Scheduler Tools</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-top-tips-for-optimal-online-vhs-photo-enhancement/"><u>2024 Approved Top Tips for Optimal Online VHS Photo Enhancement</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024s-video-mastery-in-high-definition-cameras/"><u>2024'S Video Mastery in High-Definition Cameras</u></a></li>
+<li><a href="https://facebook.techidaily.com/bypassing-ios-app-tracking-becomes-common-trend/"><u>Bypassing iOS App Tracking Becomes Common Trend</u></a></li>
+<li><a href="https://windows11.techidaily.com/correcting-the-windows-device-abandonment-issue/"><u>Correcting the Windows Device Abandonment Issue</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/demystifying-the-publics-vllo-interpretation/"><u>Demystifying the Public's VLLO Interpretation</u></a></li>
+<li><a href="https://fox-info.techidaily.com/greatest-20-open-source-copy-free-pubg/"><u>Greatest 20 Open Source, Copy-Free PUBG</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-art-of-magnification-in-roblox-worlds/"><u>In 2024, The Art of Magnification in Roblox Worlds</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/update-now-enhanced-performance-with-new-usb-32-ethernet-driver-software-on-windows-systems/"><u>Update Now: Enhanced Performance with New USB 3.^2 Ethernet Driver Software on Windows Systems</u></a></li>
+</ul></div>
 

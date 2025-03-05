@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Turn Your Image Brightness Upside Down  A Tutorial for 2024\""
-date: 2025-01-28T18:54:36.940Z
-updated: 2025-02-03T21:47:55.456Z
+date: 2025-02-11T19:45:51.563Z
+updated: 2025-02-16T07:01:46.349Z
 tags: 
   - screen-recording
   - ai video
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/69ee34b64cf92db1f2232edf38c3580f65ba5a6c1
 
 During the age of analog photography, the image negative was one of the most important artifacts for photographers, because it enabled them to reproduce a picture as many times as they wanted. Years later photographers invert colors in photos for mostly aesthetical reasons since only a small number of photographers still take photos with analog cameras. Regardless of the type of camera you’re using, inverting colors in a photo is a straightforward process that doesn’t require too much effort. In this article, we are going to take you through some of the best options on Mac and PC computers, as well as Android phones and iPhones that let you invert colors in just a few easy steps. So, let’s dive in.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Make Image Negative of a Digital Photo?
 
 The Invert option is commonly used to invert a scanned film negative to color, but this doesn’t’ mean that you can’t use this effect in very different contexts. However, the extensive and unselective use of this effect can ruin a perfect photo. Here’s how you can invert colors in your photos.
@@ -43,10 +39,6 @@ The Invert option is commonly used to invert a scanned film negative to color, b
 **Compatibility:** Windows
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/ms-paint-invert-color.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Open the photo you’d like to invert with MS Paint, and then choose the **Select All option** from the **Select Menu**. **Right-click** on the picture and click on the **Invert Color** option. The colors in the image will be automatically inverted, so you can then head over to the **Save As submenu** in the **File menu** to select the file format of the new photo.
 
@@ -62,12 +54,16 @@ Besides creating image negatives, the Preview app lets you convert image files a
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color-original.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Clicking on the **Adjust Color feature** will bring up the color adjustment panel that contains **Black Level and White Level** sliders. To invert the colors in the photo you have to drag the **Black Level slider to the right** and the **White Level Slider to the left.**
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can experiment with the values you assign to each of these sliders in order to get a more visually pleasing result.
@@ -90,10 +86,6 @@ The platform’s homepage contains a number of categories of tools such as **Col
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/imageconverter-tjshome.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 In addition to a rich selection of effects you can apply to images, tjshome also lets you browse through **Funny Dumb Laws, Famous Quotes or Funny Status Messages** categories. Click on the **Image Filter** category in order to view all effects the platform offers. Make sure that the **Reverse Colors/Negate effect** is selected, and then scroll further down the page to **upload the photo you’d like to invert.** When the upload process is completed, you can check the Make **Public checkbox** if you want to add your photo to the tjshome’s gallery. Click on the **Submit** button, and then proceed to save the picture to your computer. This platform lets you invert images in three easy steps, but if you want to have more control over the process, it is better to use a more powerful photo editor.
 
 #### 5. Using [Adobe Photoshop](https://www.adobe.com/products/photoshop.html)’s Invert Option
@@ -103,6 +95,10 @@ In addition to a rich selection of effects you can apply to images, tjshome also
 **Compatibility:** macOS, Windows
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/ps-convert-color.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 After you open a photo in Adobe Photoshop, you can invert it in just a few clicks. **Expand the Image menu** and the go-to **Adjustments submenu** where you can find the **Invert option**. Alternatively, you can use the **CTRL+I** shortcut if you are a PC user or a **Command+I** if you are using a Mac computer. Moreover, Photoshop lets you **mask parts of a photo** which enables you to precisely define an area of an image you’d like to invert. Other photo editing tools like **Curves, Brightness/Contrast or Photo Filter** can make an image with inverted colors look more convincing. Keep in mind that working with multiple layers requires a lot of patience because failing to mask an object properly can produce some unwanted side issues.
 
@@ -130,6 +126,10 @@ Creating a negative of photos you take with your phone can be fun, so why not us
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/negative-photo-effects-hd.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Inverting the colors in a photo with Negative Photo Effect HD is easy since you just have to select a photo from the gallery or use the iPhone’s camera to snap a new one and apply the **negative photo effect**. You can highlight the area of the photo you’d like to invert with your finger or use some of the app’s photo editing tools to enhance the colors in the negative photo. You can save or share the photos you created, but if you use the free version of the app your photos will be watermarked unless you purchase the **Free Ads and Watermark package** for **$2.99.**
 
 **Conclusion**
@@ -139,7 +139,7 @@ Inverting colors in a photo is not a complicated process, but finding creative w
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -167,18 +167,17 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-utilizing-skys-bounty-to-brighten-indoors/"><u>[New] In 2024, Utilizing Sky's Bounty to Brighten Indoors</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-who-are-you-unraveling-youtuber-personalities-in-6-quizzes/"><u>[New] In 2024, Who Are You? Unraveling YouTuber Personalities in 6 Quizzes</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-master-video-transitions-and-effects-using-gopro-studio-protips/"><u>[Updated] Master Video Transitions and Effects Using GoPro Studio ProTips</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-the-ultimate-selection-of-free-cad-applications/"><u>Discover the Ultimate Selection of Free CAD Applications</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/humor-hub-for-apple-devices-for-2024/"><u>Humor Hub for Apple Devices for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-basic-understanding-of-e-story-crafting/"><u>In 2024, Basic Understanding of E-Story Crafting</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-vivo-x-fold-2-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Vivo X Fold 2</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-the-power-of-words-in-podcast-summaries/"><u>In 2024, The Power of Words in Podcast Summaries</u></a></li>
-<li><a href="https://fox-info.techidaily.com/introduce-audible-elements-seamlessly-to-premiere-pro-for-2024/"><u>Introduce Audible Elements Seamlessly to Premiere Pro for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/mc-base-planning-essentials-and-examples/"><u>MC Base Planning Essentials & Examples</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/overcoming-common-errors-smooth-downloading-and-setup-of-age-of-empires-iv/"><u>Overcoming Common Errors: Smooth Downloading & Setup of Age of Empires IV</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/save-big-now-get-windows-11-professional-at-a-staggering-discount-of-88/"><u>Save Big Now: Get Windows 11 Professional at a Staggering Discount of 88%</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-nokia-c02-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Nokia C02 Phone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-enhancing-virtual-collaboration-essential-strategies-for-efficient-zoom-chats-for-2024/"><u>[New] Enhancing Virtual Collaboration Essential Strategies for Efficient ZOOM Chats for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-launching-joining-and-scheduling-zoom-calls-made-simple-for-android-users/"><u>[New] In 2024, Launching, Joining, and Scheduling Zoom Calls Made Simple for Android Users</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-5-effective-ways-of-resizing-your-igtv-videos/"><u>[Updated] 2024 Approved 5 Effective Ways of Resizing Your IGTV Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-innovative-script-visionaries-corner-for-2024/"><u>[Updated] Innovative Script Visionaries Corner for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/10-android-collage-innovations-to-elevate-creativity-for-2024/"><u>10 Android Collage Innovations to Elevate Creativity for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/best-entry-level-camera-reviews-2024-for-beginners/"><u>Best Entry-Level Camera Reviews 2024 | for Beginners</u></a></li>
+<li><a href="https://fox-info.techidaily.com/capture-clarity-complimentary-photo-refining-app/"><u>Capture Clarity - Complimentary Photo Refining App</u></a></li>
+<li><a href="https://fox-info.techidaily.com/case-study-approach-learning-from-successful-market-research-examples-for-2024/"><u>Case Study Approach Learning From Successful Market Research Examples for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/dial-up-your-mobile-experience-vr-and-panoramic-videos-on-android/"><u>Dial Up Your Mobile Experience VR & Panoramic Videos on Android</u></a></li>
+<li><a href="https://fox-info.techidaily.com/discovering-metaverse-8-premium-vr-eyewear-selections-for-2024/"><u>Discovering Metaverse 8 Premium VR Eyewear Selections for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/why-snapchats-ai-goes-beyond-playful-interaction/"><u>Why Snapchat’s AI Goes Beyond Playful Interaction</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/wiederherstellung-von-daten-aus-einer-formatierten-ntfs-partition-schritt-fur-schritt-anleitung/"><u>Wiederherstellung Von Daten Aus Einer Formatierten NTFS-Partition: Schritt-Für-Schritt-Anleitung</u></a></li>
 </ul></div>
 

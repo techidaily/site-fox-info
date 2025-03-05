@@ -1,7 +1,7 @@
 ---
 title: "Safety Features Evaluated in Syma X8C for 2024"
-date: 2025-01-28T20:03:01.170Z
-updated: 2025-02-03T19:07:47.423Z
+date: 2025-02-13T21:40:40.579Z
+updated: 2025-02-15T16:33:07.440Z
 tags: 
   - screen-recording
   - ai video
@@ -37,10 +37,6 @@ thumbnail: https://thmb.techidaily.com/d10946fd797c909f3b766507ccc413e54b73231c6
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Pros and Cons of Syma X8C
 
 **Pros:**
@@ -64,10 +60,6 @@ thumbnail: https://thmb.techidaily.com/d10946fd797c909f3b766507ccc413e54b73231c6
 
  There are loads of pros as well as cons related Syma H8C device but they appear different to various kinds of users. Professionals may be worried about its camera quality whereas beginners will find its controls little complex. But in case if you need something at low price with all acceptable features then Syma H8C is really a good choice for your needs.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Complete Review
 
 #### 1. Basic Specs Info
@@ -87,7 +79,7 @@ thumbnail: https://thmb.techidaily.com/d10946fd797c909f3b766507ccc413e54b73231c6
 ![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  If we consider the appearance then it looks close to the Phantom drone but no doubt to say that few variations exists and they make it unique. The overall dimension of this drone unit is 20x20x6.5 whereas maximum weight goes up to 450 grams thus it cannot be called as a tiny drone. When weighted with camera and prop guards, then this unit has overall weight of 600 grams. This dimension and weight makes this drone much stable in air.
@@ -107,7 +99,7 @@ thumbnail: https://thmb.techidaily.com/d10946fd797c909f3b766507ccc413e54b73231c6
 ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
@@ -116,10 +108,14 @@ thumbnail: https://thmb.techidaily.com/d10946fd797c909f3b766507ccc413e54b73231c6
 
 ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -127,6 +123,10 @@ thumbnail: https://thmb.techidaily.com/d10946fd797c909f3b766507ccc413e54b73231c6
  By considering all above factors, we must say that Syma X8C is a well designed drone unit that can serve with much better results as an entry level aerial shoot recorder. As the price tag keeps it below $100 range so beginners find it most affordable for their learning needs and the gimbal protection leads to highly stable footage that can be shared on social media sites to impress friends. The control mechanisms is rated as highly responsive so will all these satisfactory features it becomes a must buy product for your air flight adventures.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -153,24 +153,21 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-elevate-your-short-form-content-top-10-edits-for-iosandroid/"><u>[New] 2024 Approved Elevate Your Short-Form Content Top 10 Edits for iOS/Android</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-become-an-iconic-crafter-kapwings-meme-toolkit-for-2024/"><u>[New] Become an Iconic Crafter Kapwing's Meme Toolkit for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-from-novice-to-expert-creating-your-avatar-with-confidence-for-2024/"><u>[New] From Novice to Expert Creating Your Avatar with Confidence for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-digital-imagery-standards-rgb-and-its-successor-srgb/"><u>[New] In 2024, Digital Imagery Standards Rgb & Its Successor, Srgb</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-endless-buffer-fix-for-frozen-videos-from-photo-booth/"><u>[New] In 2024, Endless Buffer Fix for Frozen Videos From Photo Booth</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-essential-guide-to-21-hdmi-monitors-comparative-analysis/"><u>[New] In 2024, Essential Guide to 2.1 HDMI Monitors - Comparative Analysis</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-soaring-with-mi-drone-an-in-depth-4k-study/"><u>[New] Soaring with MI Drone - An In-Depth 4K Study</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-key-top-5-agile-camcorders-for-adventure-selections/"><u>[Updated] 2024 Approved Key Top 5 Agile Camcorders for Adventure Selections</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-command-line-magic-opening-srt-for-windows-macos/"><u>[Updated] Command Line Magic Opening SRT for Windows, MacOS</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-navigate-away-from-bot-influenced-metrics/"><u>[Updated] In 2024, Navigate Away From Bot-Influenced Metrics</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-deep-dive-into-youtube-content-ownership-laws/"><u>2024 Approved A Deep Dive Into YouTube Content Ownership Laws</u></a></li>
-<li><a href="https://apple-account.techidaily.com/a-step-by-step-guide-to-finding-your-apple-id-on-your-apple-iphone-se-2022-by-drfone-ios/"><u>A Step-by-Step Guide to Finding Your Apple ID On Your Apple iPhone SE (2022)</u></a></li>
-<li><a href="https://win-able.techidaily.com/diagnosing-and-repairing-the-common-problems-with-paradox-launcher-not-working/"><u>Diagnosing and Repairing the Common Problems with Paradox Launcher Not Working</u></a></li>
-<li><a href="https://win-exclusive.techidaily.com/efficient-repackaging-techniques-utilizing-snapshots-vs-psappdeploytoolkit/"><u>Efficient Repackaging Techniques: Utilizing Snapshots Vs. PSAppDeployToolkit</u></a></li>
-<li><a href="https://discover-bytes.techidaily.com/estrategias-para-implementar-snapshots-efectivos-en-windows-server-lete-2022-metodos-esenciales-y-faciles-de-seguir/"><u>Estrategias Para Implementar Snapshots Efectivos en Windows Server Lete 2022 - Métodos Esenciales Y Fáciles De Seguir</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-your-zexmte-usb-bluetooth-adapter-driver-here-for-windows-10-7-and-8-users/"><u>Get Your ZEXMTE USB Bluetooth Adapter Driver Here - For Windows 10, 7, and 8 Users</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-a-quick-guide-to-oneplus-nord-ce-3-lite-5g-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to OnePlus Nord CE 3 Lite 5G FRP Bypass Instantly</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-cinematic-clarity-choices-best-4k-monitors-for-filmmakers/"><u>In 2024, Cinematic Clarity Choices Best 4K Monitors for Filmmakers</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/the-ultimate-list-of-live-chat-apps-for-shopify-for-2024/"><u>The Ultimate List of Live Chat Apps for Shopify for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-advanced-audio-softening-techniques-for-the-proficient-user-on-lumafusion/"><u>[New] Advanced Audio Softening Techniques for the Proficient User on Lumafusion</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-step-into-cinematic-world-shooting-dynamic-timelapses-on-gopro-hero5-black/"><u>[New] Step Into Cinematic World Shooting Dynamic Timelapses on GoPro Hero5 Black</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-tips-to-rank-facebook-page-better/"><u>[New] Tips to Rank Facebook Page Better</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-auditory-aesthetics-choosing-the-right-soundtracks-for-boxings/"><u>2024 Approved Auditory Aesthetics Choosing the Right Soundtracks for Boxings</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-deadly-dominance-the-quintessential-zombie-gameplay/"><u>2024 Approved Deadly Dominance The Quintessential Zombie Gameplay</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-elite-edits-premier-4k-display-options-for-videographers/"><u>2024 Approved Elite Edits Premier 4K Display Options for Videographers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-expert-tips-for-smooth-cross-sounding-with-audacity/"><u>2024 Approved Expert Tips for Smooth Cross-Sounding with Audacity</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-mastering-ultimate-canon-temporal-capture/"><u>2024 Approved Mastering Ultimate Canon Temporal Capture</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-memo-menagerie-the-ultimate-list-of-meme-generators/"><u>2024 Approved Memo Menagerie The Ultimate List of Meme Generators</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-pioneering-portable-vrs-google-cardboard-versus-samsungs-tech/"><u>2024 Approved Pioneering Portable VRs Google Cardboard Versus Samsung's Tech</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-superior-style-for-text-mobility/"><u>2024 Approved Superior Style for Text Mobility</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-messenger-embraces-next-gen-ar-communications/"><u>Facebook's Messenger Embraces Next-Gen AR Communications</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-bending-space-and-time-vrs-cinematic-innovation/"><u>In 2024, Bending Space and Time VR's Cinematic Innovation</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Honor 90 Lite? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/narrative-innovation-weaving-stories-through-movies-and-animations-for-2024/"><u>Narrative Innovation Weaving Stories Through Movies and Animations for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-10-sites-for-high-end-vector-graphics/"><u>Top 10 Sites for High-End Vector Graphics</u></a></li>
 </ul></div>
 
